@@ -4,7 +4,7 @@
 > **Metadata for AI Ingestion**
 >
 > - **Setting**: The Palms Hotel and Casino (Las Vegas, NV) — Clay's home bar
-> - **Timeline**: Las Vegas backstory; Clay's last Friday night in town before fleeing to Alaska
+> - **Timeline**: Las Vegas backstory; Clay's last Friday night at the Palms and the Saturday he flies out to Alaska
 > - **Characters**:
 >   - **Clay**: The narrator, a top "closer" in the Vegas mini-vacation racket, drinking and gambling on his final night in the city.
 >   - **Nate**: Clay's favorite bartender at the Palms; twenty-six years behind a Vegas bar; the reader's surrogate.
@@ -12,12 +12,13 @@
 >   - The "smoke and mirrors" of the Vegas vacation-package con, demonstrated live as a role-play.
 >   - The one rule of the floor — you can't lie, you can only omit — and the moral crawlspace it creates.
 >   - Self-justification as anesthesia; the con artist about to become the mark.
+>   - Leaving: a blacked-out last night, a life shed down to a suitcase, and the geographic-cure delusion carried onto the plane.
 
 ---
 
 The Palms smelled the way it always smelled at nine on a Friday — somebody's cologne, the ghost of a cigarette nobody was smoking, and underneath it the sweet chemical chill of the air conditioning losing its war with three hundred sweating tourists. I'd been breathing that smell for six years. This was the last night I ever would.
 
-Nate slid a Stone IPA in front of me before my elbows hit the rail. Late fifties, twenty-six years behind a Vegas bar, eight of them right here, and not one thing left in this town could surprise him. My father taught me to tip a dollar a beer, minimum, and I'd carried that to church — tipped Nate two hundred bucks the night I hit a royal-flush progressive for sixteen hundred, and a lot of jackpots since. That's why the beer landed before I asked. That's why, on a Friday with a trainee on his fourth shift more or less running the well, Nate had time to lean on the bar across from me and shoot the shit. On my last night, I had him almost to myself.
+Nate slid a Stone IPA in front of me before my elbows hit the rail. Late fifties, twenty-six years behind a Vegas bar, eight of them right here, and not one thing left in this town could surprise him. My father taught me to tip a dollar a beer, minimum, and I'd carried that to church — tipped Nate hundreds on many nights I'd hit a royal-flush progressive. That's why the beer landed before I asked. That's why, on a Friday with a trainee on his fourth shift more or less running the well, Nate had time to lean on the bar across from me and shoot the shit. On my last night, I had him almost to myself.
 
 He knew the broad strokes of my life the way a good bartender knows everybody's. He knew there were between two and five of us, every single day, and that at least one of us was holding down a stool at his bar most nights of the week. The crew is a whole other book — one I might write someday and might not. Tonight it was just me.
 
@@ -25,7 +26,7 @@ What Nate didn't know — what he'd been trying to pry out of us for six years �
 
 "It's not a scam," we always told him. And it wasn't, technically. A scam is when you take a man's money and hand him nothing. We always handed him something. We just never told him what it was.
 
-That was the whole game, and it ran on exactly one rule: you could not lie. Not once. Every call was recorded. But you could omit. You could sidestep. You could answer a question the man hadn't asked and let him hear the answer he wanted. I'd lived in that half-inch of daylight for six years, and I'd gotten fat in it — a grand a week base, twenty or thirty bucks a deal on top, ten to fifteen deals a night, paid out daily in cash. That's how we drank. That's how we gambled. That's how I'd be wheels-up to Alaska in thirty-six hours with money in my pocket.
+That was the whole game, and it ran on exactly one rule: you could not lie. At least you couldn't tell a lie that affected the backend of the sale. Every call was recorded. But you could omit. You could sidestep. You could answer a question the man hadn't asked and let him hear the answer he wanted. I'd lived in that half-inch of daylight for six years, and I'd gotten fat in it — a grand a week base, twenty or thirty bucks a deal on top, ten to fifteen deals a night, paid out daily in cash. That's how we drank. That's how we gambled. That's how I'd be wheels-up to Alaska in less than twenty-four hours with money in my pocket.
 
 "Tell you what," I said. "Last night in town. I'm gonna show you how the sausage gets made."
 
@@ -153,7 +154,11 @@ He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
 "Which I asked you twenty minutes ago," Nate said.
 
-"You did, and now I've got a real answer, because now I've built the whole package. Four days, three nights, two hundred in dining, four show tickets, a thousand in travel credit — your price today, and only today, is three hundred and ninety-nine dollars. Not per person. Not per night. The whole thing. And if you give me your commitment right now, on this call, I'll add a bonus vacation, good two years — eight days, seven nights at any RCI resort on the planet, two-bedroom suite. Doesn't cover airfare, and you'll owe the taxes on the room — even I can't get you out from under Uncle Sam — but everything else is covered. Fair?"
+"You did, and now I've got a real answer, because now I've built the whole package. Four days, three nights, two hundred in dining, four show tickets, a thousand in travel credit — your price today, and only today, is three hundred and ninety-nine dollars. Not per person. Not per night. The whole thing. And if you give me your commitment right now, on this call, I'll add a bonus vacation, good two years after you leave Vegas — eight days, seven nights at any RCI resort on the planet, two-bedroom suite. Doesn't cover airfare, and you'll owe the taxes on the room — even I can't get you out from under Uncle Sam — but everything else is covered. Fair?"
+
+*See what I did with the taxes there? That's me being honest. Generous, even. I just looked you in the eye and admitted this thing isn't completely free — that there's a catch, that you'll owe Uncle Sam his cut no matter what. And a man who'll cop to the small ugly truth has to be straight with you on everything else, right? That's the whole play. One honest little disclosure buys cover for all the rest.*
+
+*What I left out about your "free" eight-day RCI getaway: it's the same trap as the first one, just wearing a different logo. To collect it you sit through another sixty-to-ninety-minute timeshare pitch — RCI's this time — and the dates are blacked out from here to the horizon. You can have that two-bedroom suite anywhere in the world, technically, long as it's a week nobody else on the planet wants to be there. A ski resort in mud season. The beach two days before the hurricane. Free, the exact same way everything else on this call is free.*
 
 "No," Nate said with a laugh
 
@@ -179,7 +184,39 @@ I shrugged and drank. Here's the thing I didn't say to Nate, because I hadn't sa
 
 That's the kind of math a man does when he needs to keep doing the thing.
 
-What I couldn't have told you, with the last free shot of Jameson burning out in my chest, is that before long I'd be in Alaska, working a phone again — solar this time, but the same machine, the same openers and closers and script — and there'd be a voice coming across a transfer. Warm. Specific. Telling me I was special, that I'd earned something I never asked for. She was an opener. I was the closer, the best in the room, the man who knew every move because he'd run every one of them himself.
+---
+
+After that, the night comes apart in pieces.
+
+I don't remember leaving the bar. I'd pulled five hundred dollars at the start of the night and bled it out slow, playing dollar video poker instead of my usual quarters. The difference sounds small and isn't: max bet on quarters runs you a dollar and a quarter a hand, on dollars it's five. You lose four times as fast. But my father never had any use for quarters. "You can never win on quarters," he'd say. "You've got to play dollars. The devil hates a coward." That was his line.
+
+So I played dollars, and I lost — right down to the felt. The one thing I remember clean is four queens lining up on the screen and the little electric rush of cashing out the two-hundred-dollar ticket, and then, drunk as hell and grateful and sad in a way I couldn't have put into words, sliding it across the bar to Nate. One last tip. Six years, and that's how I said goodbye. I think I tried to tell him what it all meant. I don't remember the words. I don't remember if he said any back. Just that it was the last time.
+
+My father was my introduction to this town. Some of the best nights of my life were the two of us posted up at one bar or another, fist-bumping over some small win, him leaning into the machine with a look I can still see. "This one's gonna hit," he'd say. "I can feel it." And the strange part is how often it did — the screen rolling full house after full house, and then the royal, or four aces with the kicker, the both of us hollering like we'd cracked the casino open. Leaving Vegas meant leaving those nights too. I knew I'd never get them back.
+
+I don't remember the room. I don't remember the bed.
+
+I woke up Saturday with a pounding skull, an empty wallet, and one thing in it I couldn't explain — a free-drink ticket from the Sportsbook. You only get those for laying down bets, and I hadn't placed a single one all night. Still have no idea where it came from. Not important. Just one more small mystery from a night I'd handed back to the booze.
+
+That was the life I kept telling myself I was so good at.
+
+---
+
+The plane left at five. I wanted to be at the airport by three, which left me the morning for the last thing I had to do in Las Vegas — decide which pieces of my life were coming with me.
+
+Everything I owned was in that room: the boxes Alisha had stacked on the sidewalk and the bag she'd packed, her idea of what I deserved to keep. I sorted it all out on the floor. It doesn't take long when you've trained yourself to travel light. Clothes, the laptop, the cables, whatever fit. A suitcase and a bookbag, and that was the sum of it. The rest — the boxes, the odds and ends, whatever she'd decided was mine — I left right there for housekeeping. Six years in the desert and I walked away from most of it without a second look. That's not strength. That's just what running looks like once you've had enough practice at it.
+
+I checked my balance on the way out the door. Sixteen hundred and change, after the room and the cash I'd pulled and burned the night before. I took out another hundred. One more morning. One more shot at leaving this town a winner.
+
+I stepped out into the heat, hit the dispensary on the corner, bought a single joint for the road, and smoked half of it on the sidewalk like a man with nowhere in the world he had to be.
+
+I had lunch at the Hooters bar inside the Palms and played one last round of video poker while I ate — quarters this time, slow as I could stand, stretching that hundred out. I was down sixty before I noticed. Then four of a kind came up on the screen, the credits ran and ran, and I clawed it back and then some. Cashed out a small winner, which in that town counts as a minor miracle. On my way out I peeled off a twenty for the bartender. My father's rule, right to the end.
+
+Then I climbed into a cab with a hundred dollars in my pocket, a hangover I'd earned, and six years of memories I figured I was leaving in the desert for good.
+
+I didn't know it yet, riding out with the Strip shrinking in the side mirror, but I wasn't escaping a damn thing. I was just changing the venue.
+
+Before long I'd be in Alaska, working a phone again — solar this time, but the same machine, the same openers and closers and the same script — and there'd be a voice coming across a transfer. Warm. Specific. Telling me I was special, that I'd earned something I never asked for. She was an opener. I was the closer, the best in the room, the man who knew every move because he'd run every one of them himself.
 
 And I would not see a single one of them coming.
 
