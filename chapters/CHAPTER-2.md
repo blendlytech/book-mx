@@ -120,7 +120,7 @@ That part's easy. When the bus doors hiss open, I stand there looking as hopeles
 
 Then it's forty minutes to picture every way this goes wrong, and really there's only one question that matters: did she leave me the ID and the money, or did she erase me? If the wallet's gone, I forfeit a non-refundable ticket to freedom, beg what little I can out of a family well that's nearly dry, and start over from nothing — assuming I even still have a job after ghosting them for a full day in my second week. That can't be it. No way that's it. If there's a God up there…
 
-I get off at my stop and lock eyes on a secondhand cell-phone shop across the street, a little mom-and-pop place. I beeline for the door. Never been inside, but if anybody's got a phone I can borrow it's them — and they do. After a quick sob story and a little pleading, the clerk hands me a cordless landline. She warns me the hold could run hours.
+I get off at my stop and lock eyes on a secondhand cell-phone shop across the street, a little mom-and-pop place. I beeline for the door. Never been inside, but if anybody's got a phone I can borrow it's them — and they do. After a quick sob story and a little pleading, the clerk hands me a cordless landline. I warn her the hold could run hours.
 
 It runs close to an hour and a half. Thank God she's cool about it. I keep her entertained the whole time, telling her exactly how a man ends up barefoot in her shop in orange moccasins, and she's all ears — almost looks let down when the hold music cuts out and my escort is finally booked.
 
@@ -142,7 +142,7 @@ A lie. But she isn't expecting me back until Monday at the earliest, maybe not f
 
 She stands by the front door now, smirking, shaking her head. I can already picture her locking it behind her and doing her worst with the few things I need most, knowing this is her last shot at ruining me. She steps inside. The door shuts. I hear the deadbolt click.
 
-The blood drains back down into my moccasins and the color leaves my face. Nothing to do but wait.
+The blood drains back down into my newly acquired moccasins and the color leaves my face. Nothing to do but wait.
 
 Twenty minutes become an hour. I know because I ask a neighbor walking up for the time: quarter to six. Over an hour past when the cops were due. No sign of Alisha for a solid forty minutes.
 
@@ -150,7 +150,7 @@ Then the door opens. And there she is — fully dolled up now, miniskirt, low-cu
 
 Behind her is whatever she's decided I'm allowed to keep: three medium packing boxes, a suitcase, a bookbag. But I'm not looking at any of that. I'm looking at the orange Nike shoebox sitting on the counter behind it all.
 
-What is in that shoebox. The packing boxes are clothes, I know that. The suitcase too. The bookbag is my laptop and cables — I'm not worried about those, she's never destroyed electronics, she'd pawn them first. But that shoebox. What could possibly be in it except my wallet and phone? Toiletries? No, she'd keep those. I don't collect souvenirs. No jewelry, no trinkets.
+What is in that shoebox. The packing boxes are clothes, I know that. The suitcase too. The bookbag is my laptop and cables — I'm not worried about those, she's never destroyed my laptop, she'd pawn that first. But that shoebox. What could possibly be in it except my wallet and phone? Toiletries? No, she'd keep those. I don't collect souvenirs. No jewelry, no trinkets.
 
 I'm a minimalist. I get twitchy when my whole life won't fit in a suitcase and a carry-on. Those three boxes make me sick. We could burn them and I wouldn't blink. All I want on this earth is to open that goddamn shoebox.
 
@@ -174,6 +174,6 @@ Now the balance. No way. No way in hell she didn't at least rob me and move the 
 
 $2,289.32.
 
-She hasn't touched a cent. I'll remember that number for the rest of my life. It's the first number of the rest of my life.
+She hasn't touched a cent. I'll remember that number forever. It's the first number of the rest of my life.
 
 I am free.

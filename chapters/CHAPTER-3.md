@@ -15,9 +15,9 @@
 
 ---
 
-The Palms smelled the way it always smelled at nine on a Friday — somebody's cologne, the ghost of a cigarette nobody was supposed to be smoking at the bar, and underneath it the sweet chemical chill of the air conditioning losing its war with three hundred sweating tourists. I'd been breathing that smell for six years. This was the last night I ever would.
+The Palms smelled the way it always smelled at nine on a Friday — somebody's cologne, the ghost of a cigarette nobody was smoking, and underneath it the sweet chemical chill of the air conditioning losing its war with three hundred sweating tourists. I'd been breathing that smell for six years. This was the last night I ever would.
 
-Nate slid a Stone IPA in front of me before my elbows hit the rail. Late fifties, twenty-six years behind a Vegas bar, eight of them right here, and not one thing left in this town could surprise him. My father taught me to tip a dollar a beer, minimum, and I'd carried that to church — tipped Nate two hundred bucks the night I hit a royal-flush progressive for sixteen hundred, and a lot of nights since. That's why the beer landed before I asked. That's why, on a Friday with a trainee on his fourth shift more or less running the well, Nate had time to lean on the bar across from me and shoot the shit. On my last night, I had him almost to myself.
+Nate slid a Stone IPA in front of me before my elbows hit the rail. Late fifties, twenty-six years behind a Vegas bar, eight of them right here, and not one thing left in this town could surprise him. My father taught me to tip a dollar a beer, minimum, and I'd carried that to church — tipped Nate two hundred bucks the night I hit a royal-flush progressive for sixteen hundred, and a lot of jackpots since. That's why the beer landed before I asked. That's why, on a Friday with a trainee on his fourth shift more or less running the well, Nate had time to lean on the bar across from me and shoot the shit. On my last night, I had him almost to myself.
 
 He knew the broad strokes of my life the way a good bartender knows everybody's. He knew there were between two and five of us, every single day, and that at least one of us was holding down a stool at his bar most nights of the week. The crew is a whole other book — one I might write someday and might not. Tonight it was just me.
 
@@ -123,6 +123,12 @@ He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
 *And I took New Year's away from him on purpose. The takeaway again, and everybody who's ever priced a room in this town on New Year's nods along like I just did them a favor. It's true there are no blackout dates. What there is, is an upcharge. You want the dates you actually want, you pay for them when you call to book — sometimes a grand on top. We will always, gently, steer you toward the room you can "afford," which is a Tuesday in August in the basement of Circus Circus, AC struggling, a hundred and four outside. Thirty days' notice saves you nothing but a little of the gouging.*
 
+"Okay," Nate cut in, "what's this gonna run me?"
+
+"I'll get there, I promise — I've just got a couple more questions before I can drop you into the right pricing tier. I don't want to overcharge you, and I sure don't want to shortchange you on something you qualify for. Hang with me. It'll be worth your while."
+
+*Never name the number first. That's the whole trick. The price doesn't change — it's three ninety-nine, it was three ninety-nine before I dialed — but if I say it now, before I've stacked the gifts to the ceiling, it sounds like money. Say it last, after a man's already spent four days on the Strip and a week in a resort he hasn't paid for, and that exact same number sounds like a steal he'd be an idiot to walk away from.*
+
 "We figure you've gotta eat, so we throw in a hundred in dining at over two hundred restaurants on and off the Strip — and since I'm adding that Mandalay promo, I'm doubling it. Two hundred in dining. Spend it all at the same restaurant, spread it around, your call."
 
 *It's a Restaurant.com card. Which is dog shit. Ten percent here, ten percent there, one use per transaction. He can blow the whole "two hundred" at one restaurant, sure — just not in one visit. The most he will ever actually see is ten percent off a check.*
@@ -149,13 +155,13 @@ He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
 "You did, and now I've got a real answer, because now I've built the whole package. Four days, three nights, two hundred in dining, four show tickets, a thousand in travel credit — your price today, and only today, is three hundred and ninety-nine dollars. Not per person. Not per night. The whole thing. And if you give me your commitment right now, on this call, I'll add a bonus vacation, good two years — eight days, seven nights at any RCI resort on the planet, two-bedroom suite. Doesn't cover airfare, and you'll owe the taxes on the room — even I can't get you out from under Uncle Sam — but everything else is covered. Fair?"
 
-"No," Nate said.
+"No," Nate said with a laugh
 
 "What's holding you back? You already told me you're coming to Vegas. You've gotta eat — covered. You like shows — covered, two of your three nights. A thousand in travel credit and a week anywhere in the world. You can't get three nights on the Strip for three ninety-nine to begin with, let alone with all of it stacked on top. Can you?"
 
 "…No."
 
-*And there it is. From here, I never hang up. I'll throw in more show tickets. A cruise. Airfare for two that's real and buried under blackout dates and hoops. I've got a drawer full of "bonuses." I will, very patiently, very warmly, guilt you into your own wallet. So let's save us both the time. Visa, MasterCard, Discover, or American Express?*
+*And there it is. From here, I never hang up. I'll throw in more show tickets. A cruise. Airfare for two that's real and buried under blackout dates and hoops. I've got a drawer full of "bonuses." I will, very patiently, very warmly, guilt you into your own wallet.  I'll even make you put your wife on the phone and repitch the whole thing. So let's save us both the time. Visa, MasterCard, Discover, or American Express?*
 
 "How do I know this isn't a scam?" Nate asked — and now he was the one running it.
 
