@@ -4,7 +4,7 @@
 > **Metadata for AI Ingestion**
 >
 > - **Setting**: A remote solar appointment-setting operation — openers dialing from across Mexico, Clay closing out of Anchorage; a Mountain View Airbnb giving way to a downtown Anchorage capsule hostel; every call routed to California homeowners.
-> - **Timeline**: Late June 2021 — Clay's triumphant first days on the solar phones, the week of the Alaskan solstice, capped by a Saturday that caves in: a daylight mugging, an all-day lockout, and a bloody break-in into his own rental.
+> - **Timeline**: Late June 2021 — Clay's triumphant first days on the solar phones, the week of the Alaskan solstice, capped by a Saturday that caves in: a daylight mugging, an all-day lockout, and a bloody break-in into his own rental — then an arrest, four days in county jail across a COVID-locked-down week, a TV-screen arraignment and a protective order barring him from the home he's still paying for, ending with a 2 a.m. release into the cold with nothing left to his name.
 > - **Characters**:
 >   - **Clay**: The narrator and self-appointed best closer in the building, getting rich and dead certain he can't be touched.
 >   - **The Mexican openers**: Underpaid voices feeding him warm transfers, celebrating him on WhatsApp, fighting over his line.
@@ -16,6 +16,7 @@
 >   - Clean money as a new anesthesia — getting rich "without a single lie" and calling it redemption.
 >   - The geographic cure's punchline: the same machine, the same script, two thousand miles north.
 >   - The house collects: hubris at high noon, and the violent reversal waiting at the bottom of a lucky streak.
+>   - The mark who keeps betting "surely": the same unshakable faith that the next morning — the next judge, the next room — will finally break his way, dragged through a cell, an arraignment, and a 2 a.m. door, and crushed each time. The unmovable man, moved.
 
 ---
 
