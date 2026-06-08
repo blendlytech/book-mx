@@ -64,3 +64,4 @@ Unfuckingbelievable. I had been so far down, so starved for one single thing in 
 So. Back to task one. Find the DMV.
 
 Mike, for the record, was fucking insane. Not as an insult — in the full clinical, literal, finger-circling-the-temple sense of the word. He was the single kindest thing that happened to me that whole day, and not one piece of it was real.
+
