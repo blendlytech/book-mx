@@ -100,4 +100,3 @@ I got the ID — and I use the word loosely, because what slid back across that 
 Fifteen dollars for the card, five left over. And here's the small, perfect joke at the end of it: I took that five into a McDonald's — a real one, an actual McDonald's, just not on any street that cop ever drew — and bought myself a couple of McDoubles and ate them like communion. Then I asked the kid at the register how to get to the nearest library, pushed back out the door, and started walking again.
 
 Same torn shirt. Same head wound. Same warrants, same protective order, same nothing in my pockets but a paper ID and two soft dollar bills. But I was carrying something I hadn't had in longer than I could remember and sure as hell hadn't expected to find at the bottom of a DMV: the plain, stubborn belief — restored against every last thing that morning had done to me — that people will catch you. Some of them. Sometimes. Just often enough.
-
