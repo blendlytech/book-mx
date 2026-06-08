@@ -10,7 +10,7 @@
 > - **Timeline**: June 2021 (the days leading up to his scheduled escape to Alaska)
 > - **Characters**:
 >   - **Clay**: The protagonist, an alcoholic facing a DV charge, desperate to escape.
->   - **Las Vegas Ex-Girlfriend**: A toxic, manipulative partner who uses the police to control Clay.
+>   - **Alisha (Las Vegas Ex-Girlfriend)**: A toxic, manipulative partner who uses the police to control Clay.
 >   - **The Judge**: A surprisingly lenient judge who grants Clay release on his own recognizance (OR).
 >   - **The Cop**: The officer who repeatedly arrests Clay and who is secretly sleeping with Clay's girlfriend; associated with a distinct *Joop* cologne smell.
 >   - **The Boys**: Clay's Las Vegas friends whom he drinks and gambles with.
@@ -36,11 +36,11 @@ To understand why a man would be terrified of good news, you have to back up a f
 
 ---
 
-It was late June 2021. COVID was technically behind us, though some corners of the country were still talking about it like it wasn't. I was leaving a mutually, mentally abusive relationship in Las Vegas. Escaping is the better word. The kind of relationship that lands a man in jail over and over — not for laying a hand on anyone, but over hurt feelings and the ugly things we screamed at each other. I was done. Done with the manipulation, the mistreatment, all of it, and when I drank it came pouring out — never in a healthy way. It came out in a way that let Alisha wring her own wrists raw before the cops arrived and turn a shouting match into a violent attack that never happened and never would.
+It was late June 2021. COVID was technically behind us, though some corners of the country were still talking about it like it wasn't. I was leaving a mutually abusive relationship in Las Vegas. Escaping is the better word. The kind of relationship that lands a man in jail over and over — not for laying a hand on anyone, but over hurt feelings and the ugly things we screamed at each other. I was done. Done with the manipulation, the mistreatment, all of it, and when I drank it came pouring out — never in a healthy way. It came out in a way that let Alisha wring her own wrists raw before the cops arrived and turn a shouting match into a violent attack that never happened and never would.
 
 She was, by her own admission and the general consensus of everyone who knew her, not a well woman. Now try defending yourself against her as a belligerent drunk who also loves telling the cops exactly what he thinks of them the second they walk through his door.
 
-The night that put me in front of this generous judge was no different. Arrest number four in six months, every one of them during a drunken rant. This last one was the stupidest of all, because I'd already bought a one-way ticket to Anchorage to get away from her. I believed in geographic cures. I'd run plenty of them in my life — a deeply held delusion that crossing a state line worked like a mystical car wash for the soul. It's like thinking you can fix a blown head gasket by driving the car down a different highway.
+The night that put me in front of this generous judge was no different. Arrest number four in six months, every one of them during a drunken rant. This last one was the stupidest of all, because I'd already bought a one-way ticket to Anchorage to get away from her. I believed in geographic cures. I'd run plenty of them in my life — a deeply held delusion that crossing a state line could leave my problems on the other side of it. It's like thinking you can fix a blown head gasket by driving the car down a different highway.
 
 I had no plan for how I'd survive up there. No idea where I'd sleep once my two weeks in the Airbnb ran out. I just knew I had to get out while I still had the nerve.
 
@@ -70,11 +70,11 @@ But this time? Nothing. And her silence was infinitely more terrifying than any 
 
 I had four days to get to my flight without giving her a single reason to call the cops. The judge had been clear the last time: if Alisha showed up in that courtroom again over the same bullshit, I was gone for a year. And I wasn't even supposed to be in the house.
 
-She'd taken a protective order out against me. I couldn't set foot in my own place — the house I paid sixteen hundred a month for, the one she and her cats lived in nice and comfortable. All of it was about to vanish the second I left. No rent, no food, no litter in the box, nothing. She had to know it. She'd had a sweet deal right up until now, and it was all gone.
+She'd taken a protective order out against me. I couldn't set foot in my own place — the house I paid sixteen hundred a month for, the one she and her cats lived in nice and comfortable. The second I walked, her sweet deal was gone: no rent, no food, no litter in the box. She had to know it.
 
 So what was she up to? Was she upstairs calling them right now? She didn't need a reason. I just needed to leave her alone. I wouldn't drink for four days. I couldn't. As long as I played nice and let her keep the money, she'd most likely let me walk. Or so I told myself.
 
-I'd sleep on the couch and stay out of her way. Rent was paid through the next month, and I'd already moved nine hundred dollars into her account for groceries, gas, whatever. She seemed content. She was a blonde bombshell — stacked, great body — and she'd have no trouble landing a new boyfriend, or at the very least some white boy with a credit card to feed her and her cats.
+I'd sleep on the couch and stay out of her way. She seemed content. She was a blonde bombshell — stacked, great body — and she'd have no trouble landing a new boyfriend, or at the very least some white boy with a credit card to feed her and her cats.
 
 ---
 
@@ -84,7 +84,7 @@ I figured, what the hell. I'd stayed sober Tuesday and Wednesday. I could trust 
 
 I had a plan. Drink, have fun, go straight home to bed. No overdoing it, nothing I'd regret.
 
-Heh. Yeah. Right.
+Yeah. Right.
 
 We had a hell of a last night. Hung at our spot, the Palms, got drunk, gambled, and nobody got hurt or lost anything but their paychecks. I'd burned through all but a hundred bucks of mine, and payday was midnight Friday — just before my plane left Saturday.
 
@@ -96,7 +96,7 @@ I had one job — disappear — and instead I had to be right. When you're drunk
 
 Next thing I knew — you guessed it — the cops were there, and I was face down on the hardwood, tasting the dirt she never found the time to sweep up between Netflix binges.
 
-The booking was the same as always. We'd started early, all of us meeting up around one, so by eight that night I was out of ammo and hammered. One day before my plane and I'd torched it. The cop who hauled me in was the same one who always showed up — the same one I'd find out later, from a friend, she'd been fucking the whole time. Fitting. He threw me in the back of that squad car that reeked of Hugo Boss cologne, same old charge, domestic battery. She'd wrung her wrists again to sell the story that I'd grabbed her, which I didn't, never have, and never would, no matter how drunk I got.
+The booking was the same as always. We'd started early, all of us meeting up around one, so by eight that night I was out of ammo and hammered. One day before my plane and I'd torched it. The cop who hauled me in was the same one who always showed up — the same one I'd find out later, from a friend, she'd been fucking the whole time. Fitting. He threw me in the back of that squad car that reeked of Joop cologne, same old charge, domestic battery. She'd wrung her wrists again to sell the story that I'd grabbed her, which I didn't, never have, and never would, no matter how drunk I got.
 
 I was a mouthy bastard who couldn't sit still in peace, but violence was never in me. She was just good at working the cops, especially the one in her bed. And that's what marched me in front of the judge who, for reasons I still don't understand, blew the lid off the escape hatch I thought I'd welded shut for good the night before.
 
@@ -142,9 +142,9 @@ A lie. But she isn't expecting me back until Monday at the earliest, maybe not f
 
 She stands by the front door now, smirking, shaking her head. I can already picture her locking it behind her and doing her worst with the few things I need most, knowing this is her last shot at ruining me. She steps inside. The door shuts. I hear the deadbolt click.
 
-The blood drains back down into my new moccasins.
+The blood drains back down into those orange moccasins.
 
-Twenty minutes become an hour. I know because I ask a neighbor walking up for the time: quarter to six. Over an hour past when the cops were due. No sign of Alisha for a solid forty minutes.
+Twenty minutes become an hour. I know because I ask a neighbor walking up for the time: quarter to eight. Over an hour past when the cops were due. No sign of Alisha for a solid forty minutes.
 
 Then the door opens. And there she is — fully dolled up now, miniskirt, low-cut top, high heels.
 
@@ -154,7 +154,7 @@ What is in that shoebox. The packing boxes are clothes, I know that. The suitcas
 
 I'm a minimalist. I get twitchy when my whole life won't fit in a suitcase and a carry-on. Those three boxes make me sick. We could burn them and I wouldn't blink. All I want on this earth is to open that goddamn shoebox.
 
-She carries the boxes out one at a time, slow and deliberate, setting each on the sidewalk with a little grin — like a goddamn psychopath turning the handover of my entire life into taking out the trash. The suitcase and bookbag go beside them. Then, last, she sets the shoebox on top of the stack.
+She carries the boxes out one at a time, slow and deliberate, setting each on the sidewalk with a little grin — like a goddamn psychopath turning the handover of my entire life into taking out the trash. The suitcase and backpack go beside them. Then, last, she sets the shoebox on top of the stack.
 
 She gives me one final look, a little wave goodbye, steps back inside, and I hear that deadbolt click one more time. No intention of being here when the cops show. That final click is the sound of a vault locking from the inside.
 
