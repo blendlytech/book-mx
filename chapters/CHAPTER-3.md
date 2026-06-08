@@ -20,6 +20,8 @@ The Palms smelled the way it always smelled at nine on a Friday — somebody's c
 
 Nate slid a Stone IPA in front of me before my elbows hit the rail. Late fifties, twenty-six years behind a Vegas bar, eight of them right here, and not one thing left in this town could surprise him. My father taught me to tip a dollar a beer, minimum, and I'd carried that to church — tipped Nate hundreds on many nights I'd hit a royal-flush progressive. That's why the beer landed before I asked. That's why, on a Friday with a trainee on his fourth shift more or less running the well, Nate had time to lean on the bar across from me and shoot the shit. On my last night, I had him almost to myself.
 
+Five hours earlier I'd been in a cell. An hour earlier I'd watched Alisha stack three boxes of my life on the sidewalk like she was taking out the trash. Now my elbows were on the rail and the beer was already sweating in front of me, and anybody walking in cold would've seen a regular having a regular Friday. That's the same trick I sold for a living — looking like a man who has it handled. Tonight I ran it on Nate. Mostly I ran it on myself.
+
 He knew the broad strokes of my life the way a good bartender knows everybody's. He knew there were between two and five of us, every single day, and that at least one of us was holding down a stool at his bar most nights of the week. The crew is a whole other book — one I might write someday and might not. Tonight it was just me.
 
 What Nate didn't know — what he'd been trying to pry out of us for six years — was exactly what we did for a living.
@@ -54,7 +56,7 @@ His pretend phone rang — I picked the ringtone, *It's Raining Men*, in my high
 
 "Okay," he said, suspicious already, exactly right.
 
-*One minute and thirty-six seconds. Nobody on God's earth schedules ninety-six seconds. But a number that specific sounds like a man reading off a real form, and sounding real was ninety percent of the job. "About a minute" is a salesman. "A minute and thirty-six seconds" is your accountant.*  The entire call is actually going to take 20-30 minutes, but after a minute and thirty-six seconds, I'll have shoved so much ether up his ass he won't even remember the number.  The exact wording doesn't matter nearly as much as the fact that you're saying words with no meaning.  *It's called pacing.* *When you take a step back and look at it, you realize that a good portion of this entire con is simply the art of wasting enough of the mark's time and energy that he doesn't have the faculties left to notice you're actually picking his pocket.*
+*One minute and thirty-six seconds. Nobody on God's earth schedules ninety-six seconds. But a number that specific sounds like a man reading off a real form, and sounding real was ninety percent of the job. "About a minute" is a salesman. "A minute and thirty-six seconds" is your accountant. The entire call is actually going to take twenty or thirty minutes, but after a minute and thirty-six seconds I'll have shoved so much ether up his ass he won't even remember the number. The exact wording doesn't matter nearly as much as the fact that you're saying words with no meaning. It's called pacing. When you take a step back and look at it, you realize a good portion of this entire con is simply the art of wasting enough of the mark's time and energy that he doesn't have the faculties left to notice you're actually picking his pocket.*
 
 "When you travel, Nate, is it just you, or you and a spouse?"  
 
@@ -72,9 +74,9 @@ Nate broke. "Sneaky little shit."
 
 "It's for your own good, Nate." I winked. "Stay in character."
 
-*Watch what I just did. I never lied. "They" don't give me that information — true. That's becasue nobody in this building has it. It's tucked away somewhere for his protection — also true, somewhere. I never once said the floor manager had it either. I just built a door, set it right next to him, and let him decide whether to walk through. And on the other side of that door is a closer. Like me. Either way the sausage gets made; he just gets to pick the chef.  Right now, he's dealing with the sous chef.  He hasn't said "no" yet, he hasn't said, "let me talk to my wife" he's not even sure he's been screwed with.  He's just kind of amused.  But, the sooner I can get him over to a closer, the sooner I can move on to the next mark and start the process over.
+*Watch what I just did. I never lied. "They" don't give me that information — true. That's because nobody in this building has it. It's tucked away somewhere for his protection — also true, somewhere. I never once said the floor manager had it either. I just built a door, set it right next to him, and let him decide whether to walk through. And on the other side of that door is a closer. Like me. Either way the sausage gets made; he just gets to pick the chef. Right now, he's dealing with the sous chef. He hasn't said "no" yet. He hasn't said, "let me talk to my wife." He's not even sure he's been screwed with. He's just kind of amused. But the sooner I can get him over to a closer, the sooner I can move on to the next mark and start the process over.*
 
-Nate, wheels turning, deciding whether or not to push the door."Do I want to be transfered to your manager?"
+Nate, wheels turning, deciding whether or not to push the door. "Do I want to be transferred to your manager?"
 
 "Up to you, Nate. Put yourself in a real traveler's shoes, first time getting this call."
 
@@ -102,7 +104,7 @@ Nate frowned — genuinely a little disappointed, which told me the trick had la
 
 "Of course."
 
-*That one's a lie — flat out, no crawlspace, a lie. There was no Mandalay Bay promotion. But it never touches the back end of the deal, and good luck to any human being who tries to call Mandalay Bay and ask what their floor wasn't running.
+*That one's a lie — flat out, no crawlspace, a lie. There was no Mandalay Bay promotion. But it never touches the back end of the deal, and good luck to any human being who tries to call Mandalay Bay and ask what their floor wasn't running.*
 
 "Course you are," I said. "You probably wouldn't be on my list if the answer was no, right?"
 
@@ -144,9 +146,9 @@ He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
 *Now watch me move right past that, fast, because the slot play is the single most worthless thing in the bag and the one I least want questions about. It runs on one promotional machine at Binion's downtown. You can't put real money in it — there's a disclaimer right on the glass, promotional play only. And you can only cash out if you hit the jackpot. In six years I never met a soul who hit it. I've heard of people grinding that thing for hours, running the number into the thousands, then walking away with nothing because there's no other way off the ride. Word is it pays once every couple of years. Nobody's ever met the couple. If a customer presses me, I have to start telling the truth in pieces, and that bleeds sales — so depending on the mark and their tone, I'll skip it entirely on the call and "surprise" them with it during verification, after the card's already run.*
 
-"But what I think you'll really love, frequent traveler like you — travel credit. Five hundred for this promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels worldwide"
+"But what I think you'll really love, frequent traveler like you — travel credit. Five hundred for this promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels worldwide."
 
-*The travel credit's real. It also comes with blackout dates, no holidays, almost no weekends.  It's a discount card, so the most you get off is 60% and it's all "based on availability." So: real, and good luck.*
+*The travel credit's real. It also comes with blackout dates, no holidays, almost no weekends. It's a discount card, so the most you get off is sixty percent, and it's all "based on availability." So: real, and good luck.*
 
 "Oh, brother," Nate said, shaking his head. "This is fucked up."
 
@@ -160,19 +162,19 @@ He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
 *What I left out about your "free" eight-day RCI getaway: it's the same trap as the first one, just wearing a different logo. To collect it you sit through another sixty-to-ninety-minute timeshare pitch — RCI's this time — and the dates are blacked out from here to the horizon. You can have that two-bedroom suite anywhere in the world, technically, long as it's a week nobody else on the planet wants to be there. A ski resort in mud season. The beach two days before the hurricane. Free, the exact same way everything else on this call is free.*
 
-"No," Nate said with a laugh
+"No," Nate said with a laugh.
 
-"What's holding you back Nate? You already told me you're coming to Vegas. You've gotta eat — covered. You like shows — covered, two of your three nights. A thousand in travel credit and a week anywhere in the world. You can't get three nights on the Strip for three ninety-nine to begin with, let alone with all of it stacked on top. Can you?"
+"What's holding you back, Nate? You already told me you're coming to Vegas. You've gotta eat — covered. You like shows — covered, two of your three nights. A thousand in travel credit and a week anywhere in the world. You can't get three nights on the Strip for three ninety-nine to begin with, let alone with all of it stacked on top. Can you?"
 
 "…No."
 
-*And there it is. From here, I never hang up. I'll throw in more show tickets. A cruise. Airfare for two that's real and buried under blackout dates and hoops. I've got a drawer full of "bonuses." I will, very patiently, very warmly, guilt you into your own wallet.  I'll even make you put your wife on the phone and repitch the whole thing. So let's save us both the time. Visa, MasterCard, Discover, or American Express?*
+*And there it is. From here, I never hang up. I'll throw in more show tickets. A cruise. Airfare for two that's real and buried under blackout dates and hoops. I've got a drawer full of "bonuses." I will, very patiently, very warmly, guilt you into your own wallet. I'll even make you put your wife on the phone and repitch the whole thing. So let's save us both the time. Visa, MasterCard, Discover, or American Express?*
 
 "How do I know this isn't a scam?" Nate asked — and now he was the one running it.
 
 "Great question. We have to *earn* the right to take these cards — merchant accounts. Your card company will never let you pay for services you don't receive. We don't deliver what we promised, you call that 800 number on the back, you cancel, and we lose our merchant account for selling fake packages. We wouldn't last a month. The fact that we can take American Express should tell you something about who you're dealing with."
 
-*All true. And here's how we make sure he can't pull that 800-number thread later.  First of all, by the time they figure out that most their gifts are shit, they've already sat through the travel presentation and checked into their hotel, which they booked with our booking agents. Plus, the second his card clears, I put him on a sixty-second recording and run him through about ten fast yes-or-no questions. "You understand this is promotional in nature, that all gifts are promotional, that this is not a prize you've won but a deeply discounted vacation package — yes?" And the big one, the one that gets the most pushback in the entire call: "You and your spouse agree to attend a sixty-to-ninety-minute travel presentation while in Las Vegas — yes?" Set that up wrong before you hit record and nine out of ten of them buck right there at the finish line. Set it up right, and they say yes to the very cage they spent the whole call trying not to walk into.*
+*All true. And here's how we make sure he can't pull that 800-number thread later. First of all, by the time they figure out that most their gifts are shit, they've already sat through the travel presentation and checked into their hotel, which they booked with our booking agents. Plus, the second his card clears, I put him on a sixty-second recording and run him through about ten fast yes-or-no questions. "You understand this is promotional in nature, that all gifts are promotional, that this is not a prize you've won but a deeply discounted vacation package — yes?" And the big one, the one that gets the most pushback in the entire call: "You and your spouse agree to attend a sixty-to-ninety-minute travel presentation while in Las Vegas — yes?" Set that up wrong before you hit record and nine out of ten of them buck right there at the finish line. Set it up right, and they say yes to the very cage they spent the whole call trying not to walk into.*
 
 ---
 
@@ -204,7 +206,7 @@ That was the life I kept telling myself I was so good at.
 
 The plane left at five. I wanted to be at the airport by three, which left me the morning for the last thing I had to do in Las Vegas — decide which pieces of my life were coming with me.
 
-Everything I owned was in that room: the boxes Alisha had stacked on the sidewalk and the bag she'd packed, her idea of what I deserved to keep. I sorted it all out on the floor. It doesn't take long when you've trained yourself to travel light. Clothes, the laptop, the cables, whatever fit. A suitcase and a bookbag, and that was the sum of it. The rest — the boxes, the odds and ends, whatever she'd decided was mine — I left right there for housekeeping. Six years in the desert and I walked away from most of it without a second look. That's not strength. That's just what running looks like once you've had enough practice at it.
+Everything I owned was in that room: the boxes Alisha had stacked on the sidewalk and the bag she'd packed, her idea of what I deserved to keep. I sorted it all out on the floor. It doesn't take long when you've trained yourself to travel light. Clothes, the laptop, the cables, whatever fit. A suitcase and a backpack, and that was the sum of it. The rest — the boxes, the odds and ends, whatever she'd decided was mine — I left right there for housekeeping. Six years in the desert and I walked away from most of it without a second look. That's not strength. That's just what running looks like once you've had enough practice at it.
 
 I checked my balance on the way out the door. Sixteen hundred and change, after the room and the cash I'd pulled and burned the night before. I took out another hundred. One more morning. One more shot at leaving this town a winner.
 
