@@ -4,7 +4,7 @@
 > **Metadata for AI Ingestion**
 >
 > - **Setting**: Anchorage, AK, in the dead-lit hours after a 2 a.m. jail release — the county-lockup parking lot, an eleven-mile stretch of cold city between Clay and the DMV, and the public-library computer waiting at the end of it as his one line back to the outside world.
-> - **Timeline**: Late June 2021, picking up the instant Chapter 5 ends — Clay walks out of jail with no ID, no money, no phone, a head wound, and a protective order, and sets out on foot to rebuild an identity from zero. *(Provisional — to be completed once the chapter's full arc lands.)*
+> - **Timeline**: Late June 2021 (Thursday), picking up the instant Chapter 5 ends — Clay walks out of jail at 2 a.m. with no ID, no money, no phone, a five-day head wound, and a protective order, and sets out on foot to rebuild an identity from zero: a night of aimless wandering, the Mike detour into a treatment-center group home, two sets of bad cop directions, and finally the eleven-mile arrival at the DMV, where a clerk's folded twenty buys back his name.
 > - **Characters**:
 >   - **Clay**: The narrator, dumped onto the street with nothing left to his name but a single signed form and the long walk it points him toward.
 >   - **The releasing officer**: Hands Clay the one mercy of the whole ordeal — a pre-signed voucher good for a free state ID.
@@ -61,9 +61,9 @@ I looked around. I was the only one standing there. Mike had evaporated. And I b
 
 Unfuckingbelievable. I had been so far down, so starved for one single thing in this world to finally break my way, that I had walked into a group home for the mentally ill and let a sick man hand me a bedroom, a truck, and his own front-door key — and I had waved off every flashing red light on the way in, because the only other option was to stand still and admit I had nowhere on this earth to go. I couldn't even get angry. I started laughing somewhere down that driveway, and I laughed harder a mile or two later when I realized I was still carrying Mike's key — too far gone by then to walk it back, so I just kept it, one more thing I'd carried off from a place I had no business being inside of. I felt about as stupid as a man can feel and still keep putting one foot in front of the other.
 
-So. Back to task one. Find the DMV.
+Mike, for the record, was fucking insane. Not as an insult — in the full clinical, literal, finger-circling-the-temple sense of the word. He was the kindest anyone had been to me since I walked out of that cell — and not one piece of it was real.
 
-Mike, for the record, was fucking insane. Not as an insult — in the full clinical, literal, finger-circling-the-temple sense of the word. He was the single kindest thing that happened to me that whole day, and not one piece of it was real.
+So. Back to task one. Find the DMV.
 
 By Thursday morning the sun had done its full meaningless lap and come back around to an hour that finally counted for something — eight, nine o'clock, the DMV open for business somewhere out ahead of me. Somewhere. After Mike, I'd flagged down a cop on the side of the road, and I'll be honest about why: I wanted a ride. I told him the whole story and held up my life-saving slip of paper like a hall pass and waited on the cavalry. He drew me a map on a napkin. Crude little thing — north here, hang a left at a McDonald's, *good luck.* Thanks. Second cop of the week to hand me directions to my own life and then drive off in the warm.
 
@@ -95,7 +95,7 @@ There was a twenty-dollar bill inside.
 
 That's when I cried for real — couldn't have stopped it with both hands. A woman behind a counter who owed me nothing, who'd just watched me beg and come apart and had every right to be finished with me, had folded a twenty into my own wrecked paperwork and handed me back my life over a fifteen-dollar fee. I was in shock. I think I got out a thank-you. I know I sat there and swore to myself, the way you swear things at the bottom of the world, that one day I would come back to Anchorage, find this woman, and buy her a house. I meant it more than I have ever meant almost anything.
 
-I got the ID — and I use the word loosely, because what slid back across that counter wasn't the plastic card you're picturing. It was paper. A printed-out temporary you fold into your pocket, the real plastic one promised by mail to an address I did not have and probably never would. It didn't matter to me that morning. It had my name on it, and my name was the whole war I'd come to win. What I didn't know yet was how many doors a paper ID quietly refuses to open — that to most of this world a piece of paper is just one more thing a man could have faked, and I was about to spend a long stretch learning that the hard way. That bill would come due down the road. Right then, it was enough.
+I got the ID — and I use the word loosely, because what slid back across that counter wasn't the plastic card you're picturing. It was paper. A printed-out temporary you fold into your pocket, the real plastic one promised by mail to an address I did not have and probably never would. What I didn't know yet was how many doors a paper ID quietly refuses to open — that to most of this world a piece of paper is just one more thing a man could have faked, and I was about to spend a long stretch learning that the hard way. That bill would come due down the road. But it didn't matter to me that morning. It had my name on it, and my name was the whole war I'd come to win. Right then, it was enough.
 
 Fifteen dollars for the card, five left over. And here's the small, perfect joke at the end of it: I took that five into a McDonald's — a real one, an actual McDonald's, just not on any street that cop ever drew — and bought myself a couple of McDoubles and ate them like communion. Then I asked the kid at the register how to get to the nearest library, pushed back out the door, and started walking again.
 
