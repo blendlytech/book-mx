@@ -24,7 +24,7 @@ Five hours earlier I'd been in a cell. An hour earlier I'd watched Alisha stack 
 
 He knew the broad strokes of my life the way a good bartender knows everybody's. He knew there were between two and five of us, every single day, and that at least one of us was holding down a stool at his bar most nights of the week. The crew is a whole other book — one I might write someday and might not. Tonight it was just me.
 
-What Nate didn't know — what he'd been trying to pry out of us for six years — was exactly what we did for a living.
+What Nate didn't know — what he'd been trying to pry out of us for years — was exactly what we did for a living.
 
 "It's not a scam," we always told him. And it wasn't, technically. A scam is when you take a man's money and hand him nothing. We always handed him something. We just never told him what it was.
 
@@ -58,7 +58,7 @@ His pretend phone rang — I picked the ringtone, *It's Raining Men*, in my high
 
 *One minute and thirty-six seconds. Nobody on God's earth schedules ninety-six seconds. But a number that specific sounds like a man reading off a real form, and sounding real was ninety percent of the job. "About a minute" is a salesman. "A minute and thirty-six seconds" is your accountant. The entire call is actually going to take twenty or thirty minutes, but after a minute and thirty-six seconds I'll have shoved so much ether up his ass he won't even remember the number. The exact wording doesn't matter nearly as much as the fact that you're saying words with no meaning. It's called pacing. When you take a step back and look at it, you realize a good portion of this entire con is simply the art of wasting enough of the mark's time and energy that he doesn't have the faculties left to notice you're actually picking his pocket.*
 
-"When you travel, Nate, is it just you, or you and a spouse?"  
+"When you travel, Nate, is it just you, or you and a spouse?"
 
 "Me and my wife."
 
@@ -120,61 +120,73 @@ Nate frowned — genuinely a little disappointed, which told me the trick had la
 
 He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
-"As a VIP you're getting four days, three nights, your pick of sixteen hotels and casinos right on the Strip. No blackout dates — give us thirty days' notice and we guarantee your dates. Only exception's New Year's Eve, can't promise that one. Every other weekend, every other holiday, wide open. And you don't pick today — you've got two full years to use it."
+"As a VIP, you're getting four days, three nights, your pick of sixteen hotels right on the Strip. Two full years to use it. No blackout dates — thirty days' notice and I guarantee them."
 
-*Most never will. Better than seven in ten of these packages expire in a drawer, unused — some of these "frequent travelers" already have three or four they never touched and buy another one anyway — which means the owner never has to pay for the room. We're selling the same empty bed over and over to people too busy or too embarrassed to ever come claim it.*
+*Most never will. Better than seven in ten of these expire in a drawer. Some of these "frequent travelers" already have three or four they never touched and buy another one anyway — which is the whole beauty of it: the owner never has to honor the room. We sell the same empty bed over and over, to people too busy or too embarrassed to ever come sleep in it.*
 
-*And I took New Year's away from him on purpose. The takeaway again, and everybody who's ever priced a room or been in this town on New Year's Eve nods along like I just did them a favor. It's true there are no blackout dates. What there is, is an upcharge. You want the dates you actually want, you pay for them when you call to book — sometimes a grand on top. We will always, gently, steer you toward the room you can "afford," which is a Tuesday in August in the basement of Circus Circus, AC struggling, a hundred and four outside. Thirty days' notice saves you nothing but a little of the gouging.*
+"Only date I can't promise you is New Year's Eve."
 
-"Okay," Nate cut in, "what's this gonna run me?"
+Nate snorted. Twenty-six years in this town; he knew exactly what that meant. "Course you can't."
 
-"I'll get there, I promise — I've just got a couple more questions before I can drop you into the right pricing tier. I don't want to overcharge you, and I sure don't want to shortchange you on something you qualify for. Hang with me. It'll be worth your while."
+*And there it is — he just sold himself. That's the takeaway, the most important move in the whole call: hand a man everything, then pull back the one thing he already knows he can't have, and that single "no" makes the whole pile of yeses feel earned. "No blackout dates" is even true — the way most things on this call are true. There's just an upcharge. You want the weekend you actually want, you pay for it when you book, sometimes a grand on top. Otherwise you're looking at a Tuesday in August in the basement of Circus Circus, AC losing, a hundred and four outside. And Nate — not even my mark — is nodding along like I did him a favor.*
 
-*Never name the number first. That's the whole trick. The price doesn't change — it's three ninety-nine, it was three ninety-nine before I dialed — but if I say it now, before I've stacked the gifts to the ceiling, it sounds like money. Say it last, after a man's already spent four days on the Strip and a week in a resort he hasn't paid for, and that exact same number sounds like a steal he'd be an idiot to walk away from.*
+"Okay," Nate said, leaning in now in spite of himself. "What's it run me?"
 
-"We figure you've gotta eat, so we throw in a hundred in dining at over two hundred restaurants on and off the Strip — and since I'm adding that Mandalay promo, I'm doubling it. Two hundred in dining. Spend it all at the same restaurant, spread it around, your call."
+*He leaned in. That's the tell. He isn't asking whether anymore — he's asking how much. So I don't answer. Never name the number first; it's the whole trick. The price doesn't change — it's three-ninety-nine, it was three-ninety-nine before I dialed — but say it now, before I've stacked the gifts to the ceiling, and it sounds like money. Say it last, after I've handed a man four days on the Strip and a week in a resort he hasn't paid for, and the same number sounds like a steal he'd be an idiot to walk away from.*
 
-*It's a Restaurant.com card. Which is dog shit. Ten percent here, ten percent there, one use per transaction. He can blow the whole "two hundred" at one restaurant, sure — just not in one visit. The most he will ever actually see is ten percent off a check.*
+"I'll get there, I promise — couple more things you've earned first." I didn't slow down. "You gotta eat, so here's a hundred in dining at over two hundred restaurants on and off the Strip. And since I'm adding that Mandalay promo, I'm doubling it. Two hundred."
 
-"Oh, those cards suck, man," Nate said, and I pointed at him like he'd won a prize.
+*It's a Restaurant.com card. Dog shit. Ten percent here, ten percent there, one use per check. He can blow the whole "two hundred" anywhere he likes — just ten dollars at a time.*
 
-"Two show tickets, too — anything at the V or the Saxe theaters, twenty-three shows, changes by the date. With the Mandalay package I'll make it four."
+"Those cards are garbage, man," Nate said, and I pointed at him like he'd rung the bell.
 
-*The tickets are real. I can give up to six if I need them to drag you over the line. The timeshare companies hand us thousands of them, because the whole point is filling chairs at the travel show.*
+"Two show tickets — anything at the V or the Saxe, twenty-three shows. With the Mandalay package, I'll make it four."
 
-"And it wouldn't be Vegas without a little gambling, would it? Hundred dollars in free slot play, soon as you check in. You hit the big one, don't forget ol' Glen." *Fake laugh.*
+*Those are real. I'll go up to six if I need them to drag a man over the line. The timeshare companies hand them to us by the thousand, because the entire point is a warm body in a chair at the travel show.*
 
-*Now watch me move right past that, fast, because the slot play is the single most worthless thing in the bag and the one I least want questions about. It runs on one promotional machine at Binion's downtown. You can't put real money in it — there's a disclaimer right on the glass, promotional play only. And you can only cash out if you hit the jackpot. In six years I never met a soul who hit it. I've heard of people grinding that thing for hours, running the number into the thousands, then walking away with nothing because there's no other way off the ride. Word is it pays once every couple of years. Nobody's ever met the couple. If a customer presses me, I have to start telling the truth in pieces, and that bleeds sales — so depending on the mark and their tone, I'll skip it entirely on the call and "surprise" them with it during verification, after the card's already run.*
+The trainee set a fresh beer at my elbow without being asked — four shifts in, already learning the rhythm of the room. I didn't look up.
 
-"But what I think you'll really love, frequent traveler like you — travel credit. Five hundred for this promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels worldwide."
+"And it wouldn't be Vegas without a little gambling — hundred in free slot play, soon as you check in. You hit the big one, don't forget ol' Glen." *Fake laugh. Then I move right past it, fast.*
 
-*The travel credit's real. It also comes with blackout dates, no holidays, almost no weekends. It's a discount card, so the most you get off is sixty percent, and it's all "based on availability." So: real, and good luck.*
+*Because the slot play is the single most worthless thing in the bag, and the one I least want questions about. It runs on one promotional machine at Binion's, downtown. You can't feed it real money — there's a disclaimer right on the glass, promotional play only — and you only cash out if you hit the jackpot. In six years I never met a soul who did. People grind that thing for hours, run the number into the thousands, walk away with nothing, because there's no other way off the ride. Word is it pays once every couple of years. Nobody's ever met the couple. Press me on it and I'd have to start telling the truth in pieces — so I don't bring it up at all. I let him "find" it during verification, after the card's already run.*
 
-"Oh, brother," Nate said, shaking his head. "This is fucked up."
+"But the one I think you'll really love, frequent traveler like you — travel credit. Five hundred for the promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels worldwide."
 
-"Now — I know what you've been asking since the jump. What's all this gonna cost me."
+*Real. Also a discount card: blackout dates, no holidays, almost no weekends, sixty percent off at the very most, all "based on availability." Real, and good luck.*
 
-"Which I asked you twenty minutes ago," Nate said.
+Nate sat back, and for the first time all night he wasn't grinning. "This is fucked up." A beat. "Keep going."
 
-"You did, and now I've got a real answer, because now I've built the whole package. Four days, three nights, two hundred in dining, four show tickets, a thousand in travel credit — your price today, and only today, is three hundred and ninety-nine dollars. Not per person. Not per night. The whole thing. And if you give me your commitment right now, on this call, I'll add a bonus vacation, good two years after you leave Vegas — eight days, seven nights at any RCI resort on the planet, two-bedroom suite. Doesn't cover airfare, and you'll owe the taxes on the room — even I can't get you out from under Uncle Sam — but everything else is covered. Fair?"
+*And that's the whole thing, right there — the part nobody believes until they've watched it happen a thousand times. He knows. He's known since the first ring exactly what I am. And he still said keep going. Knowing doesn't save you. The con was never built on what a man knows; it runs on what he wants.*
 
-*See what I did with the taxes there? That's me being honest. Generous, even. I just looked you in the eye and admitted this thing isn't completely free — that there's a catch, that you'll owe Uncle Sam his cut no matter what. And a man who'll cop to the small ugly truth has to be straight with you on everything else, right? That's the whole play. One honest little disclosure buys cover for all the rest.*
+"Now — that thing you've been asking me since the jump. What it costs."
 
-*What I left out about your "free" eight-day RCI getaway: it's the same trap as the first one, just wearing a different logo. To collect it you sit through another sixty-to-ninety-minute timeshare pitch — RCI's this time — and the dates are blacked out from here to the horizon. You can have that two-bedroom suite anywhere in the world, technically, long as it's a week nobody else on the planet wants to be there. A ski resort in mud season. The beach two days before the hurricane. Free, the exact same way everything else on this call is free.*
+"Which I asked twenty minutes ago," Nate said.
 
-"No," Nate said with a laugh.
+"You did. And now I can finally answer, because now you know what it is." I let it sit a beat. "Four days, three nights, two hundred in dining, four show tickets, a thousand in travel — all of it, today only, not per person, not per night. Three hundred and ninety-nine dollars."
 
-"What's holding you back, Nate? You already told me you're coming to Vegas. You've gotta eat — covered. You like shows — covered, two of your three nights. A thousand in travel credit and a week anywhere in the world. You can't get three nights on the Strip for three ninety-nine to begin with, let alone with all of it stacked on top. Can you?"
+I watched the number land on him. Even Nate — even a man who'd just sat there and watched me build the thing board by board — ran the math for half a second before he caught himself. Three-ninety-nine for a week on the Strip. That half-second is the whole job.
+
+"And if you commit right now, on this call, I'll throw in a bonus — eight days, seven nights, any RCI resort on the planet, two-bedroom suite. Doesn't cover your airfare, and you'll owe the taxes on the room. Even I can't get you out from under Uncle Sam. But everything else is on us. Fair?"
+
+*See what I did with the taxes? That's me being honest — generous, even. I just looked a man dead in the eye and admitted this thing isn't completely free, that there's a catch, that Uncle Sam gets his cut no matter what. And a man who'll cop to the small ugly truth has to be straight on all the rest. That's the play. One honest little disclosure buys cover for every omission in the call.*
+
+*What I left out about the "free" eight-day RCI getaway: it's the same trap as the first, just wearing a different logo. To collect it, he sits through another ninety-minute pitch — RCI's, this time — and the calendar's blacked out from here to the horizon. He can have that suite anywhere in the world, technically, long as it's a week nobody else on the planet wants to be there. A ski resort in mud season. The beach two days before the hurricane. Free, the exact same way everything else on this call is free.*
+
+"No," Nate said, laughing.
+
+"What's holding you back, Nate? You told me you're coming back to Vegas. You gotta eat — covered. You like a show — covered, two of your three nights. A thousand in travel and a week anywhere in the world. You can't get three nights on the Strip for three-ninety-nine to begin with, let alone with all this stacked on top. Can you?"
 
 "…No."
 
-*And there it is. From here, I never hang up. I'll throw in more show tickets. A cruise. Airfare for two that's real and buried under blackout dates and hoops. I've got a drawer full of "bonuses." I will, very patiently, very warmly, guilt you into your own wallet. I'll even make you put your wife on the phone and repitch the whole thing. So let's save us both the time. Visa, MasterCard, Discover, or American Express?*
+*And there it is. From here, I never hang up. More show tickets. A cruise. Airfare for two that's real and buried under a hundred blackout dates and hoops. I've got a drawer full of "bonuses" and all the patience in the world, and I will, very warmly, guilt a man into his own wallet. I'll put his wife on the phone and run the whole thing again for her. By now most people aren't even fighting me — they're just hunting for a way to say yes that won't make them feel stupid. So I hand them one. Visa, MasterCard, Discover, or American Express?*
 
-"How do I know this isn't a scam?" Nate asked — and now he was the one running it.
+Nate laid both hands flat on the bar, the way he did when somebody at his rail had had enough. "All right — how do I know this isn't a scam?"
 
-"Great question. We have to *earn* the right to take these cards — merchant accounts. Your card company will never let you pay for services you don't receive. We don't deliver what we promised, you call that 800 number on the back, you cancel, and we lose our merchant account for selling fake packages. We wouldn't last a month. The fact that we can take American Express should tell you something about who you're dealing with."
+And just like that, he was the one running it on me. Best question in the call. And I had the best answer.
 
-*All true. And here's how we make sure he can't pull that 800-number thread later. First of all, by the time they figure out that most their gifts are shit, they've already sat through the travel presentation and checked into their hotel, which they booked with our booking agents. Plus, the second his card clears, I put him on a sixty-second recording and run him through about ten fast yes-or-no questions. "You understand this is promotional in nature, that all gifts are promotional, that this is not a prize you've won but a deeply discounted vacation package — yes?" And the big one, the one that gets the most pushback in the entire call: "You and your spouse agree to attend a sixty-to-ninety-minute travel presentation while in Las Vegas — yes?" Set that up wrong before you hit record and nine out of ten of them buck right there at the finish line. Set it up right, and they say yes to the very cage they spent the whole call trying not to walk into.*
+"Because we take credit cards, Nate. Real ones — Visa, Amex, the works. You don't earn a merchant account selling people nothing. Your card company will never let you pay for a service you don't receive — we don't deliver, you call that 800 number on the back, you cancel, and we lose the account for selling fake packages. We wouldn't last a month. The fact that I can run your American Express right now should tell you everything about who you're dealing with."
+
+*All true. And here's how I make sure he never pulls that 800-number thread. By the time he works out most of the gifts are shit, he's already sat through the presentation and checked into the hotel — which he booked through our agents. And the second his card clears, I put him on a sixty-second recording and walk him through ten fast yes-or-no questions, friendly, half-bored. "You understand this is promotional in nature, that the gifts are promotional, that this isn't a prize you've won but a deeply discounted vacation package — yes?" And the big one, the one that gets the most pushback in the entire call, the one I bury in the middle where it's just another yes: "You and your spouse agree to attend a ninety-minute travel presentation while in Las Vegas — yes?" Set that up wrong before you hit record, and nine out of ten buck right at the finish line. Set it up right, and they say it out loud, into a recording — yes — to the exact cage they spent the whole call trying not to walk into.*
 
 ---
 
