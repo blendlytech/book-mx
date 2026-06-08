@@ -54,9 +54,9 @@ His pretend phone rang — I picked the ringtone, *It's Raining Men*, in my high
 
 "Okay," he said, suspicious already, exactly right.
 
-*One minute and thirty-six seconds. Nobody on God's earth schedules ninety-six seconds. But a number that specific sounds like a man reading off a real form, and sounding real was ninety percent of the job. "About a minute" is a salesman. "A minute and thirty-six seconds" is your accountant.*
+*One minute and thirty-six seconds. Nobody on God's earth schedules ninety-six seconds. But a number that specific sounds like a man reading off a real form, and sounding real was ninety percent of the job. "About a minute" is a salesman. "A minute and thirty-six seconds" is your accountant.*  The entire call is actually going to take 20-30 minutes, but after a minute and thirty-six seconds, I'll have shoved so much ether up his ass he won't even remember the number.  The exact wording doesn't matter nearly as much as the fact that you're saying words with no meaning.  *It's called pacing.* *When you take a step back and look at it, you realize that a good portion of this entire con is simply the art of wasting enough of the mark's time and energy that he doesn't have the faculties left to notice you're actually picking his pocket.*
 
-"When you travel, Nate, is it just you, or you and a spouse?"
+"When you travel, Nate, is it just you, or you and a spouse?"  
 
 "Me and my wife."
 
@@ -72,9 +72,9 @@ Nate broke. "Sneaky little shit."
 
 "It's for your own good, Nate." I winked. "Stay in character."
 
-*Watch what I just did. I never lied. "They" don't give me that information — true. It's tucked away somewhere for his protection — also true. I never once said the floor manager had it either. I just built a door, set it right next to him, and let him decide whether to walk through. And on the other side of that door is a closer. Like me. Either way the sausage gets made; he just gets to pick the chef.*
+*Watch what I just did. I never lied. "They" don't give me that information — true. That's becasue nobody in this building has it. It's tucked away somewhere for his protection — also true, somewhere. I never once said the floor manager had it either. I just built a door, set it right next to him, and let him decide whether to walk through. And on the other side of that door is a closer. Like me. Either way the sausage gets made; he just gets to pick the chef.  Right now, he's dealing with the sous chef.  He hasn't said "no" yet, he hasn't said, "let me talk to my wife" he's not even sure he's been screwed with.  He's just kind of amused.  But, the sooner I can get him over to a closer, the sooner I can move on to the next mark and start the process over.
 
-Nate, wheels turning, decided to push the door. "Do you want me to transfer you to a floor manager?"
+Nate, wheels turning, deciding whether or not to push the door."Do I want to be transfered to your manager?"
 
 "Up to you, Nate. Put yourself in a real traveler's shoes, first time getting this call."
 
@@ -122,7 +122,7 @@ He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
 *Most never will. Better than seven in ten of these packages expire in a drawer, unused — some of these "frequent travelers" already have three or four they never touched and buy another one anyway — which means the owner never has to pay for the room. We're selling the same empty bed over and over to people too busy or too embarrassed to ever come claim it.*
 
-*And I took New Year's away from him on purpose. The takeaway again, and everybody who's ever priced a room in this town on New Year's nods along like I just did them a favor. It's true there are no blackout dates. What there is, is an upcharge. You want the dates you actually want, you pay for them when you call to book — sometimes a grand on top. We will always, gently, steer you toward the room you can "afford," which is a Tuesday in August in the basement of Circus Circus, AC struggling, a hundred and four outside. Thirty days' notice saves you nothing but a little of the gouging.*
+*And I took New Year's away from him on purpose. The takeaway again, and everybody who's ever priced a room or been in this town on New Year's Eve nods along like I just did them a favor. It's true there are no blackout dates. What there is, is an upcharge. You want the dates you actually want, you pay for them when you call to book — sometimes a grand on top. We will always, gently, steer you toward the room you can "afford," which is a Tuesday in August in the basement of Circus Circus, AC struggling, a hundred and four outside. Thirty days' notice saves you nothing but a little of the gouging.*
 
 "Okay," Nate cut in, "what's this gonna run me?"
 
@@ -142,11 +142,11 @@ He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
 "And it wouldn't be Vegas without a little gambling, would it? Hundred dollars in free slot play, soon as you check in. You hit the big one, don't forget ol' Glen." *Fake laugh.*
 
-*Now watch me move right past that, fast, because the slot play is the single most worthless thing in the bag and the one I least want questions about. It runs on one promotional machine at Binion's downtown. You can't put real money in it — there's a disclaimer right on the glass, promotional play only. And you can only cash out if you hit the jackpot. In six years I never met a soul who hit it. I've heard of people grinding that thing for hours, running the number into the thousands, then walking away with nothing because there's no other way off the ride. Word is it pays once every couple of years. Nobody's ever met the couple. If a customer presses me, I have to start telling the truth in pieces, and that bleeds sales — so depending on the man and his tone, I'll skip it entirely on the call and "surprise" him with it during verification, after the card's already run.*
+*Now watch me move right past that, fast, because the slot play is the single most worthless thing in the bag and the one I least want questions about. It runs on one promotional machine at Binion's downtown. You can't put real money in it — there's a disclaimer right on the glass, promotional play only. And you can only cash out if you hit the jackpot. In six years I never met a soul who hit it. I've heard of people grinding that thing for hours, running the number into the thousands, then walking away with nothing because there's no other way off the ride. Word is it pays once every couple of years. Nobody's ever met the couple. If a customer presses me, I have to start telling the truth in pieces, and that bleeds sales — so depending on the mark and their tone, I'll skip it entirely on the call and "surprise" them with it during verification, after the card's already run.*
 
-"But what I think you'll really love, frequent traveler like you — travel credit. Five hundred for this promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels worldwide, up to sixty percent off."
+"But what I think you'll really love, frequent traveler like you — travel credit. Five hundred for this promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels worldwide"
 
-*The travel credit's real. It also comes with blackout dates, no holidays, almost no weekends, and it's all "based on availability." So: real, and good luck.*
+*The travel credit's real. It also comes with blackout dates, no holidays, almost no weekends.  It's a discount card, so the most you get off is 60% and it's all "based on availability." So: real, and good luck.*
 
 "Oh, brother," Nate said, shaking his head. "This is fucked up."
 
@@ -162,7 +162,7 @@ He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
 "No," Nate said with a laugh
 
-"What's holding you back? You already told me you're coming to Vegas. You've gotta eat — covered. You like shows — covered, two of your three nights. A thousand in travel credit and a week anywhere in the world. You can't get three nights on the Strip for three ninety-nine to begin with, let alone with all of it stacked on top. Can you?"
+"What's holding you back Nate? You already told me you're coming to Vegas. You've gotta eat — covered. You like shows — covered, two of your three nights. A thousand in travel credit and a week anywhere in the world. You can't get three nights on the Strip for three ninety-nine to begin with, let alone with all of it stacked on top. Can you?"
 
 "…No."
 
@@ -172,7 +172,7 @@ He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
 
 "Great question. We have to *earn* the right to take these cards — merchant accounts. Your card company will never let you pay for services you don't receive. We don't deliver what we promised, you call that 800 number on the back, you cancel, and we lose our merchant account for selling fake packages. We wouldn't last a month. The fact that we can take American Express should tell you something about who you're dealing with."
 
-*All true. And here's how we make sure he can't pull that 800-number thread later. The second his card clears, I put him on a sixty-second recording and run him through about ten fast yes-or-no questions. "You understand this is promotional in nature, that all gifts are promotional, that this is not a prize you've won but a deeply discounted vacation package — yes?" And the big one, the one that gets the most pushback in the entire call: "You and your spouse agree to attend a sixty-to-ninety-minute travel presentation while in Las Vegas — yes?" Set that up wrong before you hit record and nine out of ten of them buck right there at the finish line. Set it up right, and they say yes to the very cage they spent the whole call trying not to walk into.*
+*All true. And here's how we make sure he can't pull that 800-number thread later.  First of all, by the time they figure out that most their gifts are shit, they've already sat through the travel presentation and checked into their hotel, which they booked with our booking agents. Plus, the second his card clears, I put him on a sixty-second recording and run him through about ten fast yes-or-no questions. "You understand this is promotional in nature, that all gifts are promotional, that this is not a prize you've won but a deeply discounted vacation package — yes?" And the big one, the one that gets the most pushback in the entire call: "You and your spouse agree to attend a sixty-to-ninety-minute travel presentation while in Las Vegas — yes?" Set that up wrong before you hit record and nine out of ten of them buck right there at the finish line. Set it up right, and they say yes to the very cage they spent the whole call trying not to walk into.*
 
 ---
 

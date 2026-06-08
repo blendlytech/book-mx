@@ -96,7 +96,7 @@ I had one job — disappear — and instead I had to be right. When you're drunk
 
 Next thing I knew — you guessed it — the cops were there, and I was face down on the hardwood, tasting the dirt she never found the time to sweep up between Netflix binges.
 
-The booking was the same as always. We'd started early, all of us meeting up around one, so by eight that night I was out of ammo and hammered. One day before my plane and I'd torched it. The cop who hauled me in was the same one who always showed up — the same one I'd find out later, from a friend, she'd been fucking the whole time. Fitting. He threw me in the back of that squad car that reeked of Joop cologne, same old charge, domestic battery. She'd wrung her wrists again to sell the story that I'd grabbed her, which I didn't, never have, and never would, no matter how drunk I got.
+The booking was the same as always. We'd started early, all of us meeting up around one, so by eight that night I was out of ammo and hammered. One day before my plane and I'd torched it. The cop who hauled me in was the same one who always showed up — the same one I'd find out later, from a friend, she'd been fucking the whole time. Fitting. He threw me in the back of that squad car that reeked of Hugo Boss cologne, same old charge, domestic battery. She'd wrung her wrists again to sell the story that I'd grabbed her, which I didn't, never have, and never would, no matter how drunk I got.
 
 I was a mouthy bastard who couldn't sit still in peace, but violence was never in me. She was just good at working the cops, especially the one in her bed. And that's what marched me in front of the judge who, for reasons I still don't understand, blew the lid off the escape hatch I thought I'd welded shut for good the night before.
 
@@ -142,15 +142,15 @@ A lie. But she isn't expecting me back until Monday at the earliest, maybe not f
 
 She stands by the front door now, smirking, shaking her head. I can already picture her locking it behind her and doing her worst with the few things I need most, knowing this is her last shot at ruining me. She steps inside. The door shuts. I hear the deadbolt click.
 
-The blood drains back down into my newly acquired moccasins and the color leaves my face. Nothing to do but wait.
+The blood drains back down into my new moccasins.
 
 Twenty minutes become an hour. I know because I ask a neighbor walking up for the time: quarter to six. Over an hour past when the cops were due. No sign of Alisha for a solid forty minutes.
 
-Then the door opens. And there she is — fully dolled up now, miniskirt, low-cut top showing off the double-D delights, high heels.
+Then the door opens. And there she is — fully dolled up now, miniskirt, low-cut top, high heels.
 
-Behind her is whatever she's decided I'm allowed to keep: three medium packing boxes, a suitcase, a bookbag. But I'm not looking at any of that. I'm looking at the orange Nike shoebox sitting on the counter behind it all.
+Behind her is whatever she's decided I'm allowed to keep: three medium packing boxes, a suitcase, a backpack. But I'm not looking at any of that. I'm looking at the orange Nike shoebox sitting on the counter behind it all.
 
-What is in that shoebox. The packing boxes are clothes, I know that. The suitcase too. The bookbag is my laptop and cables — I'm not worried about those, she's never destroyed my laptop, she'd pawn that first. But that shoebox. What could possibly be in it except my wallet and phone? Toiletries? No, she'd keep those. I don't collect souvenirs. No jewelry, no trinkets.
+What is in that shoebox. The packing boxes are clothes, I know that. The suitcase too. The backpack is my laptop and cables — I'm not worried about those, she's never destroyed my laptop, she'd pawn that first. But that shoebox. What could possibly be in it except my wallet and phone? Toiletries? No, she'd keep those. I don't collect souvenirs. No jewelry, no trinkets.
 
 I'm a minimalist. I get twitchy when my whole life won't fit in a suitcase and a carry-on. Those three boxes make me sick. We could burn them and I wouldn't blink. All I want on this earth is to open that goddamn shoebox.
 
