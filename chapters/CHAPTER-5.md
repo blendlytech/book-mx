@@ -118,13 +118,13 @@ So now I really might be finished. Three more days of work gone, maybe four, and
 
 Monday and Tuesday were the two longest days of my life — and I'll let you sit with that one, given the calendar. The longest days of the year, the sun nailed to the sky and refusing to go down over the whole state, and I was spending them in a box where you couldn't tell and it wouldn't have changed a thing. A two-man cell. And my cellmate — I'm not going to dress this up, because dressing it up would be a lie. He was a serial masturbator. Five months in, and by every other measure a completely normal guy — we'd talk, he made sense, he was pleasant enough — right up until he'd roll onto his side with no warning and no shame, fish himself out, and go to work, and it did not matter to him in the slightest whether I was three feet away watching or not. That was the company. That was who the State of Alaska sat me across from for the longest two days I'd ever lived. It is too stupid to invent. But that was the exact texture of my life — wall to wall with this kind of insane shit, and me the one common denominator in every room it ever happened in.
 
-Wednesday the judge had the owner on the phone, live. The owner would be in town Saturday to come let me into the house. *Saturday.* I lost it, as much as you can lose it at a face on a screen — that's unacceptable, my whole life is in that house, I need the laptop, I need to work, there is no version of this where I sit here until Saturday. Didn't move her an inch. And then she did me one better: a protective order. I was not to go anywhere near the property without a police escort. Barred by force of law from the home I was still paying for.
+Wednesday the judge had the owner on the phone, live. The owner would be in town Saturday to come let me into the house. *Saturday.* I lost it, as much as you can lose it at a face on a screen — that's unacceptable, my whole life is in that house, I need the laptop, I need to work, there is no version of this where I sit here until Saturday. Didn't move her an inch. And then she did me one better: a protective order. I was not to go anywhere near the property without a police escort. Barred by force of law from the home I was still paying for.  Sound familar...again?
 
 *Fuck my life. Again.*
 
 I'd be released the next morning, they told me, or the afternoon. And I lay there and thought: released to *what?* No money. No debit card — that one was already out in the wild, bleeding down to zero. No ID, and no way on earth to replace an ID with no ID, that perfect little snake of a loop. No way to so much as prove who I was long enough to climb into the forty-dollar Japanese pod I had already paid for — a full week of it now, paid up front, every night of it spent in a cell instead. The one roof I had left in the world, and I couldn't get under it. Meantime I had free room and board, courtesy of Alaska's finest establishment. The jail, at least, never once asked me for ID.
 
-After my cellmate finished his business, I asked him the only practical question I had left: what time do they cut a man loose around here? All jails run different, he said — could be as early as two in the morning. And I lay there and prayed it wouldn't be. Two a.m. in Alaska is cold as death even in June, and I owned, at that point, a torn-up t-shirt and a pair of filthy shorts and nothing else. I was hoping with everything I had for a mid-afternoon checkout, someplace warm to walk out into. But there's no front desk in a place like that. Nobody to call. No request you get to put in. You go when the door says you go.
+After my cellmate finished his business, I asked him the only practical question I had left: what time do they cut a man loose around here? All depends, hes said.. could be as early as two in the morning. And I lay there and prayed it wouldn't be. Two a.m. in Alaska is cold as death even in June, and I owned, at that point, a torn-up t-shirt and a pair of filthy shorts and nothing else. I was hoping with everything I had for a mid-afternoon checkout, someplace warm to walk out into. But there's no front desk in a place like that. Nobody to call. No request you get to put in. You go when the door says you go.
 
 I drifted off at last, my celly — full of cum and bad news in equal measure — squeezing in one final go before lights out. And then the cell door cracked open like a gunshot, and a voice said:
 
@@ -132,6 +132,6 @@ I drifted off at last, my celly — full of cum and bad news in equal measure �
 
 I lay there a second in the dark.
 
-I didn't know where that was anymore.
+I had no home.
 
 It was two in the morning.
