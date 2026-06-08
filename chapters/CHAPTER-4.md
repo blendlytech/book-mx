@@ -9,6 +9,7 @@
 >   - **Clay**: The narrator, freshly fled from Vegas, broke-ish, hungover, telling himself this is a fresh start.
 >   - **Steven**: Clay's old friend from his FedEx home-delivery days fifteen years back; a wild, charming, country-boy MMA fighter from Oregon who drives up from Kenai to collect him.
 >   - **Alisha**: The Vegas ex, reaching across the country one last time to torch Clay's job.
+>   - **Manny**: A solar-company co-owner, Vegas-bred himself, who hires Clay over a video call and never asks why he left Nevada — the human face of the racket that followed Clay north.
 > - **Key Plots & Conflicts**:
 >   - **The Return to the Scene**: Clay flies back into the one place that already took something from him he can't get back.
 >   - **The Erased Job**: The remote gig Clay banked on carrying north dies over the weekend — Alisha has emailed his employer from his own account, outing his arrest and his Ohio warrant.
@@ -69,10 +70,10 @@ Time to find work. And I found it fast — faster than a man in my shape had any
 
 Mini-vacation. The exact words. The whole Vegas racket I'd just burned to the ground and fled, advertised back to me in a job posting at the top of the world, like the machine had followed me north and was politely holding the door. A hundred dollars an appointment set on a credit pass, plus commission off the backend, paid daily. *Paid daily.* I read it twice. Same animal, prettier coat, two thousand miles from the desert I thought I'd left it in.
 
-I applied that night. Had an interview the next day. I was on the phones by Wednesday.
+I applied that night. Next day I was on a video call with one of the owners — a guy named Manny, Vegas-bred to the bone, I could hear the desert on him inside of ten seconds. It wasn't an interview so much as two men from the same racket recognizing each other across two thousand miles of nothing. He never once asked why I'd left Nevada. Men like Manny never do; the not-asking is the whole job description. He liked what he heard, told me to come on in, and I was on the phones by Wednesday.
 
 I told myself it was just money. Just a paycheck to keep the lights on while I figured out the rest. I'd been the best closer in a room full of closers; setting appointments in Anchorage was beneath me, but it was easy, and easy was exactly what I needed.
 
 What I didn't tell myself — what never once crossed my mind — was that I was walking back onto a sales floor the way I'd walked onto every floor for six years: dead certain I was the most dangerous man in the building. I knew every opener and every takeaway, every soft spot in a pitch where a person's wanting gets out ahead of their good sense, because I'd spent my whole life living in those soft spots and getting fat there. When you've run every move there is, you stop being moveable. Nobody can work you, because you've seen the wire from both ends and there's nothing left on it that can surprise you. A closer doesn't get closed. That was the one article of faith I never thought to question.
 
-And then somebody reached me anyway — not with a pitch, not with one single thing she had to fake. The most unmovable man on the floor was about to fall, harder and more honestly than he ever had for anyone, for a woman who meant every word of it and looked at me like no one ever had. I'd built a whole life out of never being moved. I had no idea I was about to be moved all the way to Mexico.
+And then somebody reached me anyway. Not from across the floor — through it. She came down the same wire I thought I owned, a voice on a transferred call, and she wasn't pitching me and she wasn't faking one single word of it. The most unmovable man in the building was about to go down harder, and more honestly, than he ever had for anybody — over a woman he wouldn't so much as lay eyes on for three years. I'd built a whole life out of never being moved. I had no idea I was about to be moved all the way to Mexico.
