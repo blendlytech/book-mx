@@ -92,7 +92,7 @@ She looked at it and said: oh — we can't take temporary IDs. It has to be an o
 
 Sorry my ass.
 
-That same paper had been sitting on that same counter the round before. Maybe she hadn't gotten far enough into it last time to ask — the confirmation number had killed it before we got here — but it had been *right there*, faceup, in plain sight. "You couldn't have told me that the last time I was standing right here?" I said. I was coming apart now, I could feel it climbing my throat, and I clamped down on it and kept my voice level, because I'd already learned that morning that the volume never helps. The wall doesn't hear you better if you yell.
+That same paper had been sitting on that same counter the round before. Maybe she hadn't gotten far enough into it last time to ask — the confirmation number had killed it before we got here — but it had been *right there*, faceup, in plain sight. You couldn't have told me that the last time I was standing right here? I said. I was coming apart now, I could feel it climbing my throat, and I clamped down on it and kept my voice level, because I'd already learned that morning that the volume never helps. The wall doesn't hear you better if you yell.
 
 I'm sorry, sir. There's nothing I can do.
 
