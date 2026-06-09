@@ -20,7 +20,7 @@
 
 ---
 
-Chapter 7 opens with me standing in a library, in front of an elderly woman at a desk who guards, like it's the last clean water in the city, the rights to a bank of twenty-some desktop computers the public is allowed to touch.
+I'm standing in a library, in front of an elderly woman at a desk who guards, like it's the last clean water in the city, the rights to a bank of twenty-some desktop computers the public is allowed to touch.
 
 About four of them sat open. The rest were filled, and I took the room in the way you take in any room you walk into broke and desperate — fast, and looking for the angle. Most of the chairs held men who looked the way I looked, or close to it: down to their last good idea, wearing the week on their clothes. A couple of elderly folks pecked away one finger at a time, leaning into the screen like it might whisper back. Nobody talked. It wasn't the polite hush of a library, that *shh* you grew up under. It was the silence of a waiting room where everybody's there for a different bad reason and nobody's fool enough to ask. A whole row of people the city had quietly stopped keeping a seat for, clinging to the one free thing it still handed out, and not one of them making a sound about it. After years of Vegas floors — bells, transfers, money getting made out loud — the quiet of that place landed on me like weather.
 
