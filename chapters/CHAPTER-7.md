@@ -24,7 +24,7 @@ I'm standing in a library, in front of an elderly woman at a desk who guards, li
 
 About four of them sat open. The rest were filled, and I took the room in the way you take in any room you walk into broke and desperate — fast, and looking for the angle. Most of the chairs held men who looked the way I looked, or close to it: down to their last good idea, wearing the week on their clothes. A couple of elderly folks pecked away one finger at a time, leaning into the screen like it might whisper back. Nobody talked. It wasn't the polite hush of a library, that *shh* you grew up under. It was the silence of a waiting room where everybody's there for a different bad reason and nobody's fool enough to ask. A whole row of people the city had quietly stopped keeping a seat for, clinging to the one free thing it still handed out, and not one of them making a sound about it. After years of Vegas floors — bells, transfers, money getting made out loud — the quiet of that place landed on me like weather.
 
-Funny thing is, she never even asked me for an ID. Never asked. All that — the eleven miles, the napkin maps, the DMV, a woman folding a twenty into my paperwork so the State of Alaska would agree in writing that I was a person — and the librarian didn't want to see a lick of it. Just let me know there was a 45-minute limit. I already knew 45 wasn't going to be near enough. I also knew there was nothing to do about it standing there, so I filed it with everything else and sat down.
+Funny thing is, she never even asked me for an ID. Never asked. All that — the napkin maps, the DMV, a woman folding a twenty into my paperwork so the State of Alaska would agree in writing that I was a person — and the librarian didn't want to see a lick of it. Just let me know there was a 45-minute limit. I already knew 45 wasn't going to be near enough. I also knew there was nothing to do about it standing there, so I filed it with everything else and sat down.
 
 First task: check my bank account. See how much of me was left out there in some stranger's pocket. No dice. The bank wanted to text a code to the phone I no longer owned. Of course it did. Fuck. That would have to wait — and anyway the damage was long done by now. Four days is a lifetime with a man's debit card. I wasn't going to claw any of it back from a library chair. I let it go.
 
@@ -34,7 +34,7 @@ And then, through some genuine back-alley miracle, I got in. Facebook, for reaso
 
 I fired off a message to the only person I had left to fire it to: the oldest of my three sisters, Niki.
 
-Niki was always the one. The one who showed up. Out of everybody I came up with, she's the only one who was really *there* for any of it — at my games, in the stands, recording the whole thing on a VHS camcorder so I could come home and watch exactly how bad I was. I wasn't bad. I just also wasn't filling those bleachers with scouts. Didn't matter to Niki. She taped it like it was the state final every time.
+Niki was always the one. The one who showed up. Out of everybody I came up with, she's the only one who was really *there* for any of it — at my games, in the stands, recording the whole thing on a VHS camcorder so I could come home and watch exactly how bad I was. I wasn't bad. I was average but definitely not filling those bleachers with scouts. Didn't matter to Niki. She taped it like it was the state final every time.
 
 So she was the first call. She'd always been the first call — for a loan, for a ride, for the kind of trouble you can only confess to one person. Over the years that number got rung more than a handful of times, and almost every time, if she had it, Niki came through.
 
@@ -62,7 +62,7 @@ I walked out of that library lighter than I'd walked into it, and of course — 
 
 Western Union lives at the customer-service counter, which means it shares a window with every other small catastrophe in the store. And in front of me is a man trying to return a lamp. No receipt. The lamp is snapped clean in two — broken right where the socket you screw the bulb into meets the pole, just *gone*, hanging by a wire — and this man is not giving up. Not a chance. He's going to win this. The clerk has to go find her manager. I'm standing there soaked, with five hundred dollars and the rest of my life thirty feet away behind a register, watching a grown man litigate a corpse of a lamp, and it eats up another thirty minutes I'll never see again.
 
-Finally. The counter. I give them my name and Niki's name and lay my paper ID faceup, right next to the broken lamp the man before me had abandoned, along with the outcome he'd hoped for — exactly what she'd told me I'd need. And the clerk says, oh, no — we need a confirmation number, or some such thing.
+Finally. The counter. I give them my name and Niki's name and lay my paper ID faceup, right next to the broken lamp the man before me had abandoned, along with the outcome he'd hoped for — I had exactly what Niki told me I'd need. And the clerk says, oh, no — we need a confirmation number, or some such thing.
 
 Fuck my life.
 

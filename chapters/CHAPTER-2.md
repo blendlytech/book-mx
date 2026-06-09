@@ -36,11 +36,11 @@ To understand why a man would be terrified of good news, you have to back up a f
 
 ---
 
-It was late June 2021. COVID was technically behind us, though some corners of the country were still talking about it like it wasn't. I was leaving a mutually abusive relationship in Las Vegas. Escaping is the better word. The kind of relationship that lands a man in jail over and over — not for laying a hand on anyone, but over hurt feelings and the ugly things we screamed at each other. I was done. Done with the manipulation, the mistreatment, all of it, and when I drank it came pouring out — never in a healthy way. It came out in a way that let Alisha wring her own wrists raw before the cops arrived and turn a shouting match into a violent attack that never happened and never would.
+It was mid-June 2021. COVID was technically behind us, though some corners of the country were still talking about it like it wasn't. I was leaving a mutually abusive relationship in Las Vegas. Escaping is the better word. The kind of relationship that lands a man in jail over and over — not for laying a hand on anyone, but over hurt feelings and the ugly things we screamed at each other. I was done. Done with the manipulation, the mistreatment, all of it, and when I drank it came pouring out — never in a healthy way. It came out in a way that let Alisha wring her own wrists raw before the cops arrived and turn a shouting match into a violent attack that never happened and never would.
 
 She was, by her own admission and the general consensus of everyone who knew her, not a well woman. Now try defending yourself against her as a belligerent drunk who also loves telling the cops exactly what he thinks of them the second they walk through his door.
 
-The night that put me in front of this generous judge was no different. Arrest number four in six months, every one of them during a drunken rant. This last one was the stupidest of all, because I'd already bought a one-way ticket to Anchorage to get away from her. I believed in geographic cures. I'd run plenty of them in my life — a deeply held delusion that crossing a state line could leave my problems on the other side of it. It's like thinking you can fix a blown head gasket by driving the car down a different highway.
+The night that put me in front of this generous judge was no different. Arrest number four in six months, every one of them during a drunken rant. This last one was the stupidest of all, because I'd already bought a one-way ticket to Anchorage to get away from her. I believed in geographic cures, the deeply held delusion that crossing a state line or an international border acts as a mystical car wash for the soul.  I'd run plenty of them in my life It's like thinking you can fix a blown head gasket by driving the car down a different highway.
 
 I had no plan for how I'd survive up there. No idea where I'd sleep once my two weeks in the Airbnb ran out. I just knew I had to get out while I still had the nerve.
 
@@ -82,7 +82,7 @@ One problem: I had one last night with the boys lined up for Thursday. One final
 
 I figured, what the hell. I'd stayed sober Tuesday and Wednesday. I could trust myself for one night. I didn't need to drink to have fun. I could control it. Which quickly became: I can drink, I just won't get out of control. I'll be responsible, I won't take her bait when I get home. It'd be fine.
 
-I had a plan. Drink, have fun, go straight home to bed. No overdoing it, nothing I'd regret.
+I had a plan. I had a floor manager once tell me, "Nobody solves a drinking problem with a drinking plan." But I had one. Drink, have fun, go straight home to bed. No overdoing it, nothing I'd regret.
 
 Yeah. Right.
 
@@ -96,7 +96,7 @@ I had one job — disappear — and instead I had to be right. When you're drunk
 
 Next thing I knew — you guessed it — the cops were there, and I was face down on the hardwood, tasting the dirt she never found the time to sweep up between Netflix binges.
 
-The booking was the same as always. We'd started early, all of us meeting up around one, so by eight that night I was out of ammo and hammered. One day before my plane and I'd torched it. The cop who hauled me in was the same one who always showed up — the same one I'd find out later, from a friend, she'd been fucking the whole time. Fitting. He threw me in the back of that squad car that reeked of Joop cologne, same old charge, domestic battery. She'd wrung her wrists again to sell the story that I'd grabbed her, which I didn't, never have, and never would, no matter how drunk I got.
+The booking was the same as always. The boys and I started early, I worked 6am-12pm to catch both east coast and west coast action. Then all of us meeting up around one, so by eight that night I was out of ammo and hammered. One day before my plane and I'd torched it. The cop who hauled me in was the same one who always showed up — the same one I'd find out later, from a friend, she'd been fucking the whole time. Fitting. He threw me in the back of that squad car that reeked of Joop cologne, same old charge, domestic battery. She'd wrung her wrists again to sell the story that I'd grabbed her, which I didn't, never have, and never would, no matter how drunk I got.
 
 I was a mouthy bastard who couldn't sit still in peace, but violence was never in me. She was just good at working the cops, especially the one in her bed. And that's what marched me in front of the judge who, for reasons I still don't understand, blew the lid off the escape hatch I thought I'd welded shut for good the night before.
 
@@ -118,7 +118,7 @@ One thing at a time. First, get across town.
 
 That part's easy. When the bus doors hiss open, I stand there looking as hopeless as a man can look in bright-orange jail moccasins. "Just got out of jail, no wallet — can you help me out?" The driver waves me on without blinking.
 
-Then it's forty minutes to picture every way this goes wrong, and really there's only one question that matters: did she leave me the ID and the money, or did she erase me? If the wallet's gone, I forfeit a non-refundable ticket to freedom, beg what little I can out of a family well that's nearly dry, and start over from nothing — assuming I even still have a job after ghosting them for a full day in my second week. That can't be it. No way that's it. If there's a God up there…
+Then it's forty minutes to picture every way this goes wrong, and really there's only one question that matters: did she leave me the ID and the money, or did she erase me? If the wallet's gone, I forfeit a non-refundable ticket to freedom, beg what little I can out of a family well that's nearly dry, and start over from nothing — assuming I even still have a job after ghosting them for a full day in my second week.  I'd just landed a remote gig with a big company for more money than I'd ever made selling worldwide vacations, not just Vegas. I had 5 reps all to myself and we killed it the first week. I had a new life dawning. That can't be it. No way that's it. If there's a God up there…
 
 I get off at my stop and lock eyes on a secondhand cell-phone shop across the street, a little mom-and-pop place. I beeline for the door. Never been inside, but if anybody's got a phone I can borrow it's them — and they do. After a quick sob story and a little pleading, the clerk hands me a cordless landline. I warn her the hold could run hours.
 
@@ -142,7 +142,7 @@ A lie. But she isn't expecting me back until Monday at the earliest, maybe not f
 
 She stands by the front door now, smirking, shaking her head. I can already picture her locking it behind her and doing her worst with the few things I need most, knowing this is her last shot at ruining me. She steps inside. The door shuts. I hear the deadbolt click.
 
-The blood drains back down into those orange moccasins.
+The blood drains back down into my new orange moccasins.
 
 Twenty minutes become an hour. I know because I ask a neighbor walking up for the time: quarter to eight. Over an hour past when the cops were due. No sign of Alisha for a solid forty minutes.
 
@@ -154,7 +154,7 @@ What is in that shoebox. The packing boxes are clothes, I know that. The suitcas
 
 I'm a minimalist. I get twitchy when my whole life won't fit in a suitcase and a carry-on. Those three boxes make me sick. We could burn them and I wouldn't blink. All I want on this earth is to open that goddamn shoebox.
 
-She carries the boxes out one at a time, slow and deliberate, setting each on the sidewalk with a little grin — like a goddamn psychopath turning the handover of my entire life into taking out the trash. The suitcase and backpack go beside them. Then, last, she sets the shoebox on top of the stack.
+She carries the boxes out one at a time, slow and deliberate, setting each on the sidewalk with a little grin — like some kind of psychopath turning the handover of my entire life into the mundane task of taking out the trash. The suitcase and backpack go beside them. Then, last, she sets the shoebox on top of the stack.
 
 She gives me one final look, a little wave goodbye, steps back inside, and I hear that deadbolt click one more time. No intention of being here when the cops show. That final click is the sound of a vault locking from the inside.
 

@@ -20,9 +20,9 @@ The Palms smelled the way it always smelled at nine on a Friday — somebody's c
 
 Nate slid a Stone IPA in front of me before my elbows hit the rail. Late fifties, twenty-six years behind a Vegas bar, eight of them right here, and not one thing left in this town could surprise him. My father taught me to tip a dollar a beer, minimum, and I'd carried that to church — tipped Nate hundreds on many nights I'd hit a royal-flush progressive. That's why the beer landed before I asked. That's why, on a Friday with a trainee on his fourth shift more or less running the well, Nate had time to lean on the bar across from me and shoot the shit. On my last night, I had him almost to myself.
 
-Five hours earlier I'd been in a cell. An hour earlier I'd watched Alisha stack three boxes of my life on the sidewalk like she was taking out the trash. Now my elbows were on the rail and the beer was already sweating in front of me, and anybody walking in cold would've seen a regular having a regular Friday. That's the same trick I sold for a living — looking like a man who has it handled. Tonight I ran it on Nate. Mostly I ran it on myself.
+Five hours earlier I'd been in a cell. An hour earlier I'd watched Alisha stack three boxes of my life on the sidewalk like it was trash day. Now my elbows were on the rail and the beer was already sweating in front of me, and anybody walking in cold would've seen a regular having a regular Friday. That's the same trick I sold for a living — looking like a man who has it handled. Tonight I ran it on Nate. Mostly I ran it on myself.
 
-He knew the broad strokes of my life the way a good bartender knows everybody's. He knew there were between two and five of us, every single day, and that at least one of us was holding down a stool at his bar most nights of the week. The crew is a whole other book — one I might write someday and might not. Tonight it was just me.
+He knew the broad strokes of my life the way a good bartender knows everybody's. He knew there were between one and five of us, every single day, and that at least one of us was holding down a stool at his bar most nights of the week. The crew is a whole other book — one I might write someday and might not. Tonight it was just me.
 
 What Nate didn't know — what he'd been trying to pry out of us for years — was exactly what we did for a living.
 
@@ -134,25 +134,25 @@ Nate snorted. Twenty-six years in this town; he knew exactly what that meant. "C
 
 *He leaned in. That's the tell. He isn't asking whether anymore — he's asking how much. So I don't answer. Never name the number first; it's the whole trick. The price doesn't change — it's three-ninety-nine, it was three-ninety-nine before I dialed — but say it now, before I've stacked the gifts to the ceiling, and it sounds like money. Say it last, after I've handed a man four days on the Strip and a week in a resort he hasn't paid for, and the same number sounds like a steal he'd be an idiot to walk away from.*
 
-"I'll get there, I promise — couple more things you've earned first." I didn't slow down. "You gotta eat, so here's a hundred in dining at over two hundred restaurants on and off the Strip. And since I'm adding that Mandalay promo, I'm doubling it. Two hundred."
+"I'll get there, I promise — couple more things you've earned first." I didn't slow down. "You gotta eat, so here's a hundred in dining at over two hundred restaurants on and off the Strip. And since I'm adding that Mandalay promo, I'm doubling it. Two hundred.  Use it all at the same restuarant, or spread it around.  Up to you."
 
-*It's a Restaurant.com card. Dog shit. Ten percent here, ten percent there, one use per check. He can blow the whole "two hundred" anywhere he likes — just ten dollars at a time.*
+*It's a Restaurant.com card. Dog shit. Ten percent here, ten percent there, one use per check. He can blow the whole "two hundred" at the same dining establishment — just 10% at a time.*
 
-"Those cards are garbage, man," Nate said, and I pointed at him like he'd rung the bell.
+"Those cards are garbage, man," Nate said, and I pointed at him like he'd won a prize.
 
 "Two show tickets — anything at the V or the Saxe, twenty-three shows. With the Mandalay package, I'll make it four."
 
-*Those are real. I'll go up to six if I need them to drag a man over the line. The timeshare companies hand them to us by the thousand, because the entire point is a warm body in a chair at the travel show.*
+*Those are real. I'll go up to six if I need them to drag a man over the line. The timeshare companies hand them to us by the thousand, because the entire point is a warm body in a chair at the travel show.  You try to keep the gifting as minimal as possible to leave the booking department some ammo to save the deal when the mark inevitably tries to cancel after they find out Labor Day weekend is going to cost them an extra grand.*
 
 The trainee set a fresh beer at my elbow without being asked — four shifts in, already learning the rhythm of the room. I didn't look up.
 
 "And it wouldn't be Vegas without a little gambling — hundred in free slot play, soon as you check in. You hit the big one, don't forget ol' Glen." *Fake laugh. Then I move right past it, fast.*
 
-*Because the slot play is the single most worthless thing in the bag, and the one I least want questions about. It runs on one promotional machine at Binion's, downtown. You can't feed it real money — there's a disclaimer right on the glass, promotional play only — and you only cash out if you hit the jackpot. In six years I never met a soul who did. People grind that thing for hours, run the number into the thousands, walk away with nothing, because there's no other way off the ride. Word is it pays once every couple of years. Nobody's ever met the couple. Press me on it and I'd have to start telling the truth in pieces — so I don't bring it up at all. I let him "find" it during verification, after the card's already run.*
+*Because the slot play is the single most worthless thing in the bag, and the one I least want questions about. It runs on one promotional machine at Binion's, downtown. You can't feed it real money — there's a disclaimer right on the glass, promotional play only — and you only cash out if you hit the jackpot. In six years I never met a soul who did. People grind that thing for hours, run the number into the thousands, walk away with nothing, because there's no other way off the ride. Word is it pays once every couple of years. Nobody's ever met the couple. Press me on it and I'd have to start telling the truth in pieces — so I don't bring it up at all. I let him "find" it when he gets to Vegas, after he's sat through the presentation.*
 
-"But the one I think you'll really love, frequent traveler like you — travel credit. Five hundred for the promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels worldwide."
+"But the one I think you'll really love, frequent traveler like you — travel credit. Five hundred for the promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels and resorts worldwide."
 
-*Real. Also a discount card: blackout dates, no holidays, almost no weekends, sixty percent off at the very most, all "based on availability." Real, and good luck.*
+*I can give up to $1500.It's real. Also a discount card: blackout dates, no holidays, almost no weekends, sixty percent off at the very most and doesn't cover taxes, so you can't use it to cover your entire room cost. all "based on availability." Real, and good luck.*
 
 Nate sat back, and for the first time all night he wasn't grinning. "This is fucked up." A beat. "Keep going."
 
@@ -164,11 +164,11 @@ Nate sat back, and for the first time all night he wasn't grinning. "This is fuc
 
 "You did. And now I can finally answer, because now you know what it is." I let it sit a beat. "Four days, three nights, two hundred in dining, four show tickets, a thousand in travel — all of it, today only, not per person, not per night. Three hundred and ninety-nine dollars."
 
-I watched the number land on him. Even Nate — even a man who'd just sat there and watched me build the thing board by board — ran the math for half a second before he caught himself. Three-ninety-nine for a week on the Strip. That half-second is the whole job.
+I watched the number land on him. Even Nate — even a man who'd just sat there and watched me build the thing board by board — ran the math for half a second before he caught himself. Three-ninety-nine for 4 nights on the Strip, including food, shows, and a thousand in travel. That half-second is the whole job.
 
-"And if you commit right now, on this call, I'll throw in a bonus — eight days, seven nights, any RCI resort on the planet, two-bedroom suite. Doesn't cover your airfare, and you'll owe the taxes on the room. Even I can't get you out from under Uncle Sam. But everything else is on us. Fair?"
+"And if you commit right now, on this call, I'll throw in a bonus — eight days, seven nights, any RCI resort on the planet, two-bedroom suite. Doesn't cover your airfare, and you'll owe the resort fees upon checkout. on the room. Even I can't get you out from paying resort fees. Those are gonna run you about $20 a night. But everything else is on us. Fair?"  
 
-*See what I did with the taxes? That's me being honest — generous, even. I just looked a man dead in the eye and admitted this thing isn't completely free, that there's a catch, that Uncle Sam gets his cut no matter what. And a man who'll cop to the small ugly truth has to be straight on all the rest. That's the play. One honest little disclosure buys cover for every omission in the call.*
+*See what I did with the resort fees? That's me being honest — generous, even. I just looked a man dead in the eye and admitted this thing isn't completely free, that there's a catch, that the resort gets their cut no matter what. And a man who'll cop to the small ugly truth has to be straight on all the rest. That's the play. One honest little disclosure buys cover for every omission in the call.*
 
 *What I left out about the "free" eight-day RCI getaway: it's the same trap as the first, just wearing a different logo. To collect it, he sits through another ninety-minute pitch — RCI's, this time — and the calendar's blacked out from here to the horizon. He can have that suite anywhere in the world, technically, long as it's a week nobody else on the planet wants to be there. A ski resort in mud season. The beach two days before the hurricane. Free, the exact same way everything else on this call is free.*
 
@@ -194,7 +194,7 @@ I set the imaginary phone down. Nate just looked at me for a second, somewhere b
 
 "Six years," he said. "Six years I figured it was something like that. I didn't figure it was *that*."
 
-I shrugged and drank. Here's the thing I didn't say to Nate, because I hadn't said it out loud to myself yet either: I was good at it. Best closer in the room, barely a chargeback to my name. And I slept fine. I told myself the same thing every night, the same prayer that washed the whole thing off in the shower — they didn't ask the right questions. Nobody made them pick up the phone. It was their own greed that walked them into it; they wanted the something-for-nothing, and I just stood there and let them want it. They'd still get their three nights in Vegas for three hundred bucks. So what if it was the basement of Circus Circus.
+I shrugged and drank. Here's the thing I didn't say to Nate, because I hadn't said it out loud to myself yet either: I was good at it. Best closer in the room, barely a chargeback to my name. And I slept fine. I told myself the same thing every night, the same prayer that washed the whole thing off in the shower — they didn't ask the right questions. Nobody made them pick up the phone. It was their own greed that walked them into it; they wanted the something-for-nothing, and I just stood there and let them want it. They'd still get their three nights in Vegas for three hundred bucks. So what if it was the basement of Circus Circus.  This racket had been going on 20 years before I ever got to Vegas, and obviously those who do use them are buying Timeshares or none of this would still be around. A man gets used to the money, and then he gets used to the man he is when he's making it.
 
 That's the kind of math a man does when he needs to keep doing the thing.
 
@@ -224,13 +224,13 @@ I checked my balance on the way out the door. Sixteen hundred and change, after 
 
 I stepped out into the heat, hit the dispensary on the corner, bought a single joint for the road, and smoked half of it on the sidewalk like a man with nowhere in the world he had to be.
 
-I had lunch at the Hooters bar inside the Palms and played one last round of video poker while I ate — quarters this time, slow as I could stand, stretching that hundred out. I was down sixty before I noticed. Then four of a kind came up on the screen, the credits ran and ran, and I clawed it back and then some. Cashed out a small winner, which in that town counts as a minor miracle. On my way out I peeled off a twenty for the bartender. My father's rule, right to the end.
+I had lunch at the Hooters bar inside the Palms and played one last round of video poker while I ate — quarters this time, slow as I could stand, stretching that hundred out. I was down sixty before I noticed. Then four of a kind came up on the screen, the credits stacked up, and I clawed it back to one-twenty. Cashed out a small winner, which in that town counts as a minor miracle. On my way out I peeled off a twenty for the bartender. My father's rule, right to the end.
 
 Then I climbed into a cab with a hundred dollars in my pocket, a hangover I'd earned, and six years of memories I figured I was leaving in the desert for good.
 
 I didn't know it yet, riding out with the Strip shrinking in the side mirror, but I wasn't escaping a damn thing. I was just changing the venue.
 
-Before long I'd be in Alaska, working a phone again — solar this time, but the same machine, the same openers and closers and the same script — and there'd be a voice coming across a transfer. Warm. Specific. Telling me I was special, that I'd earned something I never asked for. She was an opener. I was the closer, the best in the room, the man who knew every move because he'd run every one of them himself.
+Before long I'd be in Alaska, working a phone again — solar this time, but the same machine, the same openers and closers just a different script — and there'd be a voice coming across the transfer. Warm. Specific. Telling me I was special, that I'd earned something I never asked for. She was an opener. I was the closer, the best in the room, the man who knew every move because he'd run every one of them himself.
 
 And I would not see a single one of them coming.
 
