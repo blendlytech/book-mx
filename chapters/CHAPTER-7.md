@@ -62,7 +62,7 @@ I walked out of that library lighter than I'd walked into it, and of course — 
 
 Western Union lives at the customer-service counter, which means it shares a window with every other small catastrophe in the store. And in front of me is a man trying to return a lamp. No receipt. The lamp is snapped clean in two — broken right where the socket you screw the bulb into meets the pole, just *gone*, hanging by a wire — and this man is not giving up. Not a chance. He's going to win this. The clerk has to go find her manager. I'm standing there soaked, with five hundred dollars and the rest of my life thirty feet away behind a register, watching a grown man litigate a corpse of a lamp, and it eats up another thirty minutes I'll never see again.
 
-Finally. The counter. I give them my name and Niki's name and lay my paper ID faceup beside it — exactly what she'd told me I'd need. And the clerk says, oh, no — we need a confirmation number, or some such thing.
+Finally. The counter. I give them my name and Niki's name and lay my paper ID faceup, right next to the broken lamp the man before me had abandoned, along with the outcome he'd hoped for — exactly what she'd told me I'd need. And the clerk says, oh, no — we need a confirmation number, or some such thing.
 
 Fuck my life.
 
@@ -92,7 +92,7 @@ She looked at it and said: oh — we can't take temporary IDs. It has to be an o
 
 Sorry my ass.
 
-That same paper had been sitting on that same counter the round before. Maybe she hadn't gotten far enough into it last time to ask — the confirmation number had killed it before we got here — but it had been *right there*, faceup, in plain sight. You couldn't have told me that the last time I was standing right here? I said. I was coming apart now, I could feel it climbing my throat, and I clamped down on it and kept my voice level, because I'd already learned that morning that the volume never helps. The wall doesn't hear you better if you yell.
+That same paper had been sitting on that same counter the round before. Maybe she hadn't gotten far enough into it last time to ask — the confirmation number had killed it before we got here — but it had been *right there*, faceup, in plain sight. You couldn't have told me that the last time I was standing right here? I said. I was coming apart now, I could feel it climbing my throat, and I clamped down on it and kept my voice level, because volume never helps. The wall doesn't hear you better if you yell.
 
 I'm sorry, sir. There's nothing I can do.
 
@@ -100,7 +100,7 @@ Then she offered me the one thing she had: you could transfer the money into som
 
 I don't know anyone, I said.
 
-And it was the truth, the flat whole truth of it. I knew Steven, hours south and asleep. I knew a sister a continent away who'd already done her part. I knew a man named Mike who thought he owned a treatment center. In this entire city, at this counter, in the rain, I did not know one single soul with a wallet and a name on a card.
+And it was the truth, the flat whole truth of it. I knew Steven, hours south and unreachable. I knew a sister a continent away who'd already done her part. I knew a man named Mike who thought he owned a treatment center. In this entire city, at this counter, in the rain, I did not know one single soul with a wallet and a name on a card.
 
 I felt the old routine load itself up in my chest — *I was robbed, I was beaten, four days in a cell* — the speech that had moved an old man off me at the library a couple hours back. And I swallowed it. Just swallowed it whole. Because I knew this clerk, and I knew this counter, and I knew the speech would buy me exactly nothing here but the same soft *I'm sorry, sir* with my own desperation stink on it. You don't waste a closer's energy on a door that doesn't open. You find the door that does.
 
@@ -164,6 +164,6 @@ And then Paralee, having already done more for me than the entire city of Anchor
 
 Now. I had a bed. An actual reserved bed in an actual room with my name already cleared at the desk — the first roof in longer than I could stand to count that was genuinely, only mine — and every grain of sense I had left was pointing me dead at it. Go to your pod. Lock the door. Sleep for a year.
 
-But she had saved me. And I was so swollen up with gratitude, so unused to anybody being plainly, uncomplicatedly good to me — the woman at the DMV that morning aside — that turning her down felt like spitting in the one open hand the whole day had held out. So I said yes. Of course I said yes. *Why the fuck not* — the same three words, in the same order, that had walked me into a madman's group home that very morning, the same reasoning that has loaded me into the back of every wrong car I have ever climbed into.
+But she had saved me. And I was so swollen up with gratitude, so unused to anybody being plainly, uncomplicatedly good to me — the woman at the DMV that morning aside — that turning her down felt like spitting in one of the only two open hands the whole day had held out. So I said yes. Of course I said yes. *Why the fuck not* — the same three words, in the same order, that had walked me into a madman's group home that very morning, the same reasoning that has loaded me into the back of every wrong car I have ever climbed into.
 
 And that yes — that one polite, grateful, can't-make-myself-be-rude yes — is right where the next thing starts. Because if there's one thing I have proven myself world-class at, past closing a stranger and surviving a beating and walking out of a cell with nothing to my name, it is this: saying yes to precisely the wrong invitation, and then finding out why the long way around.
