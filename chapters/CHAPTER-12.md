@@ -88,6 +88,6 @@ He stood there and watched us back out of the drive. Clear-eyed — sober for th
 
 Josh and I climbed up into his truck.
 
-And that's the whole loop closed, right there — because the broke skeleton swinging up into that truck is the very same one you met on the first page of this book, the one Josh drives to the airport and lets out at the curb with *I'll probably never see you again* hanging in the cold between us. We're all the way back around to Chapter 1 now. I'm about to land in San Diego with five hundred and twenty dollars, three hundred and twenty of which was borrowed-and-gifted, no passport, no Spanish, and a sales machine I fully intend to drive straight into a building full of people trying to save their own lives.
+And that's the whole loop closed, right there — because the broke skeleton swinging up into that truck is the very same one you met on the first page of this book, the one Josh drives to the airport and lets out at the curb with *I'll probably never see you again* hanging in the cold between us. We're all the way back around to Chapter 1 now. I'm about to land in San Diego with five hundred and twenty dollars, two hundred of which was borrowed-and-gifted, no passport, no Spanish, and a sales machine I fully intend to drive straight into a building full of people trying to save their own lives.
 
-The real meat of this book is about to begin.
+The real meat of this book is about to begin. 
