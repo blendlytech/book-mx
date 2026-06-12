@@ -6,7 +6,7 @@
 > - **Setting**:
 >   - Clark County Court / County Jail (Las Vegas, NV)
 >   - Clay's residence in Las Vegas (a house he pays $1600/month for)
->   - The Palms Casino (Las Vegas, NV)
+>   - The Orleans Casino (Las Vegas, NV)
 > - **Timeline**: June 2021 (the days leading up to his scheduled escape to Alaska)
 > - **Characters**:
 >   - **Clay**: The protagonist, an alcoholic facing a DV charge, desperate to escape.
@@ -86,7 +86,7 @@ I had a plan. I had a floor manager once tell me, "Nobody solves a drinking prob
 
 Yeah. Right.
 
-We had a hell of a last night. Hung at our spot, the Palms, got drunk, gambled, and nobody got hurt or lost anything but their paychecks. I'd burned through all but a hundred bucks of mine, and payday was midnight Friday — just before my plane left Saturday.
+We had a hell of a last night. Hung at our spot, the Orleans, got drunk, gambled, and nobody got hurt or lost anything but their paychecks. I'd burned through all but a hundred bucks of mine, and payday was midnight Friday — just before my plane left Saturday.
 
 And wouldn't you know it, I came home drunk as hell to find her out front in a lawn chair, smoking a joint. She clocked the drunk on me the second I walked up and started in — what a loser I was, how glad she was to see me go, how Alaska was going to eat me alive, how I'd be lucky to keep my job, how nobody worth a damn would ever want me.
 

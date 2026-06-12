@@ -3,11 +3,11 @@
 > [!NOTE]
 > **Metadata for AI Ingestion**
 >
-> - **Setting**: The Palms Hotel and Casino (Las Vegas, NV) — Clay's home bar
-> - **Timeline**: Las Vegas backstory; Clay's last Friday night at the Palms and the Saturday he flies out to Alaska
+> - **Setting**: The Orleans Hotel and Casino (Las Vegas, NV) — Clay's home bar
+> - **Timeline**: Las Vegas backstory; Clay's last Friday night at the Orleans and the Saturday he flies out to Alaska
 > - **Characters**:
 >   - **Clay**: The narrator, a top "closer" in the Vegas mini-vacation racket, drinking and gambling on his final night in the city.
->   - **Nate**: Clay's favorite bartender at the Palms; twenty-six years behind a Vegas bar; the reader's surrogate.
+>   - **Nate**: Clay's favorite bartender at the Orleans; twenty-six years behind a Vegas bar; the reader's surrogate.
 > - **Key Themes**:
 >   - The "smoke and mirrors" of the Vegas vacation-package con, demonstrated live as a role-play.
 >   - The one rule of the floor — you can't lie, you can only omit — and the moral crawlspace it creates.
@@ -16,7 +16,7 @@
 
 ---
 
-The Palms smelled the way it always smelled at nine on a Friday — somebody's cologne, the ghost of a cigarette nobody was smoking, and underneath it the sweet chemical chill of the air conditioning losing its war with three hundred sweating tourists. I'd been breathing that smell for six years. This was the last night I ever would.
+The Orleans smelled the way it always smelled at nine on a Friday — somebody's cologne, the ghost of a cigarette nobody was smoking, and underneath it the sweet chemical chill of the air conditioning losing its war with three hundred sweating tourists. I'd been breathing that smell for six years. This was the last night I ever would.
 
 Nate slid a Stone IPA in front of me before my elbows hit the rail. Late fifties, twenty-six years behind a Vegas bar, eight of them right here, and not one thing left in this town could surprise him. My father taught me to tip a dollar a beer, minimum, and I'd carried that to church — tipped Nate hundreds on many nights I'd hit a royal-flush progressive. That's why the beer landed before I asked. That's why, on a Friday with a trainee on his fourth shift more or less running the well, Nate had time to lean on the bar across from me and shoot the shit. On my last night, I had him almost to myself.
 
@@ -84,9 +84,9 @@ He thought about it. "No. Keep going."
 
 "Thank you for that." *And I mean it — every minute he stays on the line is a minute closer to his card.* "Last time you were here, where'd you stay?"
 
-"Six months ago. The Palms."
+"Six months ago. The Orleans."
 
-"The Palms — one of my favorites. Far enough off the Strip to feel like a local, close enough to cab in when you want the circus." I let a beat go by, and then I took it away from him. "Unfortunately, since the Palms is off-Strip, they don't run these frequent-traveler promotions. They market to locals."
+"The Orleans — one of my favorites. Far enough off the Strip to feel like a local, close enough to cab in when you want the circus." I let a beat go by, and then I took it away from him. "Unfortunately, since the Orleans is off-Strip, they don't run these frequent-traveler promotions. They market to locals."
 
 Nate frowned — genuinely a little disappointed, which told me the trick had landed even on a man who knew it was a trick.
 
@@ -224,7 +224,7 @@ I checked my balance on the way out the door. Sixteen hundred and change, after 
 
 I stepped out into the heat, hit the dispensary on the corner, bought a single joint for the road, and smoked half of it on the sidewalk like a man with nowhere in the world he had to be.
 
-I had lunch at the Hooters bar inside the Palms and played one last round of video poker while I ate — quarters this time, slow as I could stand, stretching that hundred out. I was down sixty before I noticed. Then four of a kind came up on the screen, the credits stacked up, and I clawed it back to one-twenty. Cashed out a small winner, which in that town counts as a minor miracle. On my way out I peeled off a twenty for the bartender. My father's rule, right to the end.
+I had a couple of hot dogs at the Alligator Bar inside the Orleans and played one last round of video poker while I ate — quarters this time, slow as I could stand, stretching that hundred out. I was down sixty before I noticed. Then four of a kind came up on the screen, the credits stacked up, and I clawed it back to one-twenty. Cashed out a small winner, which in that town counts as a minor miracle. On my way out I peeled off a twenty for the bartender. My father's rule, right to the end.
 
 Then I climbed into a cab with a hundred dollars in my pocket, a hangover I'd earned, and six years of memories I figured I was leaving in the desert for good.
 
