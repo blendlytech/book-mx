@@ -154,15 +154,13 @@ What is in that shoebox. The packing boxes are clothes, I know that. The suitcas
 
 I'm a minimalist. I get twitchy when my whole life won't fit in a suitcase and a carry-on. Those three boxes make me sick. We could burn them and I wouldn't blink. All I want on this earth is to open that goddamn shoebox.
 
-She carries the boxes out one at a time, slow and deliberate, setting each on the sidewalk with a little grin — like some kind of psychopath turning the handover of my entire life into the mundane task of taking out the trash. The suitcase and backpack go beside them. Then, last, she sets the shoebox on top of the stack.
+She carries the boxes out one by one, slow and deliberate, wearing a little grin. The suitcase. The backpack. And finally, the orange shoebox set on top of the stack. She offers a little wave, steps inside, and throws the deadbolt. A vault locking from the inside.
 
-She gives me one final look, a little wave goodbye, steps back inside, and I hear that deadbolt click one more time. No intention of being here when the cops show. That final click is the sound of a vault locking from the inside.
+It takes another twenty minutes for the cops to arrive. The whole time, I don't take my eyes off that orange shoebox. I want to sprint across the asphalt and tear into it, but I stay rooted. I'm trading the orange of my jail moccasins for the orange of that cardboard box. I'm not blowing it now.
 
-Another twenty minutes crawl by like hours before the cops finally roll up. The whole time I haven't taken my eyes off that orange shoebox. It takes everything I've got not to sprint over and tear into it. But I don't. I'm trading the orange of these moccasins — captivity — for the orange of that box — my way out. I'm not blowing it now. Whatever's in there isn't going to change in the next ten minutes. It is what it is. I'll know soon enough.
+When the squad car rolls up, I play the calm, collected man. The cop waves me across the street. I walk up to the box, take a breath, and set the stage. "I just hope she didn't destroy my phone and wallet."
 
-I do my best impression of a calm, collected man. I tell the cops the boxes are mine, and they wave me across the street that until this second has felt like a force field standing between me and the rest of my life.
-
-I walk up to the box I've been staring at for an hour. I take a breath and set the stage: "I just hope she didn't destroy my phone and wallet." The cop raises an eyebrow. I flick the lid off with one finger, for the drama, and look inside.
+The cop raises an eyebrow. I flick the lid off with one finger and look inside.
 
 My wallet, sitting on top of my phone. A charging cable. A picture of the two of us from last Christmas. Gross. Not even that can touch this moment.
 

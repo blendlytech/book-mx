@@ -47,9 +47,7 @@ The room itself was a steal — you can get a steal in Mexico for next to nothin
 
 It took the better part of that first month to get the floor humming like a machine, but it got there.
 
-Ten reps on the phones, and once they found their legs we were setting fifteen, twenty appointments a day — call it a hundred a week going up the wire to the South Carolina floor. Out of that hundred, maybe twenty would actually sit when the closer called. Out of those twenty, three to five would sign. Five sales in a good week. Some weeks, none — that's the part the math never tells you, the weeks the whole machine ran flat out and put up a goose egg and everybody got paid the same nothing for it.  The reps on the floor never got paid, anything.  This was their contribution to the rehab. This meant their families didn't have to pay anything for their stay.
-
-Here's how the nothing broke down for me. Three hundred a week salary, flat, plus a point and a half of every dollar that closed across the whole floor. The average system ran twenty grand. So a sale that took ten people a week to build paid me — do the arithmetic and try not to laugh — about three hundred dollars. First month, once it was humming, I cleared a little over five thousand in commission on top of the salary, and I want to be honest that for Mexicali, sober, that felt like a fortune. But you don't get rich a hundred and fifty bucks at a time off a phone room full of addicts. You just get by, cleaner than you've ever gotten by before.
+Ten reps on the phones, setting fifteen or twenty appointments a day for the South Carolina floor. The reps never saw a dime of it; their labor was their payment to the rehab. My cut was a flat three hundred a week, plus a point and a half of every dollar that closed. Inside a month, I was clearing five thousand in commission. You don't get rich a hundred and fifty bucks at a time off a room full of addicts. You just get by, cleaner than you've ever gotten by before.
 
 ---
 

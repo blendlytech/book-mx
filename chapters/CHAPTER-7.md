@@ -120,15 +120,13 @@ So I did the one thing I know how to do. I worked the floor. Except the floor wa
 
 I started with my own kind. There were other men out front running some version of what I was running — parked on the curb, fishing the same crowd for the spare-change brand of mercy. Figured they'd understand the assignment. I walked up to the first one and opened.
 
-"Hey — you got an ID on you? Because if you do, I've got a way for you to make fifty bucks in about two minutes. I got robbed, they took my ID. I've got money wired to me, Western Union, sitting right inside — but all I've got to show is this paper ID and they won't take it. You've got a real one, I put the money in your name, you walk in and pull it out, you keep fifty. Fair?"
+"Hey—you got an ID on you? I've got money wired inside, but they won't take paper. You put it in your name, walk it out, you keep fifty. Fair?"
 
-I ran it exactly the way I'd run a thousand vacation packages down a phone line — easy, warm, the price tucked into the back half where it lands soft, the close built right into the ask so all he had to do was hand me the word *fair* back.
+I ran it exactly the way I'd run a vacation package. Easy, warm. 
 
-He didn't have an ID. But — and this is the part where a desperate man starts to believe again — he had a friend who did. The friend was right there, pulling himself toward us across the lot in a wheelchair. Yeah, he's got one, the first guy says. It's at his place, couple blocks up. The man in the chair nods along, says he'll go grab it, be right back, and the two of them set off — one walking, one wheeling — to fetch the little plastic card that was going to save my night.
+He didn't have an ID, but his friend in a wheelchair did—back at his place, a couple blocks up. They promised to go grab it and be right back. I sat down to wait like a man who'd just booked a deal. 
 
-One open, one close. I sat down to wait on my money like a man who'd just booked a deal.
-
-Fifteen minutes. I sat there fifteen whole minutes dead certain that a man was about to wheel himself two blocks each way, in the rain, for fifty dollars. Thirty minutes. No walker, no chair, no ID, no nothing. And it came down on me slow and stupid: he was never coming back. Of course he wasn't. The closer had just gotten closed — stood up clean by a man in a wheelchair, out in a parking lot, at the bottom of the worst week of my life. You almost have to tip your cap.
+Thirty minutes later, the rain still coming down, it hit me: they were never coming back. The closer had just gotten stood up by a man in a wheelchair at the bottom of the worst week of his life. You almost have to tip your cap.
 
 So. Run it back. Next man — no ID. And somewhere in the middle of striking out I finally tripped over the real hole in my whole operation: it wasn't just an ID I needed. It was a phone. The money was wired to me, in my name, and to shove it into somebody else's I'd have to get Niki back on the line to cancel it and send it fresh — and not one of these curb-sitters had a phone any more than I did. We were all of us out there equally erased.
 
