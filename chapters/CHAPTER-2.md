@@ -16,7 +16,7 @@
 >   - **The Boys**: Clay's Las Vegas friends whom he drinks and gambles with.
 > - **Key Plots & Conflicts**:
 >   - **The Unexpected OR Release**: Clay expects a one-year jail sentence but is released, giving him one last chance to execute his escape plan to Alaska.
->   - **The Backstory of Loss**: Mention of Clay losing his daughter to adoption 15 years prior due to active addiction in Alaska.
+>   - **The Backstory of Loss**: Mention of Clay losing his daughter to adoption ~a decade prior (she was 2; ~10 yrs gone / she's 12 by the 2024–25 narration) due to active addiction in Alaska.
 >   - **The Final Hurrah & Relapse**: Clay attempts to stay sober for 4 days before his flight, but goes out for "one last night" with his friends on Thursday, leading to a relapse, a screaming match with his ex, and another arrest.
 >   - **Barefoot in Vegas**: Clay is released on Friday afternoon in orange jail moccasins, with no ID, phone, or wallet, 15 miles away from his house.
 
@@ -44,9 +44,9 @@ The night that put me in front of this generous judge was no different. Arrest n
 
 I had no plan for how I'd survive up there. No idea where I'd sleep once my two weeks in the Airbnb ran out. I just knew I had to get out while I still had the nerve.
 
-I'd lived in Anchorage once before, three years of a lifetime ago, about fifteen years back, when I was married with a baby girl I lost to my drinking and the drugs. I gave her up for adoption when she was two. It was the hardest thing I have ever lived through — harder than anything else in this book, harder than anything I'm willing to put on a page. The subject is too heavy to even hold for long. I'll get to her. Not yet. Not in this book.
+I'd lived in Anchorage once before, the better part of a decade back, another lifetime ago, when I was married with a baby girl I lost to my drinking and the drugs. I gave her up for adoption when she was two. It was the hardest thing I have ever lived through — harder than anything else in this book, harder than anything I'm willing to put on a page. The subject is too heavy to even hold for long. I'll get to her. Not yet. Not in this book.
 
-But I loved Alaska, all that brutal beauty. Looking back, I know I wasn't only running from Vegas. I was crawling back to the scene of my original sin, like if I stood in the same spot long enough the last fifteen years might rewind and let me do it over.
+But I loved Alaska, all that brutal beauty. Looking back, I know I wasn't only running from Vegas. I was crawling back to the scene of my original sin, like if I stood in the same spot long enough the last ten years might rewind and let me do it over.
 
 ---
 

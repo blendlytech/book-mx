@@ -4,10 +4,10 @@
 > **Metadata for AI Ingestion**
 >
 > - **Setting**: Ted Stevens Anchorage International Airport; an Airbnb in the Mountain View neighborhood (Anchorage, AK); downtown Anchorage pubs and the surrounding mountain trails.
-> - **Timeline**: June 2021 — Clay's first two weeks back in Alaska, fifteen years after he lost his daughter there.
+> - **Timeline**: June 2021 — Clay's first two weeks back in Alaska, about a decade after he married, had a daughter, and lost her here (she was 2 at the loss; ~10 yrs gone / she's 12 by the 2024–25 narration).
 > - **Characters**:
 >   - **Clay**: The narrator, freshly fled from Vegas, broke-ish, hungover, telling himself this is a fresh start.
->   - **Steven**: Clay's old friend from his FedEx home-delivery days fifteen years back; a wild, charming, country-boy MMA fighter from Oregon who drives up from Kenai to collect him.
+>   - **Steven**: Clay's old friend from his FedEx home-delivery days the better part of a decade back; a wild, charming, country-boy MMA fighter from Oregon who drives up from Kenai to collect him.
 >   - **Alisha**: The Vegas ex, reaching across the country one last time to torch Clay's job.
 >   - **Manny**: A solar-company co-owner, Vegas-bred himself, who hires Clay over a video call and never asks why he left Nevada — the human face of the racket that followed Clay north.
 > - **Key Plots & Conflicts**:
@@ -18,7 +18,7 @@
 
 ---
 
-The plane came down through a wall of grey and there it was again, fifteen years later, like it had been sitting there the whole time waiting on me to lose enough to come crawling back. The Chugach hunched along the edge of the city with old snow still packed in the high cracks. The inlet lay flat and brown as gravy. The whole brutal postcard of it. Alaska. The one place on this earth that had already taken something from me I will never get back, and here I was, flying into it on purpose, sober-ish and grinning out the window like a man who'd learned absolutely nothing.
+The plane came down through a wall of grey and there it was again, the better part of a decade later, like it had been sitting there the whole time waiting on me to lose enough to come crawling back. The Chugach hunched along the edge of the city with old snow still packed in the high cracks. The inlet lay flat and brown as gravy. The whole brutal postcard of it. Alaska. The one place on this earth that had already taken something from me I will never get back, and here I was, flying into it on purpose, sober-ish and grinning out the window like a man who'd learned absolutely nothing.
 
 I'd told myself this was a fresh start. That's the thing about a geographic cure — it always looks like a fresh start from thirty thousand feet. It's only from the ground that you can see it's the same dog, different yard.
 
@@ -30,7 +30,7 @@ Then we stood at the carousel and watched it go around. And around. Until it was
 
 Steven just laughed. "Come on. It'll be here tomorrow. Let's get you to your castle."
 
-Steven was my buddy from the FedEx home-delivery terminal in Anchorage, fifteen years and another lifetime ago. I'd been a home-delivery manager then, early thirties, the guy who built the routes; he was a driver in his mid-twenties, the wild one, and somehow the honest one too — a sweet, reckless kid from Oregon who'd never once told me a lie in all the years I'd known him, which is more than I can say for most of the people I've loved. Five foot ten, built like a fireplug, head shaved smooth. A country boy at his core: happiest under the hood of a car or chasing a woman he had no business chasing. He spent half his off-hours back then living in chat rooms and dating sites, hunting, until one of them stuck — a beautiful young Black woman who finally got the kid to stand still. His wife. His ex-wife now, but his wife back then, and I'd married them myself.
+Steven was my buddy from the FedEx home-delivery terminal in Anchorage, the better part of a decade and another lifetime ago. I'd been a home-delivery manager then, early thirties, the guy who built the routes; he was a driver in his mid-twenties, the wild one, and somehow the honest one too — a sweet, reckless kid from Oregon who'd never once told me a lie in all the years I'd known him, which is more than I can say for most of the people I've loved. Five foot ten, built like a fireplug, head shaved smooth. A country boy at his core: happiest under the hood of a car or chasing a woman he had no business chasing. He spent half his off-hours back then living in chat rooms and dating sites, hunting, until one of them stuck — a beautiful young Black woman who finally got the kid to stand still. His wife. His ex-wife now, but his wife back then, and I'd married them myself.
 
 That's a true thing. Somewhere in those years I'd gone online, filled out a form, and become an ordained minister. Took about four minutes. Boom — Reverend Clay. Fucking nuts, the things this country will let a man become with a working email address. So I stood up in front of God and a backyard full of people and married my friend to the woman he loved, and I meant every word of it, and none of us in that yard could have guessed how all of it would end. You never can.
 
