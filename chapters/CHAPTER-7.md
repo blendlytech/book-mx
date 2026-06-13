@@ -122,9 +122,9 @@ I started with my own kind. There were other men out front running some version 
 
 "Hey—you got an ID on you? I've got money wired inside, but they won't take paper. You put it in your name, walk it out, you keep fifty. Fair?"
 
-I ran it exactly the way I'd run a vacation package. Easy, warm. 
+I ran it exactly the way I'd run a vacation package. Easy, warm.
 
-He didn't have an ID, but his friend in a wheelchair did—back at his place, a couple blocks up. They promised to go grab it and be right back. I sat down to wait like a man who'd just booked a deal. 
+He didn't have an ID, but his friend in a wheelchair did—back at his place, a couple blocks up. They promised to go grab it and be right back. I sat down to wait like a man who'd just booked a deal.
 
 Thirty minutes later, the rain still coming down, it hit me: they were never coming back. The closer had just gotten stood up by a man in a wheelchair at the bottom of the worst week of his life. You almost have to tip your cap.
 

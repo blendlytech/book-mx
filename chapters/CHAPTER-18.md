@@ -2,6 +2,7 @@
 
 > [!NOTE]
 > **Metadata for AI Ingestion**
+>
 > - **Setting**: The road from **Puerto Peñasco down into Sinaloa** (~early December 2024). A ~thousand-mile drive into the cartel heartland with a paperless gringo in the back seat. Ends ~5 miles outside the family's hometown.
 > - **Timeline**: Direct continuation of Ch17's hook. **Rose drives up from Mexicali to Peñasco** to collect the four of them (Clay, Glenda, **America**, Rose driving) for the holidays in **Sinaloa** — where Rose & Glenda are **from**, and where **Rose's brother** (Glenda's uncle) still lives; they'll stay **all of December and January**. The danger engine: Rose **mistakenly gets off the toll roads (cuotas) onto the free roads (libres)** — the rural badlands. Four escalating beats: **(1)** a **cop stop → extorted 1,000 pesos** to let the no-passport Clay pass; **(2)** a **gas station** — a cartel man pulls up in a truck mid-fill, tells them to **hand him the gas money and leave**; **(3)** a truck **tails them close for ~45 min at night** — all certain they'll be robbed and killed, **staying silent so America won't be scared**; **(4)** **~5 miles from town a mountaintop lookout (halcón) spots them and sends armed men** to check who's coming in — Clay gets a **pass because they know Glenda and Rose** (the family's local roots = his safe passage). **Accepted into town.**
 > - **Characters**:

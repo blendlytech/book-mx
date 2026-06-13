@@ -40,13 +40,13 @@ Ha. It's only a week, I told them. A week, and then who knows where after that. 
 
 The job came home with me, of course. That was the whole point of what I'd clawed back together up north — a thing I could run from anywhere there was a phone and a chair, and this week the chair sat in a rented room just off the Strip. So that's where my money came from this trip: me, alone in an Airbnb, slinging solar appointments down the same wire I'd rebuilt my whole life on up north. Glenda was still on the far end of it — my opener, my golden goose — and still nothing more than that. A face on a screen, a name in a thread, a person I made good money with and had yet to say a single human word to. I thought about her about as much as I thought about the warrant, which is to say I'd gotten very, very good at not thinking about either. There was money to make and a town to make it in.
 
-Let me tell you about the crew, because you can't understand that week without them. 
+Let me tell you about the crew, because you can't understand that week without them.
 
 First was Ritchie, my best friend and shadow. A former New York stock trader who’d lost it all, he was three years younger, a devout Trump supporter, and a father who watched his daughter grow up from a distance—a pain I understood too well. His poison was pills; mine was the bottle. We didn't agree on a single thing politically, but none of us in that crew gave a damn.
 
-Then there was Ace, my right-hand man. Six-four, bald, a Black man who sounded on the phone like a white suburban accountant. He’d sleep in the offices he managed because he fed every dollar he made back into a slot machine by sunup. He was the sweetest man alive with us, but a mean drunk to strangers. 
+Then there was Ace, my right-hand man. Six-four, bald, a Black man who sounded on the phone like a white suburban accountant. He’d sleep in the offices he managed because he fed every dollar he made back into a slot machine by sunup. He was the sweetest man alive with us, but a mean drunk to strangers.
 
-We were a family of the damned. Not one of us agreed with the others on anything, but we had each other's backs in that busted, all-in way that only people drowning together ever learn. 
+We were a family of the damned. Not one of us agreed with the others on anything, but we had each other's backs in that busted, all-in way that only people drowning together ever learn.
 
 Ritchie was my shadow in Vegas, and I was his. He picked me up every single morning in that 2017 Lexus — silver LS, spotless, the man wore Versace shades and a Rolex and a Yankees cap and plain white or black tees and cargo shorts and carried whatever iPhone had come out that week, while I rolled up looking like whatever I'd survived the night before. The two most unlikely friends you ever saw. His poison was pills, the downers, which I never could get behind; mine you already know. We both swore off meth and both made our peace with Adderall and a little coke when the night called for it, and we were both, top to bottom, drinkers and gamblers of the committed variety.
 
