@@ -146,9 +146,7 @@ Nate snorted. Twenty-six years in this town; he knew exactly what that meant. "C
 
 The trainee set a fresh beer at my elbow without being asked — four shifts in, already learning the rhythm of the room. I didn't look up.
 
-"And it wouldn't be Vegas without a little gambling — hundred in free slot play, soon as you check in. You hit the big one, don't forget ol' Glen." *Fake laugh. Then I move right past it, fast.*
-
-*Because the slot play is the single most worthless thing in the bag, and the one I least want questions about. It runs on one promotional machine at Binion's, downtown. You can't feed it real money — there's a disclaimer right on the glass, promotional play only — and you only cash out if you hit the jackpot. In six years I never met a soul who did. People grind that thing for hours, run the number into the thousands, walk away with nothing, because there's no other way off the ride. Word is it pays once every couple of years. Nobody's ever met the couple. Press me on it and I'd have to start telling the truth in pieces — so I don't bring it up at all. I let him "find" it when he gets to Vegas, after he's sat through the presentation.*
+"And it wouldn't be Vegas without a little gambling — hundred in free slot play, soon as you check in. You hit the big one, don't forget ol' Glen." *Fake laugh. Then I move right past it, fast — because the slot play is the single most worthless thing in the bag, the one I least want questions about. It runs on one promotional machine downtown, pays out maybe once every couple of years, and nobody's ever met the couple. I let him "find" it once he's already in Vegas, after he's sat through the presentation.*
 
 "But the one I think you'll really love, frequent traveler like you — travel credit. Five hundred for the promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels and resorts worldwide."
 
@@ -168,9 +166,7 @@ I watched the number land on him. Even Nate — even a man who'd just sat there 
 
 "And if you commit right now, on this call, I'll throw in a bonus — eight days, seven nights, any RCI resort on the planet, two-bedroom suite. Doesn't cover your airfare, and you'll owe the resort fees upon checkout. on the room. Even I can't get you out from paying resort fees. Those are gonna run you about $20 a night. But everything else is on us. Fair?"  
 
-*See what I did with the resort fees? That's me being honest — generous, even. I just looked a man dead in the eye and admitted this thing isn't completely free, that there's a catch, that the resort gets their cut no matter what. And a man who'll cop to the small ugly truth has to be straight on all the rest. That's the play. One honest little disclosure buys cover for every omission in the call.*
-
-*What I left out about the "free" eight-day RCI getaway: it's the same trap as the first, just wearing a different logo. To collect it, he sits through another ninety-minute pitch — RCI's, this time — and the calendar's blacked out from here to the horizon. He can have that suite anywhere in the world, technically, long as it's a week nobody else on the planet wants to be there. A ski resort in mud season. The beach two days before the hurricane. Free, the exact same way everything else on this call is free.*
+*See what I did with the resort fees? That's me being honest — generous, even. I just looked a man dead in the eye and admitted this thing isn't completely free, that there's a catch, that the resort gets their cut no matter what. And a man who'll cop to the small ugly truth has to be straight on all the rest. That's the play. One honest little disclosure buys cover for every omission in the call — including the "free" eight-day RCI getaway, which is the same trap wearing a different logo: another ninety-minute pitch to collect it, and a calendar blacked out from here to the horizon.*
 
 "No," Nate said, laughing.
 
