@@ -14,7 +14,7 @@
 
 [Required Skills]
 
-- Structural Architecture: Mapping the "Hero's Journey" onto a chaotic real-life timeline (Vegas -> Alaska -> South Carolina - Michigan -> Ohio -> Mexicali Mexico -> Puerto Penasco Mexico -> Mexicali Mexico -> San Diego California -> Rosarito Mexico -> Mexicali Mexico -> Rehab).
+- Structural Architecture: Mapping the "Hero's Journey" onto a chaotic real-life timeline (Vegas -> Alaska -> South Carolina - Michigan -> Ohio -> Mexicali Mexico -> Puerto Penasco Mexico -> Sinaloa Mexico (Dec 2024–Jan 2025 holiday trip) -> Puerto Penasco Mexico -> Mexicali Mexico -> San Diego California -> Rosarito Mexico -> Mexicali Mexico -> Rehab).
 - Psychological Realism: Accurately capturing the internal logic of an active addict and the trauma responses of a kidnapping survivor.
 - Hook Generation: Crafting visceral chapter openings that force immediate page-turns.
 
