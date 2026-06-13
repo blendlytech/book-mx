@@ -1,79 +1,135 @@
-# Chapter 4
+The plane cuts through a wall of grey.
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: Ted Stevens Anchorage International Airport; an Airbnb in the Mountain View neighborhood (Anchorage, AK); downtown Anchorage pubs and the surrounding mountain trails.
-> - **Timeline**: June 2021 — Clay's first two weeks back in Alaska, about a decade after he married, had a daughter, and lost her here (she was 2 at the loss; ~10 yrs gone / she's 12 by the 2024–25 narration).
-> - **Characters**:
->   - **Clay**: The narrator, freshly fled from Vegas, broke-ish, hungover, telling himself this is a fresh start.
->   - **Steven**: Clay's old friend from his FedEx home-delivery days the better part of a decade back; a wild, charming, country-boy MMA fighter from Oregon who drives up from Kenai to collect him.
->   - **Alisha**: The Vegas ex, reaching across the country one last time to torch Clay's job.
->   - **Manny**: A solar-company co-owner, Vegas-bred himself, who hires Clay over a video call and never asks why he left Nevada — the human face of the racket that followed Clay north.
-> - **Key Plots & Conflicts**:
->   - **The Return to the Scene**: Clay flies back into the one place that already took something from him he can't get back.
->   - **The Erased Job**: The remote gig Clay banked on carrying north dies over the weekend — Alisha has emailed his employer from his own account, outing his arrest and his Ohio warrant.
->   - **The Oblivious Honeymoon**: Two weeks of hiking by day and drinking downtown by night, strolling drunk and loaded through Anchorage's most dangerous neighborhood without a clue.
->   - **The Machine Calls Him Home**: With his money nearly gone, Clay answers a solar-sales ad that all but advertises itself to a Vegas con man — and walks straight back onto the phones.
+Anchorage.
 
----
+I press my forehead against the scratched plexiglass window. The cold seeps straight into my skull. Down below, the Chugach mountains squat along the edge of the city. Old snow packed into the rock like dirty teeth. The inlet is flat. Brown gravy.
 
-The plane came down through a wall of grey and there it was again, the better part of a decade later, like it had been sitting there the whole time waiting on me to lose enough to come crawling back. The Chugach hunched along the edge of the city with old snow still packed in the high cracks. The inlet lay flat and brown as gravy. The whole brutal postcard of it. Alaska. The one place on this earth that had already taken something from me I will never get back, and here I was, flying into it on purpose, sober-ish and grinning out the window like a man who'd learned absolutely nothing.
+A brutal, freezing postcard.
 
-I'd told myself this was a fresh start. That's the thing about a geographic cure — it always looks like a fresh start from thirty thousand feet. It's only from the ground that you can see it's the same dog, different yard.
+Alaska is the one place on earth that already took something from me I can never get back. I lost a two-year-old daughter here ten years ago. And here I am. Flying into the scene of the crime on purpose. Sober-ish. Smiling out the window like a man who hasn't learned a goddamn thing.
 
----
+I call it a fresh start. A geographic cure. That is the alcoholic’s greatest delusion. From thirty thousand feet, a new time zone looks like a clean slate.
 
-Steven was waiting at baggage claim, and the second he saw me he came across that terminal with his arms out, that big shaved head and that grin I hadn't seen in over a decade. He wrapped me up and lifted me half off the floor. "You crazy son of a bitch," he said, "you actually did it." Like flying north to outrun two warrants and a woman was an accomplishment instead of a symptom.
+On the ground, it is the same dog. Different yard.
 
-Then we stood at the carousel and watched it go around. And around. Until it was just the two of us and one orphaned car seat nobody was coming back for, and a woman from the airline telling me my suitcase was somewhere over Canada, or Seattle, or the bottom of a lake — she couldn't rightly say — and to come back in the morning. Of course. Welcome home. The state hadn't had me back four minutes and it was already holding something of mine hostage.
+Steven is waiting at baggage claim.
 
-Steven just laughed. "Come on. It'll be here tomorrow. Let's get you to your castle."
+He crosses the terminal with his arms out. Big shaved head. A grin I haven't seen in a decade. He wraps me up. He lifts me half off the floor.
 
-Steven was my buddy from the FedEx home-delivery terminal in Anchorage, the better part of a decade and another lifetime ago. I'd been a home-delivery manager then, early thirties, the guy who built the routes; he was a driver in his mid-twenties, the wild one, and somehow the honest one too — a sweet, reckless kid from Oregon who'd never once told me a lie in all the years I'd known him, which is more than I can say for most of the people I've loved. Five foot ten, built like a fireplug, head shaved smooth. A country boy at his core: happiest under the hood of a car or chasing a woman he had no business chasing. He spent half his off-hours back then living in chat rooms and dating sites, hunting, until one of them stuck — a beautiful young Black woman who finally got the kid to stand still. His wife. His ex-wife now, but his wife back then, and I'd married them myself.
+"You crazy son of a bitch," he says. "You actually did it."
 
-That's a true thing — I'd gotten ordained online in about four minutes, Reverend Clay, and stood up in a backyard and married my friend to the woman he loved and meant every word of it. None of us out there could have guessed how all of it would end. You never can.
+He says it like flying north to outrun two warrants and a toxic woman is an accomplishment. It isn't. It is a symptom.
 
-Steven was also, technically, an MMA fighter — a bad one, and I say that with love. He went in every time with the same reckless joy and the same wide-open chin, got his lights turned off in front of a crowd, and laughed about it in the car on the way home with a bag of ice on his face. He could walk into any room in any town and own it inside of five minutes — all teeth and trouble and that laugh. People just wanted to be near it.
+We stand at the carousel. We watch the black rubber belt go around. And around. Until it is just the two of us and one orphaned car seat. A woman from the airline tells me my suitcase is somewhere over Canada. Or Seattle. Or the bottom of a lake. She tells me to come back tomorrow.
 
-Back in the day, his wife and mine were friends. They'd had a daughter right around the time we had ours, so the four of us were locked in — perfect hangout buddies, kids the same age, a built-in Saturday night. We'd pool our cash and order the UFC pay-per-view and get good and drunk, and somewhere in the third fight Steven would decide it was time to teach me a hold, and the night would dissolve into the two of us wrestling around the living room while the women rolled their eyes. I set his routes all week. He fed me beer all weekend. We were close in the easy way you only manage in your twenties and thirties, before life starts charging admission.
+Welcome home. The state hasn't had me back four minutes, and it is already holding my life hostage.
 
----
+Steven laughs. "Come on. It’ll be here tomorrow. Let’s get you to your castle."
 
-He'd driven up from Kenai to get me, a couple hours south, and he stayed the night in the Airbnb so I wouldn't be alone my first night back. We got all the way fucked up. Sat up till the windows went grey talking about what in the hell I was going to do with myself up here, and the more we drank the better the plan sounded, the way it always does at four in the morning.
+Steven is my buddy from the FedEx home-delivery terminal. Another lifetime ago. I built the routes. He drove them. A wild, sweet, reckless kid from Oregon. He never told me a lie. That is more than I can say for most of the people I have loved.
 
-There was just one splinter under the whole thing I couldn't quite leave alone. I still had a job — a remote gig I'd lined up to carry north with me, my whole survival theory in one neat package — and I was supposed to have worked that day. But when I'd gone to log in, my credentials were dead. Not wrong. Dead. Like somebody had reached into the system and scooped me out of it. *One day,* I kept saying to Steven. *I miss one day and they erase me? They don't even want to hear what happened?* Shit happens to people. I figured it was a glitch. I figured I'd straighten it out Monday.
+He is a bad MMA fighter. I say that with love. He walks into the cage with reckless joy and a wide-open chin. He gets his lights turned off in front of a crowd. He laughs about it on the ride home with a bag of ice pressed to his swelling face.
 
-It was no glitch. Alisha had gotten into my email and written my employer a nice long letter from my own account in those forty or so minutes she disappeared behind that door — all about the arrest, all about the warrant waiting on me back in Ohio, every ugly thing she had, signed in my name and mailed off with a bow on it. Her parting gift. I wouldn't find that out until Monday, and by then it wouldn't matter, because by Monday I'd have made my peace with being free instead of paid and owned. But that's getting ahead of it.
+Ten years ago, his wife and my wife were friends. I got ordained online in four minutes to marry them in a backyard. I meant every word. None of us knew how it would end. You never do.
 
-Steven left the next afternoon. We'd swung back by the airport that morning and, would you believe it, the suitcase had wandered home — the one piece of luck I'd catch all week. He had to be back on the clock Monday, so we said our goodbyes in the gravel lot, another man hug, another *I'll see you soon* that neither of us entirely believed, and then his truck pulled out and it was just me. Me, a suitcase, fifteen hundred-some dollars, and a place to stay for exactly two weeks.
+Back then, we'd pool our cash. Order the UFC fight. Drink cheap beer until Steven decided to teach me a chokehold on the living room floor. He fed me alcohol. I set his routes. We were close. The kind of close you only get before life starts charging admission.
 
-I wasn't worried. God, I was never worried. That was the whole disease in one sentence. I had money in the bank and a roof and two weeks of nothing but Alaska in front of me, and I decided, right there in that empty lot, that I was going to enjoy every minute of it before I lifted a finger to save my own life.
+He drove two hours from Kenai to get me.
 
----
+We stay the night at my Airbnb. We get completely, fundamentally fucked up. We drink until the windows turn grey. We talk about what I am going to do with my life. At four in the morning, the plan sounds brilliant. It always does.
 
-Here's a thing I didn't know about my new castle, because I hadn't bothered to learn it: my Airbnb sat dead in the heart of Mountain View, which I'd find out soon enough holds the highest rates of violent and property crime in the entire city. The single most dangerous neighborhood in Anchorage, and I'd booked it sight unseen because the price was a steal.
+But there is a splinter.
 
-It was a steal for a reason. Leave it to me to do exactly zero research. My research had consisted of one search and one conclusion: *oh — there's a liquor store and a dispensary inside walking distance. What a find.* That was it. That was the whole due-diligence file on the place I'd chosen to lay my head in a city I was supposedly running to for safety. A drunk's idea of location, location, location.
+I have a job. A remote gig I packed and carried north. My whole survival theory in one neat package. I was supposed to work today. But when I tried to log in, my credentials were dead. Not wrong. Dead. Like somebody reached into the system and scooped me out.
 
-So for a solid week I went strolling through the most dangerous quarter-mile in Anchorage like a tourist in a snow globe — visibly hammered, visibly stoned, hauling fat bags of groceries in one hand and a twelve-pack swinging from the other, broad daylight, smiling at everybody. Never got touched. Never got hassled. I have spent my whole life walking into rooms I had no business walking out of, and walking out anyway, and somewhere along the line I'd mistaken that dumb luck for some kind of protection. It is not protection. It's just the house letting you keep playing.
+I tell Steven it is a glitch. "I miss one day and they erase me?" I say. I tell him I will fix it on Monday.
 
-The days, though — the days were honest-to-God good. I'd get up, hit the dispensary and take a cab or walk out to whatever trailhead looked best and climb until my legs quit, up into that thin clean air where the city shrank to nothing behind me and for an hour at a time I'd forget I was a man with two warrants and no job and a woman three thousand miles away still finding ways to gut me. There's a stretch of country up there that does not care what you've done, and standing in the middle of it was the closest I came to clean. Then I'd come down off the mountain, come home to the most dangerous block in town and start drinking.
+It is no glitch.
 
-Evenings I'd walk the three miles into downtown and post up at the local pubs for dinner and a long night of it. I'd fall in with whoever was around, locals mostly, swap stories, collect a phone number or two off some woman I had no intention of ever calling. Just drunken bullshit, the warm and weightless kind, the kind that feels like a life if you don't look at it straight. No fights. No cops. No Alisha. For the first time in longer than I could remember, nobody was trying to put me in a cage. I mistook the quiet for peace. It was just the run-up.
+Alisha got into my email. In the forty minutes she was locked behind that door in Vegas, she wrote my employer a letter. From my account. She outlined the arrest. She attached the Ohio warrant. She signed it with my name.
 
----
+Her parting gift.
 
-Week two came fast, the way the good ones always do. I checked my balance one morning and the fifteen hundred had melted down under a thousand — eight hundred and change, if I'm being exact, and I tend to be exact about the moment the money runs out. Seven days left on the Airbnb. No job, no plan, no next roof. The first cold finger of *oh shit* finally reaching me through all that mountain air and cheap beer.
+I won't find this out until Monday. By Monday, I will have made my peace with being free instead of being paid. But that is getting ahead of the story.
 
-Time to find work. And I found it fast — faster than a man in my shape had any right to. Solar company, hiring appointment setters, and I swear to you the ad read like it had been written and aimed straight at me by something that knew exactly where I'd come from. *Mini-vacation sales reps strongly urged to apply.*
+Steven leaves the next afternoon. We go to the airport. The suitcase wandered home. The one piece of luck I catch all week.
 
-Mini-vacation. The exact words. The whole Vegas racket I'd just burned to the ground and fled, advertised back to me in a job posting at the top of the world, like the machine had followed me north and was politely holding the door. A hundred dollars an appointment set on a credit pass, plus commission off the backend, paid daily. *Paid daily.* I read it twice. Same animal, prettier coat, two thousand miles from the desert I thought I'd left it in.
+Another man-hug in the gravel lot. Another "see you soon" neither of us believes. His truck pulls out.
 
-I applied that night. Next day I was on a video call with one of the owners — a guy named Manny, Vegas-bred to the bone, I could hear the desert on him inside of ten seconds. It wasn't an interview so much as two men from the same racket recognizing each other across two thousand miles of nothing. He never once asked why I'd left Nevada. Men like Manny never do; the not-asking is the whole job description. He liked what he heard, told me to come on in, and I was on the phones by Wednesday.
+It is just me. Me, a suitcase, fifteen hundred dollars, and a place to stay for exactly two weeks.
 
-I told myself it was just money. Just a paycheck to keep the lights on while I figured out the rest. I'd been the best closer in a room full of closers; setting appointments in Anchorage was beneath me, but it was easy, and easy was exactly what I needed.
+I am not worried. I am never worried. That is the disease in one sentence. I have money. I have a roof. I have Alaska. I decide, right there in the gravel, that I will enjoy every minute of it before I lift a single finger to save my own life.
 
-What I didn't tell myself — what never once crossed my mind — was that I was walking back onto a sales floor the way I'd walked onto every floor for six years: dead certain I was the most dangerous man in the building. I knew every opener and every takeaway, every soft spot in a pitch where a person's wanting gets out ahead of their good sense, because I'd spent my whole life living in those soft spots and getting fat there. When you've run every move there is, you stop being moveable. Nobody can work you, because you've seen the wire from both ends and there's nothing left on it that can surprise you. A closer doesn't get closed. That was the one article of faith I never thought to question.
+Here is a fact I didn't bother to learn about my new castle.
 
-And then somebody reached me anyway. Not from across the floor — through it. She came down the same wire I thought I owned, a voice on a transferred call, and she wasn't pitching me and she wasn't faking one single word of it. The most unmovable man in the building was about to go down harder, and more honestly, than he ever had for anybody — over a woman he wouldn't so much as lay eyes on for three years. I'd built a whole life out of never being moved. I had no idea I was about to be moved all the way to Mexico.
+My Airbnb sits dead in the heart of Mountain View. The single most dangerous neighborhood in Anchorage. The highest rates of violent crime in the city. I booked it sight unseen because the price was a steal.
+
+It was a steal for a reason.
+
+My research consisted of one Google search: "Is there a liquor store and a dispensary in walking distance?"
+
+Yes.
+
+Perfect.
+
+The drunk's version of due diligence. Location, location, location.
+
+For a solid week, I stroll through the most dangerous quarter-mile in Anchorage like a tourist in a snow globe. Visibly hammered. Visibly stoned. Carrying fat bags of groceries in one hand and a twelve-pack in the other. Broad daylight. Smiling at everyone.
+
+Nobody touches me. Nobody hassles me.
+
+I have spent my whole life walking into rooms I have no business walking out of. I always walk out. I mistake this dumb luck for protection. It is not protection. It is just the house letting you keep playing.
+
+The days are good. Honest-to-God good.
+
+I wake up. I hit the dispensary. I take a cab to a trailhead and climb until my legs quit. I get up into the thin, clean air where the city shrinks to nothing. Up there, I forget I am a man with two warrants and no job. I forget the woman three thousand miles away trying to gut me. There is a stretch of country up there that does not care what you have done. It is the closest I come to clean.
+
+Then I come down off the mountain. I walk back to the most dangerous block in town. And I start drinking.
+
+I walk three miles downtown. I post up at local pubs. I swap stories with strangers. I collect phone numbers from women I will never call. Warm, weightless, drunken bullshit. The kind that feels like a life if you don't look at it straight. No fights. No cops. No Alisha. Nobody trying to put me in a cage.
+
+I mistake the quiet for peace. It is just the run-up.
+
+Week two.
+
+The fifteen hundred melts down to under a thousand. Eight hundred and change. I am always exact about the moment the money runs out.
+
+Seven days left on the Airbnb. No job. No plan. No roof.
+
+The first cold finger of reality touches my spine.
+
+Time to find work. I find it fast. Faster than a man in my shape has any right to.
+
+A solar company. Hiring appointment setters. The ad reads like it was written directly to me. By a machine that knows exactly what I am.
+
+Mini-vacation sales reps strongly urged to apply.
+
+Mini-vacation. The exact words. The Vegas racket I just burned to the ground. Advertised back to me at the top of the world. The machine followed me north and is politely holding the door open. A hundred dollars an appointment. Commission on the backend. Paid daily.
+
+Paid daily. I read it twice. Same animal. Prettier coat.
+
+I apply. The next day, I am on a video call with Manny. One of the owners. Vegas-bred to the bone. I hear the desert on him in ten seconds.
+
+It isn't an interview. It is two men from the same racket recognizing each other across two thousand miles. He doesn't ask why I left Nevada. Men like Manny never ask. Not asking is the job description.
+
+He likes me. I am on the phones by Wednesday.
+
+I tell myself it is just money. A paycheck to keep the lights on. I am the best closer in a room full of closers. Setting appointments is beneath me. But it is easy. Easy is exactly what I need.
+
+What I don't tell myself is this: I am walking back onto a sales floor the way I always do. Dead certain I am the most dangerous man in the room.
+
+I know every opener. Every takeaway. Every soft spot in a pitch where a mark's wanting outruns their good sense. I have spent my whole life living in those soft spots. Getting fat there. When you run every move there is, you stop being moveable. Nobody can work you. You see the wire from both ends. Nothing surprises you.
+
+A closer doesn't get closed. That is the one article of faith I never question.
+
+And then somebody reaches me anyway.
+
+Not from across the floor. Through it.
+
+She comes down the same wire I think I own. A transferred call. She isn't pitching me. She isn't faking a single word.
+
+The most unmovable man in the building is about to go down. Harder and more honestly than he ever has. Over a woman he won't see for three years.
+
+I built a life out of never being moved.
+
+I have no idea I am about to be moved all the way to Mexico.

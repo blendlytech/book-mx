@@ -1,74 +1,109 @@
-# Chapter 1
+I have two active bench warrants. I have no passport. I have a one-way ticket to San Diego.
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: Cleveland Hopkins International Airport (Cleveland, OH) $\rightarrow$ San Diego, CA $\rightarrow$ Calexico/Mexicali Border — bound for a Mexicali rehab where Glenda is two months sober.
-> - **Timeline**: Summer 2024 (≈3 years after meeting Glenda; ~4 years out of Vegas)
-> - **Characters**:
->   - **Clay**: The narrator, an active alcoholic running from his warrants and past — selling himself a three-in-one fantasy: get sober, get the girl, get paid.
->   - **Josh**: Clay's childhood friend who got sober, served in the Army, and built a stable life; hears the whole plan on the drive and doesn't believe a word.
->   - **Glenda**: Clay's online girlfriend of 3 years, never met in person. A Mexican English teacher (fluent, no accent) and former solar opener — the active alcoholic who fell for Clay over drunken transferred calls, and who, two months before the flight, got sober and checked into a Mexicali rehab.
->   - **Jo**: Glenda's sister, who is supposed to pick Clay up in San Diego.
->   - **Zaul**: Director of the Mexicali rehab and Clay's partner in the call-center deal.
-> - **Key Conflicts**:
->   - Escaping two active bench warrants (DUI in Ohio, protection-order violation in Las Vegas).
->   - Crossing the Mexican border illegally due to lack of a passport.
->   - Chasing a newly-sober Glenda as a still-active drunk — the roles reversed for the first time in three years.
->   - The deal: building a solar call center staffed by sober rehab residents — installing the exact machine that fueled his addiction inside the one place built to cure it.
+This is how you ruin your life by age thirty. Pay attention.
 
----
+The plan is a chemical equation. Step one: get sober. Step two: get the girl. Step three: get rich. Three birds. One cheap flight. The problem is, when you cram that many moving parts into a single idea, it stops being a plan. It becomes an improvised explosive device.
 
-I'm sitting on a one-way plane to San Diego to meet my girlfriend of three years — a woman I have never once met in person. Glenda. Three years of daily, intimate conversations and many, many drunken fights through a screen, and I have never been in the same room as her. On the other end, her sister Jo is supposed to be coming to get me.
+And I’m the one holding the detonator.
 
-And for once I wasn't flying somewhere just to run. I had a plan this time — a real one, with moving parts and other people's money in it. I was going to get sober. I was going to build something that paid me while I slept. And I was going to get the girl. Three clean birds, one cheap one-way flight. I had it worked out to the last detail, which, if I'd been paying the slightest attention to my own life, should have been the first clue the whole thing was built to come apart.
+My destination is Calexico. It isn't a town. It’s an open wound on the border, a dusty scab where the American Dream bleeds out into Mexico. From there, I’ll cross illegally into Mexicali. No passport. No problem. Just another problem to toss onto the burning pile of problems I call my life.
 
-I've spent a lifetime making bad choices — going left when a normal person would've gone right, every single time. This is just the longest left turn yet.
+I am going to meet Glenda.
 
-From San Diego it's a ride out to the Calexico–Mexicali border, where I'll cross illegally into Mexico. What, you didn't think I'd have a passport, did you? Yeah, right.
+Glenda is my girlfriend of three years. We talk every day. We share our deepest, ugliest secrets. We have screaming, black-out drunk fights through the glowing, cracked screen of a smartphone.
 
----
+And I have never once touched her skin.
 
-My best friend Josh drove me to the Cleveland airport this morning. We'd been friends since we were kids, lived together off and on, fought our own war with alcohol and cocaine side by side — except Josh climbed out. Four years in the Army, a business degree, a six-figure job, a house full of kids, a place he built with his own hands on a big plot of land outside the town we grew up in. He still drank, but like a normal person. He had the whole white-picket-fence life — the one I never actually wanted, but the one he'd spent years showing me how to get.
+The morning starts in Josh’s truck. The heater blasts the damp, dying breath of an Ohio winter against my face.
 
-He was not thrilled. He'd spent the entire drive listening to me pitch it — the girl, the rehab, the call center, the percentage, the whole sober new life waiting on me down in the Mexican desert — and Josh had been on the receiving end of my pitches since we were sixteen years old. He knew the tell better than I did: the more moving parts I bolted onto a plan, the closer I was to driving it off a cliff. He didn't argue. He just went quiet, which from Josh was louder than yelling. "I'll probably never see you again," he said when he dropped me off. Sure you will, I told him. I'll be okay — I've got it all figured out this time. We gave each other a man hug, and he watched me walk into the airport, and I could feel him not believing one word I'd said.
+Josh has been my best friend since we were kids. Josh used to be me. We drank the same cheap beer. We snorted the same white lines off the same dirty toilet tanks. We ran from the same cops. But Josh found the exit wound. He climbed out. Four years in the Army. A degree. A six-figure job. A house built with his own two hands. He has a wife. He has kids. He has a lawn he actually waters.
 
-The airport smelled like stale coffee and stale air, something I'm not sure I'd ever really smelled before. The seats were hard blue plastic, the floor a dull gray tile. I'd taken a hundred flights in my life and never noticed any of it; this time I noticed everything. Maybe because I wasn't sure I'd ever set foot in Ohio again — or the United States, for that matter. I had two active bench warrants on me, a DUI in Ohio and a protection-order violation in Vegas, and no intention of ever answering either one. Running from my problems was the one thing in life I'd truly mastered. This time I told myself it was different. This time I wasn't running away from something — I was running toward it. That's what I told myself. I'd gotten good at telling myself things.
+He is the living, breathing brochure for recovery. And right now, he is looking at me like I am a terminal disease.
 
-I'd met Glenda three years back working a phone for a solar company — she was an opener, I was a closer. She worked out of Mexico; I worked out of the States. She taught English down there for a living and spoke it better than I do, not a trace of an accent on her — which is exactly what made her such a clean opener on an American line, and what made it so easy to forget, three years running, that there was an entire country and a border full of guns between us. How it actually started — the first call, the first time her voice came down that wire and got into me — belongs to another chapter in this book, and I'll give you the whole of it when we get there. What matters on this plane is just the shape of it: three years of us, built on a phone line, a computer screen, and an open bottle on both ends of every call.
+"A call center," Josh says. He grips the steering wheel. His knuckles are white bone pressing against skin. "Inside a Mexican rehab."
 
-Then, two months before I ever booked the flight, Glenda did the one thing the two of us had never once managed together: she put the bottle down. Checked herself into a place in Mexicali and got sober and stayed that way — sixty-some days and counting, while I was still closing out bar tabs in Ohio. That was the crack the rest of it poured through. Her getting clean is what turned a three-year drunken phone-fling into a reason to sell off the last of what I owned and go. She'd climbed out from under the thing that was killing both of us, and I told myself I was flying down to climb out right behind her — to get sober in the gravity of that place without ever checking myself into one of its beds, which is exactly the kind of fine distinction only an addict ever bothers to draw. I told myself a lot of things; I believe I've mentioned that.
+"It’s a win-win," I say. I pitch it with the frantic, sweat-soaked energy of a salesman who needs to believe his own bullshit. "The rehab director, Zaul, gets a cut. The residents get jobs. They speak perfect English. Deportees. Teachers. Like Glenda."
 
-Here's how a man like me hears a miracle, though: as an opening. Glenda sober was the best news I'd had in years. Glenda sober inside a Mexicali rehab packed with other English-speaking addicts drying out with nothing to do all day and all night — that, to the part of my brain that never once stopped running an angle, was a business. So before I bought the ticket I got on the phone with the director of the place, a man named Zaul, and with the solar outfit I was still closing for back in the States, and I brokered the whole thing off my couch. I'd come down and build them a call center inside the rehab. Staff it with the residents — sober, sharp, bilingual, dirt cheap, and going nowhere — and turn them into appointment setters feeding the sales floor in South Carolina. I'd set it up, train them, run the room until it hummed, then train my own replacement and walk away still drawing a percentage off every deal those calls closed, from anywhere on earth, for as long as it ran. Residual money off a room full of recovering addicts dialing for dollars. Until the wheels fell off — praying, the way I'd prayed at every table I ever sat down at, that the wheels would simply never fall off.
+I swallow hard. "And I'll get sober."
 
-I thought it was the smartest thing I'd ever drawn up. It did not cross my mind one single time — not on the couch, not at the gate, not at thirty thousand feet — that I was hauling myself two thousand miles to install the exact machine that had made a drunk out of me inside the one building in Mexico built to get people clean. Glenda included. Me, supposedly, included.
+"In the gravity of the place," I tell him. "Osmosis. I’ll be surrounded by it. I don't need a bed. I just need to breathe the same air."
 
-In a few hours, on my layover, I'll get her on Facebook video one last time before I'm standing in front of her in the flesh. Both of us nervous. Neither of us quite believing it.
+Josh doesn't argue. He doesn't sigh. He just goes quiet. If you know Josh, you know his silence is heavier than concrete.
 
----
+When he pulls up to the curb at Cleveland Hopkins International Airport, he doesn't put the truck in park. He just stares straight ahead through the windshield.
 
-The layover is somewhere in the middle of the country, one of those airports that could be any airport — gray carpet, an overpriced bar, recycled air that tastes like everybody else's breath. I find a stool before my second flight and order a well vodka, because it's the middle of the afternoon and I've still got a border to cross sober-ish. The bartender doesn't care. Nobody here cares. That's the thing about airports: you're nobody, headed nowhere anyone can name.
+"I'll probably never see you again," he says.
 
-I pull up Facebook and hit the little camera.
+"Sure you will," I say. I offer a grin that feels like a facial tic. "I’ve got it all figured out this time."
 
-She answers on the second ring, and there she is, filling my screen, the picture stuttering to catch up with itself. But behind her isn't the kitchen I'd spent three years staring into — no counter, no lamp, no bottle, none of the warm yellow light I'd learned her face by. It's a courtyard. Cinderblock painted the flat green of a hospital hallway, a white plastic chair, two women laughing somewhere off-camera, the kind of hard institutional daylight that doesn't do a single soul a favor. The rehab. Two months in and it's all over her — not the bad way, the worst possible way for me: she looks clear. Rested. *Present.* The only drink anywhere in the frame is the well vodka sweating in my own hand, down below the camera, where I tip it out of sight like she can't smell three years of me straight through the glass.
+We do the man-hug. Shoulder to shoulder. Two slaps on the back. I get out, pull my half-empty duffel bag from the truck bed, and walk toward the sliding glass doors. I can feel his eyes on the back of my neck. He is watching a dead man walking toward his own funeral.
 
-"You're really coming," she says. Not a question. And her voice does the same thing to me it did three years ago on a transferred call — except back then there was a drink in it, a loose warm slur I knew how to meet halfway, and now it comes across clean and level and certain, and it reaches a place in me the drunk version never got near. Somehow that's worse. Somehow that's the part that scares me.
+Cleveland Hopkins smells like burnt sugar, stale coffee, and quiet desperation.
 
-"Already in the air," I tell her. "Halfway there. Bag's checked and everything." I don't mention that the bag is half empty, or the warrants, or Josh's face in the rearview, or the vodka under the camera, or that I sold off the last of my life to be sitting on this stool. I just grin at the screen like a man who's got it handled.
+I sit on a hard blue plastic seat. I watch the TSA agents. My chest is a tight, vibrating drum. Technically, I am a fugitive. An active DUI warrant in Ohio. A protection-order violation in Las Vegas. Every time a blue uniform walks past, my heart kicks my ribs. I am running. I have been running my entire life. But this time, I tell myself, is different. I am not running from something. I am running toward something.
 
-The lag catches her mid-smile and freezes her there, pixelated — a woman I've spent three years loving and exactly zero seconds touching. I could put my thumb straight through the screen, and that is the closest I have ever come to her face.
+Self-deception is a beautiful thing. It is the ultimate painkiller.
 
-Then the picture jumps and she's talking fast — about Jo, about the drive, about what we're going to do when I finally get there — and out of three years of pure animal habit I brace for the turn. I know exactly where it used to live: that spot mid-sentence where the drink flipped her from sweet to something with teeth, where a good night curdled into a fight neither of us would remember in the morning. We had a thousand of them through this exact screen. I flinch for it the way you flinch at a raised hand.
+I met Glenda three years ago. A voice through a headset. I was a closer for a solar company in the States; she was an opener working out of Mexico. An English teacher. She spoke English better than I did. No accent. Just a clean, surgical voice that could cut a checkbook out of a stranger's pocket. It was easy to forget the fence, the guards, the razor wire between us.
 
-It doesn't come. It can't — she poured it out two months ago and left it at the door of that place behind her. She just goes quiet, and looks at me, and says, "I can't believe you're going to be here."
+We fell in love over static and liquor. We drank together. We argued together. We woke up hungover together, separated by two thousand miles of black asphalt and a border wall.
+
+Then, two months ago, Glenda did the unthinkable.
+
+She got sober.
+
+She checked into a rehab in Mexicali and stayed there. Sixty days clean. While I was still swallowing well vodka in Ohio dive bars, she was rebuilding her cells. Her sobriety broke the universe. It changed the math. I couldn't be the drunk boyfriend anymore. I had to catch up. I had to match her.
+
+So I sold everything I owned. I called the rehab director. I set up the solar deal. I bought a one-way ticket. I am going to install the very machine that ruined my life—a telemarketing sales floor—inside the building meant to save hers.
+
+Chicago layover. O'Hare. One of those massive, anonymous human processing plants where everyone is going somewhere and nobody looks you in the eye.
+
+I find an airport bar with tables sticky as flypaper. I order a well vodka. It is barely noon, but my hands are vibrating. I need a drink to stop the shaking, but I need to cross the border sober-ish. "Sober-ish" is a sliding scale when your blood is fifty percent ethanol.
+
+I pull out my phone. I hit Facebook video.
+
+She answers on the second ring.
+
+The screen flickers. Pixels rearrange themselves into a face. But the background isn't the warm yellow kitchen I’ve spent three years staring at. It is a cinderblock courtyard painted institutional green. The sun is a harsh spotlight.
+
+And Glenda looks... different.
+
+Her eyes are clear. The puffiness in her face is gone. She looks rested. She looks real. The only drink in the frame is the vodka sweating in my own hand, which I keep carefully below the camera's eye.
+
+"You're really coming," she says.
+
+Her voice isn't the loose, warm slur I am used to. It is steady. Surgical. It reaches a part of me that the drunk version of her had never been able to touch. And that terrifies me.
+
+"Already halfway there," I say. I flash my best salesman smile. "Bag's checked. No turning back."
+
+I don't mention the warrants. I don't mention Josh's face in the rearview mirror. I don't mention that I have exactly enough money to get to San Diego and not a dime more.
+
+The screen freezes, trapping her mid-laugh. I stare at the frozen pixels. I have loved this woman for three years. I have never touched her skin. I press my thumb against the cold glass. That is the closest I can get.
+
+The picture jumps back to life. She is talking fast, detailing the plans for her sister Jo to pick me up, where we will go, what we will do. My body braces for the impact.
+
+In the old days, our conversations had a pattern. Start sweet. Let the alcohol take over. The tone shifts. The teeth come out. I flinch, waiting for the blow.
+
+But it doesn't come. The booze is gone. She is clean.
+
+"I can't believe you're going to be here," she says softly.
 
 "Believe it," I say.
 
-And God help me, I do.
+And for a fraction of a second, I actually do.
 
-They call my row before I'm ready. No more late-night texts, no more drunken fights through a screen — that whole era of us ending in a boarding announcement. After this she stops being a girl who lives in my phone and becomes a woman I have to stand in front of in the flesh — and it is going to be fucking weird, and I want it so bad I can taste it over the vodka. I hang up first. I always hang up first; it's the one part of any call I still get to control. Then I carry the quiet down the jet bridge like something I might spill.
+The overhead speakers crackle. They call my boarding zone.
 
----
+"I gotta go," I say. I always hang up first. It's a survival tactic. You hang up first, you control the ending.
 
-I buckle in, close my eyes, and let the plane fill up around me. A stranger waiting for me at the border. Two warrants behind me. A woman I've never once touched, sober now in a way I am nowhere close to, waiting at the end of it. A call center to build inside a rehab. None of it would make sense to you, and most days it didn't make much sense to me either — not unless you understand where it came from. And it didn't start with that first transferred call when I met Glenda. It started in Vegas. That's where the old me died. I just didn't have the decency to bury him for another four years.
+I stand up. I swallow the rest of the vodka. I walk down the jet bridge. The air is cold. It smells like jet fuel and ozone.
+
+I buckle myself into 18B. I close my eyes.
+
+A stranger waiting in San Diego. Two warrants behind me. A sober woman waiting in a Mexican rehab. A business plan built on the backs of recovering addicts.
+
+It sounds insane. It is insane. But to understand how I ended up on this plane, you have to understand where the infection really started.
+
+It didn't start with Glenda. It started in Las Vegas.
+
+That is the city where the old me died. I just hadn't had the decency to bury him yet.

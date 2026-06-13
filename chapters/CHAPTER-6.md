@@ -1,96 +1,211 @@
-# Chapter 6
+The door buzzes me out at two in the morning.
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: Anchorage, AK, in the dead-lit hours after a 2 a.m. jail release — the county-lockup parking lot, an eleven-mile stretch of cold city between Clay and the DMV, and the public-library computer waiting at the end of it as his one line back to the outside world.
-> - **Timeline**: Late June 2021 (Thursday), picking up the instant Chapter 5 ends — Clay walks out of jail at 2 a.m. with no ID, no money, no phone, a five-day head wound, and a protective order, and sets out on foot to rebuild an identity from zero: a night of aimless wandering, the Mike detour into a treatment-center group home, two sets of bad cop directions, and finally the eleven-mile arrival at the DMV, where a clerk's folded twenty buys back his name.
-> - **Characters**:
->   - **Clay**: The narrator, dumped onto the street with nothing left to his name but a single signed form and the long walk it points him toward.
->   - **The releasing officer**: Hands Clay the one mercy of the whole ordeal — a pre-signed voucher good for a free state ID.
->   - **Family & the employer (distant)**: The two lifelines on the far end of a library keyboard — the reason the ID matters at all.
-> - **Key Themes**:
->   - Proving you exist: a man with nothing left trying to get the state to certify, on a laminated card, that he's a person.
->   - Bureaucracy as the only lifeboat: the same machinery he's spent his life dodging is suddenly the one road back.
->   - Still betting at the bottom: the gambler's reflex intact even now — pointing himself at an eleven-mile long shot because the only edge he ever had was the house letting him keep playing.
->   - Reaching back: the runner finally forced to turn around and ask the family and the job he fled to help him.
+The sky is the color of a three-day-old bruise. It is never dark here. Late June in Alaska. Just a cold gray glow hanging over the city like the house lights coming up at last call. Bright enough to see by. Too late to save you.
 
----
+I stand in the parking lot. A t-shirt stiff with my own dried blood. Torn shorts. A head wound five days deep.
 
-The door buzzed me out into the parking lot at two in the morning, and the sky was the color of a bruise that couldn't decide whether to heal. That's Alaska in late June. Not dark — never dark — just dimmed down to a cold gray glow that hangs over everything like a dance clubs house lights coming up right before they sweep you out the door. Bright enough to see by. Too late to do me any good.
+Inventory: No wallet. No phone. No ID. No cash. Out there in the dark, a stranger is swiping my debit card. Bleeding my ghost dry. I have a protective order barring me from the only door in the state that guards the exit from this nightmare.
 
-I stood there in a t-shirt I'd bled through and a pair of shorts and took the same inventory I'd been taking since the rose bush. No wallet. No phone. No ID — and no money, and a debit card out in some stranger's pocket spending the last of me. A protective order with my name on it, barring me from the only door in the state that guarded the exit from this nightmare. The nearest man who'd know my face was hours south in Kenai, asleep, and I had nothing to wake him with.
+Free. That is the punchline.
 
-Free, though. That was the punchline. I'd prayed at that door for four straight days, and now it was clicking locked behind me, and I understood — arms wrapped around myself in the bruise-light, shivering — that I'd been safer on the inside. They'd fed me in there. They'd kept the wind off. Alaska's finest establishment had been the steadiest roof I could have hoped for, and it had just spit me back out with less than I'd carried in.
+Four days I prayed at that steel door. Now it clicks locked behind me. I shiver in the bruise-light and realize the absolute joke of it: I was safer on the inside. They fed me. They kept the wind off. The county lockup spit me out with less than I carried in.
 
-There was one card left in the deck, and I'd damn near walked past it. On my way out the releasing officer had handed me a form, and it took me a long beat to understand that it was already signed — by me, in some fogged-over corner of booking I had no memory of, the same way I had no memory of the rose bush. Past me, blacked out and beat to hell, had put his name on the one piece of paper that was going to save present me's life. A voucher. Walk into a DMV with this, it said, and the state would cut me a replacement ID for free. No money required — which was a mercy, because money was a thing I no longer had any working concept of.
+I have one card left. A piece of paper the releasing officer handed me on the way out. A voucher.
 
-An ID. Stop and think about what that little rectangle actually is once everything else is gone. It's the state agreeing, in writing, that you're a person. With it I could find a public library, sit down at one of those computers, and throw a line back across the country to the only two things I had left: my family, and the job I was still praying to God hadn't already scraped me off its books. Without it I was a bleeding stranger in torn clothes, a thing the city steps around on the sidewalk. With it I was Clay again. That form was the whole bridge back to being somebody — and there I was holding it in a fist that still had jail under the nails, about to go ask the State of Alaska to put my name on a card, when that same name had a warrant, about to be two, hanging off it in two other places. And I wasn't worried about it. I was never worried — that was the engine of the whole disease, the thing that had idled me right into every cage I'd ever sat in. The form was free. I was about to be Clay again on paper. The warrants could take a number.
+It takes a minute to understand it. There is a signature at the bottom. My signature. Scrawled in some fogged-over corner of booking I have zero memory of. Same as I have no memory of the rose bush.
 
-The DMV was only 3 miles from that cell.
+Past me, blacked out and beaten to hell, signed the document that is going to save Present me. Bring this to the DMV, the paper says, and the state will print you a new ID. Free of charge. Which is a mercy. Money is a concept I no longer possess.
 
-Three miles. On foot, because every other way costs money and I was carrying the exact opposite of money.  The three miles was of no concern.  I could walk that on my hands. No coat. No water. No food. A torn shirt, filthy shorts, a head wound going on five days old — that was the problem.  And somewhere three miles out, a counter where a stranger would hand me back my own name. So I pointed myself at it the only way I had left, one foot and then the other, out into a city that didn't know me and didn't owe me, at the one hour even Alaska goes dim — betting all over again on the only edge I'd ever really had: that the house would let me keep playing a little while longer.
+Think about an ID. What it actually is. A laminated rectangle where the state agrees, in writing, that you exist. You are a person.
 
-For the first three hours I just moled around Anchorage. That's the only honest word for it — moled, no plan and no direction, a grown man burrowing in slow circles through a city he couldn't read. The releasing officer had rattled off directions to the DMV on my way out the door, and I'd nodded at every one and kept exactly none of them.  It was a fairly straight shot. It never once crossed my mind to ask him to write them down. There was no room in my skull for left-on-this, two-blocks-past-that — the whole thing had narrowed to a single blinking light, *what is happening to me,* two in the morning, homeless in Alaska, and that light burned up all the air. So I walked in the direction of the one counter in the city that could hand me my life back.
+With it, I can walk into a public library. Throw a line across the country to the two things I have left: my family, and a job that hopefully hasn't fired me. Without it, I am a bleeding stray. A smear on the sidewalk the city steps around.
 
-Somewhere around six I washed up on a sidewalk outside a gas station.  THe DMV seemed to be a place of fiction, as I had yet to run into it.  It wouldn't open for another three hours anyhow, so I wasn't sweating it. That's where Mike found me.
+There is a warrant attached to my name. Two, actually, in two other places. I don't care. That is the engine of the whole disease. The thing that idled me into every cage I ever sat in. I am about to be Clay again on paper. The warrants can take a number.
 
-He was a kid — twenties — and the first warm thing Alaska had pointed in my direction in five days. Walked right up and offered me a cigarette, then patted himself down and came up empty. No worries, he says — want me to buy you a pack? I said, um, sure, you sure? and he said, yeah man, I've been down on my luck, I know what it's like. I said thank you. That was the whole foundation of it. We had never had a conversation in our lives; he'd taken one look at the wreckage on that curb, read the entire week off me, and decided to be kind about it. And I'll be straight with you: in the shape I was in, I'd have followed that kid into a furnace. I'd have signed anything he slid across a table. I was that empty.
+The DMV is three miles away.
 
-He went in for the smokes and came back out with nothing — sorry, man, they wouldn't sell to me, they're changing the drawers, can't ring a thing up right now. But come back to my place, I've got cigarettes there. And I thought: why the fuck not. Dude seems nice enough. Which is, word for word, the same genius reasoning that had landed me on that curb in the first place.
+Three miles. On foot. No coat. No water. No food. I could walk that on my hands. Somewhere out there is a counter where a stranger will hand me back my own name.
 
-So we walked, and I emptied my whole story onto him as we went — the mugging, the rose bush, the cell, the door at two a.m. — and Mike just nodded and kept raising me. He owned a house, he said. Took in folks who were down on their luck, let them stay till they got back on their feet. I could stay too. Free. Use one of his trucks if I needed a store run, no problem at all. Every sentence out of his mouth was the exact sentence a drowning man is praying to hear, and I swallowed every one of them whole.
+So I put one foot in front of the other. Out into a city that doesn't know me and doesn't owe me. Betting all over again on the only edge I ever really had: that the house will let me keep playing just a little while longer.
 
-We got to the house and he started pointing out trucks and expensive-looking cars, several of them, all his, he says — and he points at a clean, newish Ford F-150: that one's yours to drive. And I stood there in my bled-through shirt and thought: this is it. This is the break. The universe finally slipping me a card off the bottom of the deck, at the lowest hour of the worst week of my life.
+For three hours, I mole through Anchorage.
 
-He took me inside, and this is the point where a man with a working head starts doing arithmetic. The people we passed weren't down on their luck. They were — I'll just say it — clearly not well. One grunted when Mike asked him for a cigarette. Another stared at me like I'd stolen something off him and was wearing it to his face. I saw all of it. I explained all of it away, because explaining away the plainly obvious was the one talent I never lost, not even at the bottom. This'll be your room, he says, and showed me the little garden out back — it was, I swear to God, kind of nice — laughing a big hysterical laugh that ran a few beats past where a laugh is supposed to stop. And I'm barely listening anymore, because I've already moved in inside my own head, asking him real practical: hey, could you run me to the DMV in a couple hours when it opens? Hell yeah. Housing solved. Wheels solved. The whole disaster solved by a stranger before breakfast.
+No plan. No direction. A grown man burrowing in slow circles through a city he can't read. The releasing officer rattled off directions. I kept exactly none of them. Left on this, two blocks past that. There is no room in my skull for a map. There is only a single blinking light: What is happening to me.
 
-Then a Cadillac pulled into the driveway.
+Around six in the morning, I wash up on a curb outside a gas station.
 
-The man who got out was in his fifties, Black, dressed sharp — the first person I'd seen all morning who looked like he belonged somewhere on purpose. He looked dead at me and said: "Get out of here."
+This is where Mike finds me.
 
-I looked around. I was the only one standing there. Mike had evaporated. And I became aware of the thing in my hand: the key to the front door. Mike's key, his own, that he'd pressed into my palm a few minutes earlier, swearing up and down he'd get himself another one.
+He is twenty-something. The first warm thing Alaska has pointed at me in five days. He walks up. Offers a cigarette. Pats his pockets. Empty.
 
-"Mike said I could stay here," I said. Mike — I'm fairly sure it was Mike; I would not put my hand on a Bible over it. The man told me this was his place. I launched into the speech — I got jumped, I got robbed, I just need — and he cut me off clean. This is a residential treatment center, he said. Mike isn't all there. And he made the universal sign for it, one finger circling at his temple. I'm sorry. You have to leave.
+"No worries," he says. "Want me to buy you a pack?"
 
-Unfuckingbelievable. I had been so far down, so starved for one single thing in this world to finally break my way, that I had walked into a group home for the mentally ill and let a sick man hand me a bedroom, a truck, and his own front-door key — and I had waved off every flashing red light on the way in, because the only other option was to stand still and admit I had nowhere on this earth to go. I couldn't even get angry. I started laughing somewhere down that driveway, and I laughed harder a mile or two later when I realized I was still carrying Mike's key — too far gone by then to walk it back, so I just kept it, one more thing I'd carried off from a place I had no business being inside of. I felt about as stupid as a man can feel and still keep putting one foot in front of the other.
+I say sure. Are you sure?
 
-Mike, for the record, was fucking insane. Not as an insult — in the full clinical, literal, finger-circling-the-temple sense of the word. He was the kindest anyone had been to me since I walked out of that cell — and not one piece of it was real.
+"Yeah man. I've been down on my luck. I know what it's like."
 
-So. Back to task one. Find the DMV.
+That is the foundation. We have never spoken. He reads the wreckage on the curb and decides to be kind. I am so empty I would follow this kid into a furnace.
 
-By Thursday morning the sun had done its full meaningless lap and come back around to an hour that finally counted for something — eight, nine o'clock, the DMV open for business somewhere out ahead of me. Somewhere. After Mike, I'd flagged down a cop on the side of the road, and I'll be honest about why: I wanted a ride. I told him the whole story and held up my life-saving slip of paper like a hall pass and waited on the cavalry. He drew me a map on a napkin. Crude little thing — north here, hang a left at a McDonald's, *good luck.* Thanks. Second cop of the week to hand me directions to my own life and then drive off in the warm.
+He goes in. Comes back empty-handed. They're changing the drawers. Can't ring it up.
 
-So north I went, and I'd been on my feet the better part of three hours when I finally understood the looks I was getting.
+"Come back to my place," he says. "I've got smokes there."
 
-I knew what I was. I'd caught myself in a window somewhere — bled-through shirt, filthy shorts, a five-day head wound, jail and gutter all over me. I looked homeless. I looked like a drug problem with legs. What I wasn't braced for was that the looks coming back at me weren't worried. Not one of them was concerned. They were disgusted — lip-curl disgusted, like I'd personally wrecked somebody's morning by committing the crime of standing where they had to see me. I went from being the most wanted man in the room. King of the castle. Fought over on WhatsApp. And now I was a smear on the sidewalk that decent people resented having to step around. That whole fall took about a week.
+Why the fuck not. He seems nice enough.
 
-Then the napkin quit making sense. The straight shot wasn't straight. The McDonald's I was supposed to turn at never came. I ducked into a commercial complex — office buildings — figuring anybody in there could just point me. First door was a real estate office, and I didn't get one full sentence out. *Get out.* That was the whole exchange. No explanation, no directions, just get out. Okay. Went great. Next door, an accounting firm; I asked the receptionist if she could point me toward the DMV, and she looked at me and shook her head, slow, *no,* like I'd asked her for a kidney.
+This is the exact genius reasoning that put me on the curb in the first place.
 
-I stood in that lobby thinking the dumbest little thought — how do you live in this town and not know where the DMV is? But that wasn't it, and I knew it wasn't. They knew exactly where it was. They just weren't going to be the one who turned a thing like me loose on it. I was an open sore, and nobody wanted to inflict me on the poor clean Department of Motor Vehicles.
+We walk. I bleed my whole story onto him. The mugging. The rose bush. The cell. The door at two a.m.
 
-The third door was a construction office, and that's where the morning cracked open a half inch. A woman in there — kind, not a flicker of judgment in her face, the first face like that I'd seen since Mike, and this one was real — told me I was about two miles off and walking the wrong way; I needed to cut a mile west. I showed her the napkin, and she actually winced. *Oh, no — that's way over here.* The cop hadn't just sent me short, he'd sent me sideways. If I'd kept trusting his map I'd have walked north till I hit the Arctic, because the McDonald's he drew didn't exist. I thanked her and turned west — two more miles, the right ones this time.
+Mike nods. He raises me. He owns a house, he says. Takes in folks down on their luck. I can stay. Free. Use one of his trucks. Every sentence is exactly what a drowning man is begging to hear. I swallow the whole hook.
 
-And I found it. The DMV. An actual building, an actual sign, and for the first time since the rose bush my chest came loose, because this was the part where it turned. I took a ticket like a person. Stood in line like a person. Waited on my number like a man about to get his name handed back to him. They called it. I walked up and slid my paper across the counter.
+We get to the house. He points at the driveway. Several cars. "That Ford F-150 is yours to drive," he says.
 
-She read it. And she said: I'm sorry, sir — you've checked the box here that says you refuse any form of assistance, including this free ID.
+I stand there in my bloody shirt. This is it. The break. The universe dealing from the bottom of the deck.
 
-I said no. No — why would I do that, I didn't understand what I was signing, it's a mistake, that's obviously a mistake. The words came out of me faster and smaller. Please. I got jumped, I got robbed, they took everything I own, I'm not — I'm not homeless, I've got a job, I'm just locked out, this is all I've got left, I don't know what I'm supposed to do now. It's over if I don't get this. She said, I'm so sorry, sir. There's nothing I can do. She said it twice, and the second time I could see all the way into her face that she meant it, that it cost her something too. That's the part I keep landing on. She wasn't the wall. She just stood at it.
+He takes me inside.
 
-Because the same blacked-out hour in booking that had handed me my one saving grace had also reached up and checked the one box that canceled it. Same sheet of paper. Same pen. Past me signed my salvation and sabotaged it in the same blackout, and I never read a word of either one. There's my whole life on a single government form — I save myself and I ruin it without ever waking up.
+This is where a man with a working brain does the math. The people inside aren't down on their luck. They are completely out of their minds. One grunts for a cigarette. Another stares like I am wearing his stolen skin.
 
-I told her I understood. I thanked her — actually thanked her — and walked to the back of the room and dropped into a plastic chair and put my head down into my hands so the place couldn't watch me come apart. But it was coming. Fifteen dollars. That's what the card cost if it wasn't free, fifteen American dollars, and it might as well have been a million, because I didn't have fifteen cents. So this was how it ended. Homeless in Alaska, crying into my own filthy hands in a DMV. And God help me, the one thought that floated up through all of it was: well — at least I've still got a key to that house full of crazy people. Maybe I qualify now. Mind's finally broke enough. I think I finally qualify. I laughed, and it came out as the other thing.
+I ignore all of it. Explaining away the plainly obvious is my superpower. Even at the bottom.
 
-And then she was standing over me. The same clerk. *Can I see your paper again?* — soft. I handed it up without lifting my head, turning my face so she wouldn't have to watch what it was doing. *Wait here.* She walked off. I couldn't think of one thing left in me for anybody to take.
+Mike shows me my room. Laughs a huge, hysterical laugh that runs five beats too long. I ask him if he can run me to the DMV in a couple hours.
 
-She came back and pressed the paper into my hand, folded, and there was a look on her face I'll never lose — not a smile, something less sure than a smile, the face of a person who isn't certain she's allowed to do the thing she's doing. I unfolded it.
+"Hell yeah," he says.
 
-There was a twenty-dollar bill inside.
+Housing solved. Wheels solved. The whole disaster handled by a stranger before breakfast.
 
-That's when I cried for real — couldn't have stopped it with both hands. A woman behind a counter who owed me nothing, who'd just watched me beg and come apart and had every right to be finished with me, had folded a twenty into my own wrecked paperwork and handed me back my life over a fifteen-dollar fee. I was in shock. I think I got out a thank-you. I know I sat there and swore to myself, the way you swear things at the bottom of the world, that one day I would come back to Anchorage, find this woman, and buy her a house. I meant it more than I have ever meant almost anything.
+Then a Cadillac pulls up.
 
-I got the ID — and I use the word loosely, because what slid back across that counter wasn't the plastic card you're picturing. It was paper. A printed-out temporary you fold into your pocket, the real plastic one promised by mail to a post office address I could update when I got a real one. Who knows if I ever would. What I didn't know yet was how many doors a paper ID quietly refuses to open — that to most of this world a piece of paper is just one more thing a man could have faked, and I was about to spend a long stretch learning that the hard way. That bill would come due down the road. But it didn't matter to me that morning. It had my name on it, and my name was the whole war I'd come to win. Right then, it was enough.
+A Black man in his fifties gets out. Dressed sharp. He looks like he belongs on purpose.
 
-Fifteen dollars for the card, five left over. And here's the small, perfect joke at the end of it: I took that five into a McDonald's — the real one I was supposed to turn at, an actual McDonald's, just not on any street that cop ever drew — and bought myself a couple of McDoubles and ate them like communion. Then I asked the kid at the register how to get to the nearest library, pushed back out the door, and started walking again.
+He looks dead at me. "Get out of here."
 
-Same torn shirt. Same head wound. Same warrants, same protective order, same nothing in my pockets but a paper ID and two soft dollar bills. But I was carrying something I hadn't had in longer than I could remember and sure as hell hadn't expected to find at the bottom of a DMV: the plain, stubborn belief — restored against every last thing that morning had done to me — that people will catch you. Some of them. Sometimes. Just often enough.
+I look around. Mike has evaporated. I realize I am holding Mike's house key. He pressed it into my palm five minutes ago.
+
+"Mike said I could stay," I say.
+
+"This is my place," the man says.
+
+I launch into the speech. Jumped. Robbed. Just need—
+
+He cuts me off clean. "This is a residential treatment center. Mike isn't all there."
+
+He makes the universal sign. One finger circling the temple. "You have to leave."
+
+Un-fucking-believable.
+
+I am so starved for a break that I walked into a mental asylum and let a patient hand me a bedroom, a truck, and a front-door key. I ignored every flashing red light because the alternative was standing still.
+
+I start laughing halfway down the driveway. I still have Mike's key. One more thing I stole from a place I had no business being.
+
+Mike was clinically, literally insane. He was the kindest person in Alaska. None of it was real.
+
+Back to task one. Find the DMV.
+
+The sun does its meaningless lap. Eight o'clock. Nine o'clock.
+
+I flag down a cop. I tell the whole story. I hold up my voucher like a hall pass. I want a ride.
+
+He draws a map on a napkin. North here. Left at the McDonald's. Good luck.
+
+Second cop of the week to hand me directions and drive off in the heat.
+
+I walk north. Three hours. I finally understand the looks I am getting.
+
+I know what I am. I caught my reflection. Filthy. Bloody. A five-day head wound. A drug problem with legs.
+
+But the looks aren't worried. They are disgusted. Lip-curl disgusted. Like I committed a crime by standing where decent people have to see me. King of the castle. Fought over on WhatsApp. Now I am a smear on the pavement. The fall took exactly one week.
+
+The napkin stops making sense. The McDonald's never comes.
+
+I duck into a commercial complex. Real estate office. I don't get a full sentence out.
+
+Get out.
+
+No explanation. Just get out.
+
+Next door. Accounting firm. I ask the receptionist to point me toward the DMV. She shakes her head slow. Like I asked for a kidney.
+
+They know where it is. They just aren't going to unleash a thing like me on the clean, decent DMV.
+
+Third door. Construction office.
+
+A woman. Kind. No flicker of judgment. The first real face since Mike. She tells me I am two miles off. Walking the wrong way. I show her the napkin. She winces.
+
+"Oh, no. That's way over here."
+
+The cop didn't just send me short. He sent me sideways. The McDonald's doesn't exist.
+
+I turn west. Two more miles.
+
+I find it. The building. The sign.
+
+My chest comes loose. This is the turn. I pull a ticket. Stand in line like a person. They call my number. I slide the voucher across the counter.
+
+The clerk reads it.
+
+"I'm sorry, sir. You've checked the box here that says you refuse any form of assistance. Including the free ID."
+
+No.
+
+"No. Why would I do that? I didn't understand. It's a mistake."
+
+The words come out fast and small. Please. Jumped. Robbed. I have a job. I'm locked out. This is all I have. It's over if I don't get this.
+
+"I'm so sorry, sir. There's nothing I can do."
+
+I look at her face. She means it. It costs her something to say it. She isn't the wall. She is just standing at it.
+
+The same blacked-out hour in booking that handed me salvation also reached up and canceled it. Same form. Same pen. Past me signed the lifeline and cut it in the exact same blackout. I saved my life and ruined it without ever waking up.
+
+I tell her I understand. I thank her.
+
+I walk to the back of the room. Drop into a plastic chair. Put my head in my filthy hands.
+
+Fifteen dollars. The cost of a new card. It might as well be a million.
+
+This is how it ends. Homeless. Crying into my hands in an Alaskan DMV.
+
+One thought floats up: At least I have a key to the crazy house. I think my mind is finally broken enough to qualify.
+
+I laugh. It comes out like a sob.
+
+Then she is standing over me. The clerk.
+
+"Can I see your paper again?" Soft.
+
+I hand it up. I don't lift my head.
+
+"Wait here."
+
+She comes back. Presses the paper into my hand. Folded. She gives me a look I will never lose. Something less sure than a smile. The face of a person breaking the rules.
+
+I unfold the voucher.
+
+There is a twenty-dollar bill inside.
+
+I cry for real. Both hands.
+
+A woman who owes me nothing, who watched me beg and fall apart, folds her own money into my wrecked paperwork. She buys my life back over a fifteen-dollar fee.
+
+I sit there and swear to myself that one day I will come back to Anchorage and buy this woman a house. I mean it more than I have ever meant anything.
+
+I get the ID.
+
+It isn't plastic. It is paper. A printed temporary you fold into your pocket. I don't know yet how many doors a paper ID refuses to open. Most of the world sees paper as one more thing a man can fake. That bill comes due later.
+
+Right now, it doesn't matter. It has my name on it. My name is the whole war.
+
+Fifteen dollars for the card. Five left over.
+
+The perfect joke at the end of the world: I take that five into a McDonald's. The real one. I buy two McDoubles. Eat them like communion.
+
+I ask the kid at the register for directions to the public library. Push back out the door. Start walking.
+
+Same torn shirt. Same bloody head. Same zero in my pockets.
+
+But I am carrying the stubborn, stupid belief—restored against every piece of evidence—that people will catch you.
+
+Some of them. Sometimes.
+
+Just often enough.

@@ -1,177 +1,219 @@
-# Chapter 2
+They call my name.
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**:
->   - Clark County Court / County Jail (Las Vegas, NV)
->   - Clay's residence in Las Vegas (a house he pays $1600/month for)
->   - The Orleans Casino (Las Vegas, NV)
-> - **Timeline**: June 2021 (the days leading up to his scheduled escape to Alaska)
-> - **Characters**:
->   - **Clay**: The protagonist, an alcoholic facing a DV charge, desperate to escape.
->   - **Alisha (Las Vegas Ex-Girlfriend)**: A toxic, manipulative partner who uses the police to control Clay.
->   - **The Judge**: A surprisingly lenient judge who grants Clay release on his own recognizance (OR).
->   - **The Cop**: The officer who repeatedly arrests Clay and who is secretly sleeping with Clay's girlfriend; associated with a distinct *Joop* cologne smell.
->   - **The Boys**: Clay's Las Vegas friends whom he drinks and gambles with.
-> - **Key Plots & Conflicts**:
->   - **The Unexpected OR Release**: Clay expects a one-year jail sentence but is released, giving him one last chance to execute his escape plan to Alaska.
->   - **The Backstory of Loss**: Mention of Clay losing his daughter to adoption ~a decade prior (she was 2; ~10 yrs gone / she's 12 by the 2024–25 narration) due to active addiction in Alaska.
->   - **The Final Hurrah & Relapse**: Clay attempts to stay sober for 4 days before his flight, but goes out for "one last night" with his friends on Thursday, leading to a relapse, a screaming match with his ex, and another arrest.
->   - **Barefoot in Vegas**: Clay is released on Friday afternoon in orange jail moccasins, with no ID, phone, or wallet, 15 miles away from his house.
+The blood drops out of my face. It pools somewhere down around my orange, jail-issued moccasins. The cold takes me. One bone at a time. Every orifice in my body clenches tight enough to snap a pencil.
 
----
+This is the moment the door locks for good. One year. Minimum. My last stay was thirty days and it felt like thirty years. Same woman. Same screaming, drunken bullshit. Same judge looking down at me like I am an exotic insect.
 
-My name is called. I feel the blood drain out of my face and pool somewhere down around my orange jail-issued moccasins. The cold takes me one bone at a time, and every orifice in my body clenches shut. This is it — the moment I lose my freedom. It's going to be a year this round, at least. My last stay was thirty days and it felt like thirty years, and that was the same woman, the same drunken bullshit standing me in front of this judge now.
+I am ready. I have made my peace. I will do the push-ups. I will dry out. I will finally stop making the same wet, sloppy, I'm-an-asshole mistakes. You can run from a lot of things in this life—responsibility, the mirror, the people who love you—but you cannot run from an eight-by-ten cell.
 
-There's no way around it, and I've already made my peace with it. I'll work out. I'll finally get clean off the booze. I'll finally stop making the same drunken, I'm-an-asshole mistakes. It's time. I've spent a lifetime running — from responsibility, from everyone, from everything, from myself. But you can't run from a cell. For once I'm not going anywhere, and some sick part of me is almost relieved.
+A sick, broken piece of my brain is almost relieved. I am finally not going anywhere.
 
-Then she speaks.
+Then the judge opens her mouth.
 
-"I'm releasing you on your own recognizance."
+"I am releasing you on your own recognizance."
 
-And just like that, every bit of that hard-won peace goes right out the window. Be in court on such-and-such, blah, blah, fucking blah — I don't hear a word of it after "recognizance." Are they really letting me go? How? They don't cut you loose on OR after a domestic violence call. Not the second time, sure as hell not the fourth. Something's wrong. There's always a catch. They always have an angle, a way to screw you in the end. Or maybe — maybe this time I finally get one over on them.
+Just like that, the peace shatters. The rest of her words are white noise. Recognizance. You do not get OR after a domestic violence call. Not the second time. Definitely not the fourth.
 
-To understand why a man would be terrified of good news, you have to back up a few days. Further than that, really.
+There is always a catch. The system always has an angle.
 
----
+To understand why a man in orange moccasins would be terrified of freedom, you have to rewind.
 
-It was mid-June 2021. COVID was technically behind us, though some corners of the country were still talking about it like it wasn't. I was leaving a mutually abusive relationship in Las Vegas. Escaping is the better word. The kind of relationship that lands a man in jail over and over — not for laying a hand on anyone, but over hurt feelings and the ugly things we screamed at each other. I was done. Done with the manipulation, the mistreatment, all of it, and when I drank it came pouring out — never in a healthy way. It came out in a way that let Alisha wring her own wrists raw before the cops arrived and turn a shouting match into a violent attack that never happened and never would.
+June 2021. Las Vegas.
 
-She was, by her own admission and the general consensus of everyone who knew her, not a well woman. Now try defending yourself against her as a belligerent drunk who also loves telling the cops exactly what he thinks of them the second they walk through his door.
+I am leaving a mutually abusive relationship. Escaping is the surgical term.
 
-The night that put me in front of this generous judge was no different. Arrest number four in six months, every one of them during a drunken rant. This last one was the stupidest of all, because I'd already bought a one-way ticket to Anchorage to get away from her. I believed in geographic cures, the deeply held delusion that crossing a state line or an international border acts as a mystical car wash for the soul.  I'd run plenty of them in my life It's like thinking you can fix a blown head gasket by driving the car down a different highway.
+The kind of relationship that lands a man in handcuffs, face down on a dirty hardwood floor, over and over. Not for throwing a punch. For hurt feelings. For the ugly, sharp-edged things we scream at each other.
 
-I had no plan for how I'd survive up there. No idea where I'd sleep once my two weeks in the Airbnb ran out. I just knew I had to get out while I still had the nerve.
+When I drink, the ugly comes out. It comes out in a way that lets Alisha wring her own wrists raw before the cops arrive. She manufactures a violent attack out of thin air and cheap vodka.
 
-I'd lived in Anchorage once before, the better part of a decade back, another lifetime ago, when I was married with a baby girl I lost to my drinking and the drugs. I gave her up for adoption when she was two. It was the hardest thing I have ever lived through — harder than anything else in this book, harder than anything I'm willing to put on a page. The subject is too heavy to even hold for long. I'll get to her. Not yet. Not in this book.
+Alisha is not a well woman.
 
-But I loved Alaska, all that brutal beauty. Looking back, I know I wasn't only running from Vegas. I was crawling back to the scene of my original sin, like if I stood in the same spot long enough the last ten years might rewind and let me do it over.
+Try explaining that to the police when you are a belligerent drunk who loves telling badges exactly what they can do with themselves.
 
----
+Arrest number four in six months.
 
-It started to go wrong on a Tuesday.
+This one is the stupidest. Because I already have a one-way ticket to Anchorage.
 
-Alisha saw the writing on the wall — or rather, in my phone. I came back from the bathroom to find her holding it, staring at the wall with that calm, dead, I'm-about-to-burn-it-all-down look only she could pull off. My escape was about to be foiled and I knew it. My plane didn't leave for another four days. I could feel my heart going like a drum.
+I believe in the geographic cure. The alcoholic’s deepest delusion. Cross a state line, cross a border, and the universe runs you through a mystical car wash. I am trying to fix a blown engine by driving down a different highway.
 
-"What is this?" she asked, in a voice so calm it was worse than screaming.
+I have no plan for Alaska. I just know I have to get out before I lose my nerve.
 
-I could have lied. It would only have postponed the inevitable. So I told her the truth: I was leaving. I was going to Alaska, and I wasn't coming back. Not because I didn't love her — I did. But I was no good for her. I was no good for anyone. I was padding the walls before the bomb went off, trying to soften the blast when she realized she'd lost control of me for good.
+I lived in Anchorage a decade ago. Another lifetime. I had a wife. I had a baby girl. I lost the baby girl to the white powder and the brown liquor. I gave her up for adoption when she was two.
 
-"Look at what we're doing to each other every single day. I don't want this. You don't want this. I'm not leaving you high and dry — you've got half my last paycheck in your account, rent and utilities are covered for the month, your phone's paid. You're fine. You've got plenty of time to figure it out."
+That is the heaviest thing I carry. It is too heavy for this book right now. We will get to her later.
 
-Thank God I was only stoned and not drunk, or it would have gone a very different way.
+I am running from Vegas, yes. But I am also crawling back to the scene of the original sin. If I stand in the exact same spot in the snow, maybe the last ten years will rewind.
 
-Alisha didn't say another word. She just walked out of the room.
+The collapse starts on a Tuesday.
 
-I figured she'd at least come at my eyes. She'd once chased me into a bathroom with a butcher knife after I told her — over and over — how much I hated what a lazy slob she'd become. There'd been plenty of threats over the years, a few real attempts, but she could never quite pull it off. And you never once saw me call the cops. That's for pussies.
+I walk out of the bathroom. Alisha is holding my phone. She is staring at the wall with a calm, dead, I'm-about-to-burn-it-all-down look.
 
-But this time? Nothing. And her silence was infinitely more terrifying than any knife. What the fuck was she planning? No way this was going to be easy. Was she going to kill me in my sleep? Poison my food? Or — crazier than any of it — was she actually going to let me go?
+The bomb is armed. My flight is four days away. My heart kicks against my ribs.
 
-I had four days to get to my flight without giving her a single reason to call the cops. The judge had been clear the last time: if Alisha showed up in that courtroom again over the same bullshit, I was gone for a year. And I wasn't even supposed to be in the house.
+"What is this?" she asks. Her voice is level. It is worse than screaming.
 
-She'd taken a protective order out against me. I couldn't set foot in my own place — the house I paid sixteen hundred a month for, the one she and her cats lived in nice and comfortable. The second I walked, her sweet deal was gone: no rent, no food, no litter in the box. She had to know it.
+I tell the truth. I am padding the walls before the blast.
 
-So what was she up to? Was she upstairs calling them right now? She didn't need a reason. I just needed to leave her alone. I wouldn't drink for four days. I couldn't. As long as I played nice and let her keep the money, she'd most likely let me walk. Or so I told myself.
+"I'm leaving. Alaska. I'm not coming back."
 
-I'd sleep on the couch and stay out of her way. She seemed content. She was a blonde bombshell — stacked, great body — and she'd have no trouble landing a new boyfriend, or at the very least some white boy with a credit card to feed her and her cats.
+I tell her I love her. I tell her I'm toxic. "I'm not leaving you high and dry. Rent is paid. Phone is paid. Half my paycheck is in your account."
 
----
+Thank God I am only stoned and not drunk.
 
-One problem: I had one last night with the boys lined up for Thursday. One final Vegas send-off before I flew over Canada and into my freedom. Thursday was the only night we could all get together, and my flight wasn't until Saturday evening. This is where it all came apart.
+Alisha does not scream. She does not throw a glass. She just turns and walks out of the room.
 
-I figured, what the hell. I'd stayed sober Tuesday and Wednesday. I could trust myself for one night. I didn't need to drink to have fun. I could control it. Which quickly became: I can drink, I just won't get out of control. I'll be responsible, I won't take her bait when I get home. It'd be fine.
+In the past, she chased me into a bathroom with a butcher knife because I called her a lazy slob. But today? Silence.
 
-I had a plan. I had a floor manager once tell me, "Nobody solves a drinking problem with a drinking plan." But I had one. Drink, have fun, go straight home to bed. No overdoing it, nothing I'd regret.
+Her silence is a thousand times sharper than the knife. What is the math in her head? Is she going to poison my coffee? Smother me with a pillow? Or, crazier yet, is she going to let me walk?
 
-Yeah. Right.
+Four days. I have four days to make it to the airport without giving her an excuse to dial 911.
 
-We had a hell of a last night. Hung at our spot, the Orleans, got drunk, gambled, and nobody got hurt or lost anything but their paychecks. I'd burned through all but a hundred bucks of mine, and payday was midnight Friday — just before my plane left Saturday.
+I sleep on the couch. I tiptoe. I stay dry. She seems fine. She is stacked, blonde, beautiful. She will find a new white boy with a high-limit credit card to feed her cats by the weekend.
 
-And wouldn't you know it, I came home drunk as hell to find her out front in a lawn chair, smoking a joint. She clocked the drunk on me the second I walked up and started in — what a loser I was, how glad she was to see me go, how Alaska was going to eat me alive, how I'd be lucky to keep my job, how nobody worth a damn would ever want me.
+The flaw in the system is Thursday.
 
-And I took the bait. Told her everything wrong with her, every way she was fucked up and crazy. It turned into a screaming match. Drunk Clay is a stupid son of a bitch. I said things I can't take back. So did she.
+One last night with the boys. One final Vegas send-off before I fly over Canada and into freedom.
 
-I had one job — disappear — and instead I had to be right. When you're drunk, being right is the only thing in the world that matters, and it'll cost you everything else, including the plane ticket in your pocket. The Alaska plan needed me to be a ghost. Instead I chose to be a siren.
+I stayed sober Tuesday. I stayed sober Wednesday.
 
-Next thing I knew — you guessed it — the cops were there, and I was face down on the hardwood, tasting the dirt she never found the time to sweep up between Netflix binges.
+The alcoholic's logic: I can control it for one night. I have a drinking plan.
 
-The booking was the same as always. The boys and I started early, I worked 6am-12pm to catch both east coast and west coast action. Then all of us meeting up around one, so by eight that night I was out of ammo and hammered. One day before my plane and I'd torched it. The cop who hauled me in was the same one who always showed up — the same one I'd find out later, from a friend, she'd been fucking the whole time. Fitting. He threw me in the back of that squad car that reeked of Joop cologne, same old charge, domestic battery. She'd wrung her wrists again to sell the story that I'd grabbed her, which I didn't, never have, and never would, no matter how drunk I got.
+A floor manager once told me, "Nobody solves a drinking problem with a drinking plan."
 
-I was a mouthy bastard who couldn't sit still in peace, but violence was never in me. She was just good at working the cops, especially the one in her bed. And that's what marched me in front of the judge who, for reasons I still don't understand, blew the lid off the escape hatch I thought I'd welded shut for good the night before.
+But I have one. Drink. Have fun. Go straight to bed. Do not take the bait.
 
----
+Right.
 
-You already know how it ended in that courtroom — the same judge, the words I never saw coming. *Released on your own recognizance.* They're still ricocheting around my skull when the cell door rolls open at four o'clock and they walk me out into the Vegas heat. Right then, I know I'm never seeing the inside of a Las Vegas jail again. Not if everything goes to plan.
+The Orleans Casino. Drunk. Gambling. I burn through my paycheck. I have a hundred bucks left.
 
-There I am, in a pair of Nike basketball shorts, a dirty t-shirt, and those same orange moccasins I'd worn all night in a cell. They'd hauled me off without my shoes — that cop wouldn't give me a second to grab them. The smell of his cologne is still in my nose. The smell of betrayal and defeat.
+I stumble home.
 
-I have to practically beg the releasing officer to let me keep the moccasins for the walk. "You guys didn't give me a chance to grab anything," I tell him. "What am I supposed to do? I can't go anywhere like this." He says no at first. I don't let it go, and eventually he caves.
+Alisha is sitting in a lawn chair in the front yard. Smoking a joint.
 
-I'm a long way from out of the woods. No ID, no wallet, no phone — effectively erased from society, a ghost wandering the heat in neon-orange slippers. And I'm a good fifteen miles from home. Not a walk you make in jail moccasins on a late-June afternoon in Vegas.
+She smells the alcohol before I even open my mouth.
 
-It's worse than that. I can't just go home. I'm forbidden to set foot in the house where everything I own is sitting, so I need a police escort. Which means I need a phone to call and set it up, and a way to get across town, and the whole thing could take hours.
+"Loser," she says. "Alaska is going to eat you alive. Nobody will ever want you."
 
-And the real gut-punch under all of it: Alisha has my phone and my wallet. She's the kind of woman who destroys what you love when she's hurt. Over two years I'd gone through more IDs, phones, and wallets than I can count — turning up in trash cans, in toilet tanks, or never again. Now that she knows I'm running, I'm sure she's already trashed all of it and trapped me here for good.
+I take the bait. I swallow the hook, the line, and the sinker.
 
-One thing at a time. First, get across town.
+I tell her every way she is crazy. I scream. She screams.
 
-That part's easy. When the bus doors hiss open, I stand there looking as hopeless as a man can look in bright-orange jail moccasins. "Just got out of jail, no wallet — can you help me out?" The driver waves me on without blinking.
+Drunk Clay is a suicidal idiot. I have one job: disappear. Instead, I need to be right. When you are drunk, being right is the only thing that matters. It will cost you your freedom, your plane ticket, your life.
 
-Then it's forty minutes to picture every way this goes wrong, and really there's only one question that matters: did she leave me the ID and the money, or did she erase me? If the wallet's gone, I forfeit a non-refundable ticket to freedom, beg what little I can out of a family well that's nearly dry, and start over from nothing — assuming I even still have a job after ghosting them for a full day in my second week.  I'd just landed a remote gig with a big company for more money than I'd ever made selling worldwide vacations, not just Vegas. I had 5 reps all to myself and we killed it the first week. I had a new life dawning. That can't be it. No way that's it. If there's a God up there…
+The cops arrive. I am face down on the hardwood, tasting the grit she never sweeps up.
 
-I get off at my stop and lock eyes on a secondhand cell-phone shop across the street, a little mom-and-pop place. I beeline for the door. Never been inside, but if anybody's got a phone I can borrow it's them — and they do. After a quick sob story and a little pleading, the clerk hands me a cordless landline. I warn her the hold could run hours.
+The cop who slaps the cuffs on me smells like Joop cologne. He is the exact same cop who always shows up. The same cop, I find out later, she has been sleeping with the entire time.
 
-It runs close to an hour and a half. Thank God she's cool about it. I keep her entertained the whole time, telling her exactly how a man ends up barefoot in her shop in orange moccasins, and she's all ears — almost looks let down when the hold music cuts out and my escort is finally booked.
+He throws me in the back of the squad car. Domestic battery. She wrung her wrists again.
 
-Fifteen, twenty minutes out, they tell me. Perfect. I'm a five-minute walk from the house. Twenty minutes from learning which direction the rest of my life goes.
+Which brings us back to the judge. Released on your own recognizance.
 
-I come around the corner to my fate. And there she is, out front, smoking. A street between us. Tight white t-shirt, short, short khaki shorts. She looks stunning. Part of me wants to cross over, take her hand, forget all of it, and lead her upstairs one more time. But I know that's never happening again.
+Four o'clock. The cell door rolls open.
 
-She looks up from her phone in what used to be our front yard. Eyes wide, mouth open — then it melts into that infectious smile, the one that's reeled me back in a hundred times. The smile is a weapon. It's a silent promise: just submit, and the war ends. Not this time.
+I walk out into the Vegas heat.
 
-"Did you walk all the way from jail in the moccasins?" she says, laughing, reaching into her cigarettes.
+I am wearing a dirty t-shirt, Nike basketball shorts, and orange jail moccasins. The cop didn't let me grab my shoes. The smell of his Joop cologne is permanently burned into my sinuses. The smell of betrayal and defeat.
 
-"Yep." Deadpan.
+I practically beg the releasing officer to let me keep the moccasins. I win.
 
-"Want one?" She holds it out, never getting up from the chair.
+I have no ID. I have no wallet. I have no phone.
 
-I want it bad. But I can't bite the worm when I can see the hook right behind it. I shut her down. "The cops are on their way to let me get my stuff. They already know about my paycheck, my ID, my wallet, my phone — and your little habit of destroying them. So they better all be there."
+I am a ghost in neon-orange slippers. Fifteen miles from home.
 
-A lie. But she isn't expecting me back until Monday at the earliest, maybe not for a year, so odds are she hasn't gotten around to wrecking anything yet — not until she knows exactly what's going on.
+It gets worse. I cannot just walk home. There is a protective order. I need a police escort to retrieve my bags.
 
-She stands by the front door now, smirking, shaking her head. I can already picture her locking it behind her and doing her worst with the few things I need most, knowing this is her last shot at ruining me. She steps inside. The door shuts. I hear the deadbolt click.
+Alisha has my phone and my wallet. Over two years, I have found my IDs in trash cans and toilet tanks. She destroys what you love when she is hurting.
+
+She knows I am running. She has erased me.
+
+I get on a bus. I look at the driver. "Just got out of jail. No wallet. Can you help me out?"
+
+He waves me on. The universal Vegas nod for 'I've seen worse.'
+
+I ride for forty minutes. I picture the non-refundable ticket burning. I picture begging for money. I picture losing my new remote job before I even start.
+
+I get off. I walk into a mom-and-pop cell-phone repair shop.
+
+I beg the clerk for a phone. She hands me a cordless landline.
+
+I sit on hold for an hour and a half. The clerk is mesmerized by the barefoot man in orange moccasins. She is my audience. I tell her the whole story.
+
+The police escort is twenty minutes out.
+
+I walk the final five minutes to the house.
+
+Alisha is out front. Tight white t-shirt. Khaki shorts. Stunning.
+
+She looks up from her phone. Her eyes go wide. She flashes that infectious smile.
+
+The smile is a weapon. The smile says, Submit, and the war is over.
+
+Not this time.
+
+"Did you walk all the way from jail in the moccasins?" she laughs. She offers me a cigarette.
+
+I want it. My lungs ache for it. But I see the hook.
+
+"The cops are on their way," I tell her. Deadpan. "They know about my paycheck, my ID, my wallet, and your habit of destroying them. They better all be there."
+
+It is a bluff. She isn't expecting me back until Monday.
+
+She steps inside. She shuts the door.
+
+The deadbolt clicks. A heavy, metallic sound. A vault locking from the inside.
 
 The blood drains back down into my new orange moccasins.
 
-Twenty minutes become an hour. I know because I ask a neighbor walking up for the time: quarter to eight. Over an hour past when the cops were due. No sign of Alisha for a solid forty minutes.
+Twenty minutes pass. A neighbor tells me it's quarter to eight.
 
-Then the door opens. And there she is — fully dolled up now, miniskirt, low-cut top, high heels.
+An hour passes.
 
-Behind her is whatever she's decided I'm allowed to keep: three medium packing boxes, a suitcase, a backpack. But I'm not looking at any of that. I'm looking at the orange Nike shoebox sitting on the counter behind it all.
+The door opens. Alisha steps out. She is in a miniskirt, low-cut top, high heels. Dressed to kill.
 
-What is in that shoebox. The packing boxes are clothes, I know that. The suitcase too. The backpack is my laptop and cables — I'm not worried about those, she's never destroyed my laptop, she'd pawn that first. But that shoebox. What could possibly be in it except my wallet and phone? Toiletries? No, she'd keep those. I don't collect souvenirs. No jewelry, no trinkets.
+Behind her are the permitted items. Three medium boxes. A suitcase. A backpack.
 
-I'm a minimalist. I get twitchy when my whole life won't fit in a suitcase and a carry-on. Those three boxes make me sick. We could burn them and I wouldn't blink. All I want on this earth is to open that goddamn shoebox.
+I don't look at the boxes. I am a minimalist. Burn the boxes for all I care.
 
-She carries the boxes out one by one, slow and deliberate, wearing a little grin. The suitcase. The backpack. And finally, the orange shoebox set on top of the stack. She offers a little wave, steps inside, and throws the deadbolt. A vault locking from the inside.
+I am looking at the orange Nike shoebox sitting on the counter behind her.
 
-It takes another twenty minutes for the cops to arrive. The whole time, I don't take my eyes off that orange shoebox. I want to sprint across the asphalt and tear into it, but I stay rooted. I'm trading the orange of my jail moccasins for the orange of that cardboard box. I'm not blowing it now.
+What is in the box?
 
-When the squad car rolls up, I play the calm, collected man. The cop waves me across the street. I walk up to the box, take a breath, and set the stage. "I just hope she didn't destroy my phone and wallet."
+It isn't clothes. It isn't the laptop. It has to be the wallet and the phone. Or pieces of them.
 
-The cop raises an eyebrow. I flick the lid off with one finger and look inside.
+She carries the boxes out. Slow. Deliberate. The suitcase. The backpack. The orange shoebox goes on top.
 
-My wallet, sitting on top of my phone. A charging cable. A picture of the two of us from last Christmas. Gross. Not even that can touch this moment.
+She waves. She steps inside. The deadbolt clicks again.
 
-I open the wallet slow, knowing it's not over. And there they are. My ID. My debit card. Holy shit.
+The police arrive twenty minutes later.
 
-Now the phone. It's in the box, sure, but does it work? I'd have bet money she drowned it in the toilet at least. I won't know until I find an outlet. I hit the power button. It lights up. Thirty-seven percent. Holy fucking shit.
+I don't take my eyes off the orange shoebox. I am trading the orange of my moccasins for the orange of the cardboard.
 
-Now the balance. No way. No way in hell she didn't at least rob me and move the money while she was locked behind her castle door. The balance loads.
+The cop waves me across the street.
+
+"I just hope she didn't destroy my phone," I say. Setting the stage.
+
+The cop raises an eyebrow. I flick the lid off with one finger.
+
+My wallet. Sitting on top of my phone. A charging cable. A photo of us from Christmas.
+
+I open the wallet. Slowly.
+
+My ID. My debit card. Holy shit.
+
+I pick up the phone. Did she drown it? I hold the power button.
+
+The screen glows. Thirty-seven percent battery. Holy fucking shit.
+
+I load the bank app. I prepare for zero.
+
+The numbers render on the glass.
 
 $2,289.32.
 
-She hasn't touched a cent. I'll remember that number forever. It's the first number of the rest of my life.
+She hasn't touched a cent.
+
+I will remember that number until the day I die.
+
+It is the first number of the rest of my life.
 
 I am free.

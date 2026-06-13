@@ -1,156 +1,121 @@
-# Chapter 10
+Michigan is green. Not the pale, desperate green of a Vegas golf course. Deep, wet, overgrown green. Mowed right up to the edge of the Grand Rapids runway lights. It looks like a place where bad things aren’t allowed to happen.
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: Michigan, ~August–late 2021 — the "few months" that open the "good run" Ch9 promised. Lands at **Grand Rapids**; **Troy** lives in **Richland, MI**, a small town an hour or so out — a nice house outside town with his wife and kids. Clay's housing ladder across the stay: ~a month in Troy's house → a rented room off one of Troy's friends → finally a basement rented from the girlfriend of another of Troy's friends — the slow, accidental near-normalization of a drifter. Key locations: **Troy's barn** (darts, loud music, drink-till-sunup — the church of the good days, and where the Glenda call happens); the **local Pub**; the **NASCAR races** (kept unspecified — see continuity flag: MIS ran only a June 2021 Cup race); **Put-in-Bay** (the Lake Erie party island) trips Clay financed. Mid-chapter detour back to **Ohio** with **Josh** on Josh's annual college-recruiting road trip (Ohio → Kentucky → Tennessee → South Carolina → West Virginia), Clay working the solar phones from a string of **Hiltons**. **Scope then widens past the Michigan months:** the back half telescopes through the ~two-year long-distance relationship (2021→~2023), including the **2022 garage/AI era** and the standing *"when are you coming over?"* question that bridges toward the Mexico trip (Ch1).
-> - **Timeline**: Picks up the instant Ch9's flight from Vegas lands. The calm chapter — the eye of the storm, narrated by a man who knows exactly where the calm leads. Clay is flush (**4–8 solar appointments a day now, on the regular**) and spending it as fast as it comes — "hated having money in my account." The Michigan good-days montage (barn nights, the Pub, the races, **DoorDash for Troy's family 3–4×/week**, financing Put-in-Bay/NASCAR trips for everybody). Troy's daughter **May** (~12–13) has Clay wrapped around her finger — the lost-daughter ache (cf. Ritchie's daughter, Ch9; Clay's own daughter given up to adoption). Mid-stay: the **Ohio interlude with Josh** — the five-state recruiting road trip, nice Hilton rooms, Clay drinking from 2 p.m. to blackout while Josh (the clean foil) comes back from work to find him passed out. At the END of that trip, right before Troy drives down to bring him back to Michigan, Clay decides to **make the move on Glenda** — the chapter's hinge into the romance that ends in Mexico. **The Glenda origin (set piece):** the pretext (offer to train her as a closer — more money in closing; she agrees); the first camera call **in Troy's barn** (she's reserved, almost scared, assumed Clay would be a nerdy all-business white boy — no idea how alike they are); Clay gets drunk with Troy in the background, treats her "like a piece of meat," tells her to take her shirt off — she's offended, hangs up. **(Deliberate payoff of Ch5's "I just wanted to see her naked.")** Next day: profuse apology, she laughs it off; a second call where they both drink and do zero training — just get to know each other (Clay's Vegas/Alaska stories ↔ her upbringing: lived in **Phoenix, deported for a DUI** — "perfect, I thought" — daughter **America**, 8). The first year: slowly falling in love — Clay singing country songs while she gives him "the most loving looks," her passwords all changed to **"I love Clay Mills!"** (he'd bitch about the lone exclamation point), full-belly laughs, "she loved hard and I loved her back." The blackout-fighting era (block/unblock/apologize-for-you-don't-know-what, **America** refereeing) is flagged as *later* ("but that was a year in"). **Back-half expansion (the long-distance years):** Clay props Glenda's screen against the **salt-and-pepper shakers** at the Richland Pub until the whole town greets her by name (the "how do you love a girl you've never met?" reflection — his deepest intimacy-without-touch, achieved by staying 2,000 miles away). The **2022 AI era**: serial unfinished business ideas (text-to-image, chatbots, MMA-gym bots, Etsy Halloween shirts), never monetized "until Mexico," Glenda's cheerleading thinning — the "switch only goes forward" pattern, the same compulsion as the drink/bet/town. "Never trained her as a closer — just closed her on being my long-distance girlfriend." **New ending (the old "good run" line is now a mid-chapter hinge):** for **two years** Glenda asks *"When are you coming over?"*; Clay's private answer is always *never* — the screen as safety (a door he can always close), plus warrants, no passport (assumed impossible), no Spanish, and a bone-deep dread of Mexico as a "one-way door." Closes on the dramatic-irony gut-punch — right that he'd never come back, "just had every reason for it wrong" — bridging to the prologue/Ch1.
-> - **Characters**:
->   - **Clay**: Flush, calm, nearly domesticated — and reading the calm as a "good run" instead of the eye of a storm. The same certainty that runs his sales and his gambling now aimed at a woman: he thinks he's recruiting an opener; he's closing the love and the ruin of his life in one play.
->   - **Troy**: Clay's lifelong best friend, the "party/bad-decisions" counterpart to Josh (set up Ch9). Same stable life — nice house outside a small Michigan town, wife, kids, a good job, a barn — but parties "right": can do one line and bank the rest of the gram (the control Clay's never had). Host of the good days; runs the barn, takes Clay to the races.
->   - **May (Troy's daughter, ~12–13)**: Has Clay wrapped around her finger — works him for DoorDash 3–4×/week and, once he's good and drunk, borrows his phone and raids his Amazon for a couple hundred dollars of toys. The little con artist who reads the con man cold. Played for warmth and the lost-daughter ache; never anything off.
->   - **Josh**: The clean-living childhood foil (Ch1). Travels once a year recruiting college grads; takes Clay on the five-state road trip; comes back from work to find Clay blackout-drunk in nice Hilton rooms — the sober man watching the drowning one, again.
->   - **Glenda**: The business opener from Alaska (Ch5) becomes, in this chapter, the love of Clay's life. Reserved/scared on the first camera call; assumed Clay was a nerd; a fellow drunk who hid it well at first. **New canon:** lived in **Phoenix**, deported for a **DUI** (explains her fluent, accent-less English); daughter **America** (8 in 2021). The drunken "take your shirt off" disaster and the slow, real fall into love both belong here. **Long-distance canon (back half):** for ~2 years a **screen-only girlfriend** — carried into the Richland Pub on the salt-and-pepper shakers, greeted by the whole town; Clay's **AI-idea cheerleader** (2022), wearying of his new-idea-every-month churn; asks *"When are you coming over?"* for two years while Clay privately never means to go. Never actually trained as a closer.
-> - **Key Themes**:
->   - The eye of the storm: the "good run" narrated by a man who knows it's the calm before Mexico — every warm domestic detail shadowed by dramatic irony.
->   - Money as fuel, not safety: 4–8 deals a day and he "hated having money in the account" — the addict spends to stay empty.
->   - The borrowed family, again: Troy's house, May, the barn — Clay slotting into other men's stable lives (cf. the Vegas crew, the Alaska hosts), loving kids he wasn't allowed to keep.
->   - Birds of a feather: hearing "deported for a DUI" and thinking *perfect* — the addict recognizing the addict; the recruiting pitch that was really a courtship.
->   - The closer closed: he ran the Glenda play dead sure he was the one running it (cf. Ch5's "running the machine instead of the other way around") and closed himself straight into the relationship that leads to the bus.
->   - Intimacy at a safe distance: Clay reaches his deepest-ever closeness with a woman *because* she's 2,000 miles away behind a screen he can always close — love made bearable only by a guaranteed exit. The long-distance relationship as the ultimate geographic cure; his dread of Mexico as "a one-way door" is the addict's terror of anything with no way back.
+Never trust a town without scars. A pristine landscape just means the repo man hasn't arrived. You’re just early to the slaughter.
 
----
+I come down the jet bridge wearing new Vegas clothes, carrying a bank account that’s practically bleeding cash, trailing warrants in two states. And what do I feel?
 
-The plane set down in Grand Rapids into a green I'd half forgotten was a real color.
+Peace. God help me. Peace.
 
-After the desert and after Alaska — after a year of country that was either trying to cook me or freeze me — Michigan just sat there under a low soft sky, wet and green and mowed right up to the edge of the runway lights, and it looked like a place where nothing bad had ever once been allowed to happen. I know better now than to trust a town that looks like that. Nothing on this earth makes me more nervous today than a stretch of country with no scars on it. It means the collecting hasn't started yet. It means you're early.
+Troy is leaning against his truck in the lot. Troy is the alternate ending to my life. He’s the anti-Josh and the anti-me. He has the big house in Richland, the wife, the yard full of kids, the steady job, the barn. But here’s the fault line: Troy can buy a gram of coke, rack up one perfectly straight line, snort it, and put the baggie in a drawer for next weekend.
 
-But I didn't know that yet. That afternoon I came down the jet bridge in my new Vegas clothes with money in my account and a warrant I'd already forgotten in two states, and the first thing I felt, God help me, was peace.
+Next weekend. I have never met next weekend. My calendar is just today on an endless, screaming loop.
 
-Troy was leaned against his truck out in the lot like he had nowhere on earth to be, which was the whole of Troy in one picture. I'd told you about him at the end of the last go-round — my other best friend, the one I came up beside, the bad-decisions twin to Josh's clean white-picket life. Troy had every single thing Josh had. Big house out past the edge of Richland, a small town an hour or so from the airport, a good wife, a yard full of kids, a real job he was good at, even horses if he'd wanted them. The difference between him and Josh was the difference that has run my whole life like a fault line: Troy could buy a gram, lay out one clean line off it, do that line, and put the rest of the bag away in a drawer for next weekend. Next weekend. I have never in my life met next weekend. I have never once owned a thing I could put in a drawer for it.
+Troy has a dial. I only have a switch.
 
-We hugged in the lot like men who'd missed each other and weren't going to make a thing of it, and then we drove the hour out into the green, two old boys and the radio, and I watched the gas stations thin out into corn and the corn thin out into his road, and I felt the thing I always felt rolling up to a life that wasn't mine and never would be: the warm, doomed certainty that this time I'd get to keep some of it.
+We hug. Two old boys who survived their own youth. We drive an hour deep into the cornfields, and I feel that warm, doomed certainty I always feel when I borrow someone else's life. This time, maybe I get to keep it.
 
-I stayed in Troy's house a good month before I moved into a buddy’s rented room. His wife fed me, his kids got used to me, and they all somehow decided to love me anyway. Those were good days. Troy had a barn, and the barn was the church of it. We'd run loud music out there till the rafters buzzed, throw darts for hours, and watch the sun come up with warm beers in our hands. We hit the Pub, we went to the NASCAR races, and I financed all of it.
+For a month, I sleep in Troy's house. I move to a buddy's rented room. I exist. The barn is our church. Loud music vibrating the rafters. Darts. Warm beer at sunrise. The local pub. NASCAR. I finance the whole circus.
 
-The phones were singing. I was hitting four, six, eight solar appointments a day, and the money came in faster than I'd ever made it legally. And I spent it just exactly that fast, because money sitting in my account was a smoke alarm saying *you have something to lose.* DoorDash for Troy's whole house, bar tabs the size of a car payment—I bought my way back down to broke on purpose.
+The solar phones sing. Four. Six. Eight closed deals a day. The money pours in faster than I can burn it. I spend it furiously. Because money in the bank isn't safety. It’s a smoke alarm shrieking: *You have something to lose.*
 
-Troy didn't carry that hum. Late on a barn night, he'd pull out a bag, do a single clean line, and fold the bag back up for next weekend. I had never in my life met next weekend. Troy had a dial; I only had a switch. That was the difference between the life he got to keep and the one I was already getting ready to burn down.
+DoorDash for the whole house. Bar tabs the size of car payments. I buy my way back to zero on purpose.
 
----
+Then there is May.
 
-And then there was May.
+Troy's daughter. Twelve, maybe thirteen. She finds the soft spot behind my ribs in twenty-four hours. She sets the hook. She owns me. And I let her.
 
-Troy's daughter. Twelve, maybe thirteen — I'm ashamed I can't pin it tighter, but the years in this book don't hold still. May had me wrapped so far around her little finger there was nothing left to wrap. It took that child about twenty-four hours to do what it takes most marks a lifetime to manage — find the soft spot, set the hook, and own me — and the awful, beautiful joke is that I *saw* her doing it, clocked every move the way I'd have clocked a closer running a board, and let her. Being worked by May was the best feeling I'd had in a year.
+She runs the DoorDash app like a cartel boss. But her long con is the masterpiece. She studies the exact tide of my drinking. She knows the precise minute my blood alcohol content dissolves the hinges on my wallet. She asks to borrow my phone. By sunrise, two hundred dollars of toys are riding an Amazon truck to Troy's house. A middle-school safecracker.
 
-She ran the DoorDash like a foreman — three, four times a week she'd appear at my elbow with the soft eyes and the order half-built, and I'd hand over the phone like the world's happiest sucker and feed the whole house. But that was the small con. Her real one I have to tell on her because it's too good not to: that girl learned the exact tide of my drinking, the precise hour I'd gone from *Clay* to *good and drunk Clay,* the window where the gate came off the hinges — and that was when she'd sidle up sweet as pie and ask to borrow my phone. By morning there'd be a fresh two hundred dollars of toys riding a truck toward Troy's house, ordered straight off my own Amazon by a thirteen-year-old who'd timed her strike to my blood-alcohol like a safecracker reading tumblers.
+I laugh until my chest aches. Because here’s the bleeding heart of it: I have a daughter. Out there. Given up. A life I am locked out of. Every toy I buy for May is me paying down an unpayable debt with counterfeit grace. You just keep making the gesture at whoever is standing close enough to catch it.
 
-I never once minded. I'd find out and I'd laugh till it hurt. Because here's the part underneath the part: I had a daughter of my own, out there in the world, given up a long way back and a long time before any of this, a whole life I wasn't allowed inside of. I told you in Vegas how I used to watch Ritchie's girl grow up the way you watch a thing you weren't allowed to keep. May was that same private wound and that same private grace. Every toy that kid swindled out of my drunk hands was me paying down a debt I owed a different girl entirely, in a currency that doesn't spend on the right account, and I knew it even then, and I'd hand her the phone anyway. Some debts you can't pay. You just keep making the gesture at whoever's standing close enough to take it.
+Somewhere in the middle of this green illusion, I fly to Ohio.
 
----
+Josh. The clean foil. The man who built the house with his own hands. Once a year, he drives across five states recruiting fresh-faced college grads for his corporate machine. Ohio, Kentucky, Tennessee, South Carolina, West Virginia. He brings me along.
 
-Somewhere in the thick of those Michigan months I went back to Ohio for a few weeks, to Josh.
+We stay in Hiltons. In the mornings, Josh goes off to shake hands with twenty-two-year-olds who have untrashed futures. I stay in the room with my headset on. I close solar deals from the bed. By 2:00 PM, I stop talking and start drinking. I drink until the room disappears.
 
-I've held Josh up already as the clean one, the foil, the man who fought the same war I fought with the bottle and the powder and actually climbed out the other side, built the house with his own hands, raised the kids, kept the wife, drinks now like a person instead of like a fuse. Once a year Josh traveled for his work — recruiting, going around to colleges signing up new graduates for his company — and that year he brought me along for the ride. We ran it like a road trip. Ohio down into Kentucky, Kentucky into Tennessee, on into South Carolina, back up through West Virginia, the two of us eating up the interstate and laughing the whole way like the boys we used to be before the boys we used to be got expensive.
+This is the tableau: Josh comes back from a day of building the American Dream. He opens the door to a beautiful hotel room. He finds his oldest friend blackout drunk, fully dressed, face-down on the bedspread between an empty bottle and a glowing laptop.
 
-His company put us in Hiltons. Always a nice room — that was the part of the racket that fit me like a glove. Josh would go off in the mornings to do the actual respectable work of his actual respectable life, shaking hands with twenty-two-year-olds who had their whole clean futures in front of them, and I'd stay back in that nice Hilton room with my headset on and run the phones, closing solar deals out of South Carolina and Tennessee like the room was just another office, money rolling in between checkout times. And I'd work till about two in the afternoon, and then I'd quit working and start drinking, and I'd drink in that nice room with the good view until I wasn't in the room anymore at all.
+He doesn’t make a speech. Josh gave up on speeches a decade ago. He just looks at me like weather he can't control, steps over my body, and lets me sleep. In the morning, we laugh. He’s watched me drown a hundred times. He loves me anyway. That’s its own specific brand of torture. Being loved by a man who has already preemptively mourned you.
 
-So that was the picture, most evenings of that trip: Josh comes back from a full honest day of building the kind of life they put on brochures, opens the door of a beautiful hotel room paid for by his good job — and finds his oldest friend passed out cold across the bedspread at six in the evening, fully dressed, the laptop still glowing, a closed deal and an open bottle and a man face-down between them. He never made a speech about it. Josh had given up the speeches on me a long time before. He'd just look at me the way you look at weather you can't do anything about, and step over, and let me sleep it off, and in the morning we'd get back in the car and laugh some more, because that was the deal between us and always had been. He'd watched me go down a hundred times. He'd quit believing I'd stay up. And he loved me through it anyway, which is its own kind of heartbreak to be on the receiving end of — being loved by a man who's already grieved you a little, just to be safe.
+At the tail end of that trip, right before Troy drives down to haul me back to Michigan, I make my move.
 
-It was on that trip — right at the tail end of it, when we'd circled back and Troy was about to drive down and collect me and haul me back up to Michigan — that I decided to make my move on Glenda.
+Glenda.
 
----
+I met her in Alaska. The voice on the transferred call. The best opener in the building. For six months, she has been nothing but a name in a Slack channel. A face in a Zoom grid. The one bet I let ride.
 
-Now. Glenda.
+I pitch her a lie. I tell her I'll train her. She's the best opener; I'm the best closer. Mentor and protégé. A clean, professional transaction. I’m a closer. My gift is making the thing I want sound like the thing you wanted all along.
 
-I'd met her months back, up in Alaska, the way I already laid it out for you — a lit box on a group training screen and then a voice coming down a transferred call, drunk and warm and better at the job loaded than most people are sober, handing me the first deal I ever closed up there. I told you that day all I knew was that she was beautiful and that I wanted to see her naked. That was the whole of it. And then — and this is the part I need you to actually hold, because it's a strange thing to admit about the love of your life — that's where it sat. For *months.* All through Vegas, all through that suite and that warrant and those goodbyes, Glenda stayed exactly what she'd been on day one: a face I'd seen once, a voice I made money off of, a name in a sales thread I had never said a single human word to that wasn't about an appointment. The best opener in the building. A coworker I'd never met. Nothing more.
+She says yes.
 
-I don't fully know why I picked that particular week, at the end of that particular trip, to finally reach across the wire. Maybe it was Josh's clean life rubbing me raw. Maybe it was just that the gambler in me had run out of other tables for a minute and there she was, the one bet I'd been letting ride untouched for half a year. But I had a plan, and like every plan I ever drew up it was airtight and it was a lie I was telling myself with my whole chest. The plan was this: I'd offer to *train* her. She was the best opener I'd ever heard — well, the real money in this business isn't in opening, it's in closing, and I was the best closer she'd ever heard, so I'd take her under my wing and teach her to close, and we'd both make a fortune. Clean. Professional. Mentor and protégé. A business proposition, start to finish.
+The first time we are alone on camera, I am sitting in Troy’s barn.
 
-I want that on the record — the lie I led with — because it makes what actually happened funnier and sadder both.
+She looks scared. Guarded. Sitting up straight, squinting into her screen, bracing herself. She thinks I’m going to be some polo-shirted corporate dork. Spreadsheets and synergy.
 
-I reached out. I made the pitch. And she said yes. Of course she said yes; I'm a closer, and a closer's whole gift is making the thing he wants sound like the thing you wanted all along.
+She has no idea we are the exact same animal wearing different skins. Two drunks. Two gamblers. Two arsonists standing in the ashes of our own lives. Even through the screen, I smell my own kind.
 
-The first time I ever had Glenda on a camera, one on one, it was in Troy's barn.
+I get barn-drunk. Properly, aggressively drunk. The more I drink, the less she looks like a student. She looks like a mark. The file labeled *I just want to see her naked* slides open in my brain. I have no governor. I have no brakes.
 
----
+We don't train. I treat her like meat. I slur into the microphone and tell her to take her shirt off.
 
-I can still see her in that first little window. She was reserved to the point of looking almost scared — sitting up straight, careful, giving away nothing, this beautiful guarded woman squinting into her screen trying to figure out what kind of animal she'd just agreed to be alone with. I found out later exactly what she'd braced for: she was dead certain I was going to be some dork of a white boy. A nerd in a polo shirt. All spreadsheets and scripts and *let's circle back,* a tidy little American businessman who'd bore her into the ground for an hour about rebuttals and call volume. She had no earthly idea what she'd signed up for. She had no idea that she and I were the exact same creature wearing different skins — two drunks, two gamblers, two people who'd burned down every steady thing they were ever handed — and that I could already, even guarded and squinting through a phone screen, smell my own kind on her. She was working so hard to look innocent. Working so hard not to give away that there was a drink somewhere just off camera, the same as there was one just off mine.
+She does the only sane thing a woman can do. She hangs up. The screen goes black. The first real conversation, and I close it in forty-five drunken minutes.
 
-And here is where I'd give a great deal to tell you I was a gentleman. I was not.
+The next day, I call her. No pitch. No angle. Just a hungover animal apologizing for its nature.
 
-I got drunk on that first call. Properly drunk, barn-drunk, with Troy somewhere back behind me in the noise and the dartboard light, and the more I drank the more the careful nervous girl on the screen stopped reading to me like a student and started reading like a *mark* — and the wanting I'd filed away half a year back in Alaska, the *I just want to see her naked,* came up out of the drawer where I'd left it, except now it was loaded with liquor and I had no governor on me at all. We did not do one second of training. What I did instead, God forgive me, was treat that woman like a piece of meat across a phone line in front of my best friend, and the low point of it, the thing I still can't believe came out of my mouth, was that I told her — flat, drunk, like I had any right on God's earth to ask it — to take her shirt off.
+She lets me bleed for a minute. Then, she laughs. She waves it away. I ask for a second chance. She says yes.
 
-She was offended on the spot. As she should have been. As any woman with a shred of sense would have been. And she did the exact correct thing, the thing I'd have respected in anyone if I hadn't been the one getting it done to me: she hung up on me. Just gone. Black screen. The best opener in the building, and the first real conversation I ever had with her, I closed it for her in about forty-five drunk minutes flat.
+Night two. Masks off. We drink on camera. We don’t talk about scripts. I give her the Vegas circus, the handcuffs, the Alaska jail, the dead man’s laptop. She absorbs it all.
 
-That was my opening move on the love of my life. I led with the worst of myself, on camera, sloppy, and she shut the door in my face — and looking back from sober ground all these years later, I think some part of her decided right there, in that hang-up, that I was worth a second look. Because the only men worth being careful around are the ones who show you the worst card first.
+Then she hands me her rap sheet.
 
----
+She grew up in Phoenix. Perfect English. And she was deported. Sent back over the border. For a DUI.
 
-I called her the next day and I apologized like my life depended on it, because some animal part of me already knew it did.
+My brain lights up. One word.
 
-No angle this time. No close. Just a hungover man saying *I'm sorry, that was disgusting, I was drunk and that's not an excuse, I had no right.* And she let me have it for a minute and then — and this told me everything I'd ever need to know about who she really was under all that careful — she laughed it off. Just laughed. Waved the whole sorry thing away like a fly. I asked her, sheepish as I've ever asked anybody anything, if she'd be willing to try again, on account of we never did get to any of that training. And she said *of course.* Of course we'll try again.
+*Perfect.*
 
-And we got on camera that second night, and we drank — both of us this time, no more hiding the glass off-screen, the masks off — and I'll tell you exactly how much closing we taught each other that night: none. Not one word of it. We never got within a mile of the script. We just talked. For hours. I told her my Vegas, the whole circus of it, the crew and the cuffs and the jackpots, and I told her my Alaska, the rose bush and the jail and the dead man's laptop, and she sat there on the other end of the wire taking it all in like nobody'd ever handed her a story in her life.
+Not: *Run.* Not: *Mirror, mirror.* Just: *Perfect.* One of mine. Instead of alarm, I feel the click of the lock. Two of the same species finding each other across a desert. I never run from the fire. I run into it.
 
-And then she told me hers. She'd grown up partly up in Phoenix — which is how she came to speak English better than I do, not a trace of an accent on her, a thing that had made her a lethal opener and was about to make her the most dangerous thing that ever happened to me. And she told me, easy as anything, that she'd been deported. Sent back over the line. For a DUI.
+She has a daughter. America. Eight years old. Soon, America will be the referee in our blackout wars. The screaming matches where we block and unblock each other, apologizing at dawn for things neither of us remembers saying.
 
-And do you want to know the first word that lit up in my head when this beautiful woman told me she'd been thrown out of my whole country for drinking and driving? *Perfect.*
+But that’s later.
 
-Perfect. Not *run.* Not *there's your warning, that's the same disease you've got, that's a mirror, get out now.* Just — *perfect.* My kind. One of mine. I'd gone looking for an opener to train and I'd found my own reflection drinking back at me through a screen from another country, and instead of the alarm any sane man's blood would have set off, all I felt was the warm click of recognition, two of the same animal finding each other across two thousand miles of desert and border. Birds of a feather, knowing the feather on sight. I have never once in my life run from the right thing. I have only ever run toward it faster.
+The first year is the free-fall. I get drunk and sing country songs to the camera. She looks at me like I am the only good thing left on earth. She changes her passwords to *I love Clay Mills!* I complain about the single exclamation point. She loves me violently. And I love her back.
 
-She had a daughter, too. America. Eight years old at the time — and that little girl was going to become a regular third voice on our calls before long, refereeing the two of us, calling time-outs, scolding two grown drunks twice her size when we'd go at each other. But that's getting ahead of it. The fighting came later. The blackout wars, the *I'll block her, she'll block me, and in the morning we'll both unblock and apologize for something neither one of us can remember doing* — all of that was a year or more down the road, and to this day neither of us can tell you what a single one of those fights was even about, because we were never once sober when they happened. That's a later chapter, and a darker one.
+Whatever happens later—the mountain, the dog, the bus—it starts here. A phone line, two drunks, and a barn.
 
-What I want to leave you with from that barn, from those first nights, is the part that was real. Because it was real, and that's exactly what made all the rest of it cost so much.
+I thought I was running the play. I thought I closed her. I still don't know who conned who.
 
-We spent that whole first year slowly, helplessly falling in love. I'd get a few drinks in me and sing her country songs straight into the camera, and she'd just stare back at me — and I have been looked at by women in my life, I've had my share of it, but I had never in my days been looked at the way Glenda looked at me on those calls. Like I was the only good thing left in the world and she couldn't believe her luck. She loved me, and it poured off of her, and it was not an act — she never once had to fake a thing to get to me, I'd known that since the first transferred call in Alaska. She changed every password she had to *I love Clay Mills!* — and I'd give her grief about the single exclamation point, just the one, like a man haggling over the size of a gift somebody'd carved out of their own chest for him. She laughed at every dumb joke I had, the whole belly of it, head back. She loved hard, that woman. Harder than anybody ever had.
+I take her everywhere. I carry my phone into the Richland Pub and prop it against the salt and pepper shakers. The bartender says hi to her. My buddies buy her phantom drinks. The whole town knows a woman who has never come within two thousand miles of the state line.
 
-And I loved her right back. That's the truth, and I'll stand on it. Whatever I did to her after, whatever we did to each other, however it ends — and you've already seen a little of how it ends, a mountain outside Rosarito and a dog and a bus — it started in a barn in Michigan with two drunks and a phone line and a love that was as real as anything I've ever held.
+People don’t get it. *How do you love a girl you’ve never touched?*
 
-I thought I was recruiting an opener. I sat down at that table dead sure, the way I've been dead sure at every table I ever sat down at, that I was the one running the play.
+I’ll tell you how. It’s the ugliest truth in my arsenal.
 
-I closed her, all right. Or she closed me. After all these years I genuinely cannot tell you which, and I've come to think that not being able to tell is the entire definition of the thing.
+I loved her *because* I couldn't touch her. A screen is a door you can slam shut. Nobody on the other side of a laptop can actually grab you by the throat. I got the intimacy, the confession, the warmth, without giving up my emergency exit. The two thousand miles weren't the price of loving Glenda. They were the prerequisite.
 
-Either way — that was the start of it. And like the man said at the end of the last chapter, grinning, with a warrant on his neck and money running through his hands and no idea on God's earth what was coming:
+By 2022, I am pitching her AI schemes from the garage. Text-to-image. Chatbots for MMA gyms. Etsy shirts. Every weekend, a new hustle.
 
-it was a good run.
+"What happened to the chatbots?" she asks.
 
----
+"New idea," I tell her.
 
-Here's what that good run looked like up close, day after day, for the better part of two years.
+The switch only goes forward.
 
-It didn't take long before the whole town knew Glenda. Richland — a dot on the map an hour out of Grand Rapids, the kind of place where the bartender knows your truck before he knows your name — knew her, and she had never come within two thousand miles of it. I took her everywhere. I'd carry her into the Pub on my phone and stand her up against the salt and pepper shakers, the screen propped just so, like she had a stool of her own. And she did. The waitresses said hi to her. The bartenders said hi to her. My buddies pulled her right into the conversation like she'd ridden over with me — because as far as any of us were concerned, she had.
-
-It drove some folks up the wall. They could not get their heads around it: how a man calls a woman his girlfriend, says I love you and means it, signs off on it every single night, when he has never once laid a finger on her. How do you love a girl you've never met?
-
-I'll tell you how, and it's about the saddest true thing I know about myself. Because it was the most I had ever let myself know a woman without touching her. There was nothing else to do but talk. I had to listen, and she had to listen — right up until the nights we drank ourselves clean past remembering a word of it — and underneath all those blackouts I was learning her, actually learning her, the slow way, the way I had never once bothered to learn a woman I could reach out and put my hands on. It was the closest I have ever been to another living soul. And I pulled it off by staying exactly two thousand miles away. Sit with that one a second. I've had years to.
-
----
-
-By then it was 2022, and the whole world had just figured out it could make a machine talk back, and a man who has never in his life met an idea he didn't think he could close went straight off the cliff into it.
-
-Most weekends I stayed in. I'd prop Glenda up on the desk out in the garage and work for hours with her watching — AI was the new table, and I pulled up a stool. Text-to-image. Chatbots. Every fast, shiny, get-rich-quick scheme the thing coughed up, I was on it before the ink was dry, building websites I never launched and business plans I never finished. The second one got hard, or just boring, I'd dream up some limitation that wasn't really there — some reason it could never work — and use it as a trapdoor straight into the next one. Glenda got the full pitch on every last idea. She was my whole audience and my whole cheering section, right up until she'd heard *this is the one* about forty times too many.
-
-*What happened to the chatbots for the MMA gyms?* she'd say. *I thought you were doing the Halloween shirts on Etsy.*
-
-*Nah. New idea.* And I was gone.
-
-She loved me the same through every one of them; the cheering just wore a little thinner each month, the way it does when you've watched a man swear he's found the thing one too many times. I never monetized a single one of those schemes — not one, not until Mexico, and that is a long way down the road from here. What I need you to see is the shape of it, because it is the shape of everything else in this book: the next idea, the next bet, the next town, the next drink. Always the next. Never the one already sitting in my hands. It was that switch again, the one I told you about — the one with no setting on it but forward.
-
-I never did train Glenda to be a closer, by the way. Best closer in the room, and the only deal I ever actually closed her on was being my girl on the far side of a screen.
-
-And here is the one thing I could never make myself start — me, a man who could pick up a brand-new life every other month before lunch. The one thing she actually wanted.
+For two years, she asks the only question that matters.
 
 *When are you coming over?*
 
-She asked me that for two years. In Richland, and everywhere I drifted after it, the same question, soft and patient, over and over again. And every single time, somewhere back behind my eyes where she couldn't see it, the same answer lit up clean and certain: never. I am never going to Mexico. I never said it to her — I'd say soon, I'd say we'll figure it out, I'd say I'm working on it — but I had no plan on God's green earth of ever getting on that plane.
+Soft. Patient. Over and over.
 
-Because what we had was already perfect, exactly the way it was, and the reason it was perfect is the ugliest little truth in this whole chapter: a screen is a thing you can close. She could not reach me. Nobody on the far side of a screen can reach you. I got to love her with my whole chest and still keep the one thing I have never once in my life been able to do without — the door at my back, the standing option to set the phone down and disappear, the way I had disappeared from every other thing that ever got too real to hold. The two thousand miles weren't the price I paid to love Glenda. They were the only reason I felt safe enough to do it.
+And in my head, the answer is always the same.
 
-And under that sat the practical wall, the one I hid behind out loud: I had warrants. I had no passport, and I'd decided — without ever once checking — that a man carrying two of them could never get one. I didn't speak a word of Spanish. And Mexico itself scared me down to the soles of my boots, in a way I could never have explained to you back then. It felt less like a country than a one-way door. I had it fixed in my head, with no evidence and total conviction, that if I ever crossed that border I was not coming back.
+*Never.*
 
-I want you to remember I said that. Because I turned out to be right. Dead right. I just had every last reason for it wrong.
+I tell her soon. I tell her I'm working on it. But I have warrants. No passport. No Spanish. Mexico terrifies me. It isn't a country; it’s a one-way door. If I cross that border, I know with absolute certainty I am never coming back.
 
-But all of that was still years out, on the far side of a good run that wasn't anywhere near done being good yet. For now there was a barn, and a town that loved a woman it had never once laid hands on, and money coming in faster than I could throw it away, and a girl on my screen who asked me when I was coming over and believed me, every single time, when I smiled and ducked the question.
+I was right about that part. Dead right. I just had every single reason wrong.
 
-I had no idea that someday I was going to answer it.
+But that’s the future. For now, it’s a barn, a pub, a ringing phone, and a good run that feels like it might last forever.
+
+I have no idea I’m already walking toward the door.

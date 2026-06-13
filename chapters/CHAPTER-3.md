@@ -1,233 +1,141 @@
-# Chapter 3
+The Orleans Casino at nine o'clock on a Friday smells like someone else’s cheap cologne, the ghost of a cigarette, and the sweet chemical chill of an air conditioner losing a war against three hundred sweating bodies.
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: The Orleans Hotel and Casino (Las Vegas, NV) — Clay's home bar
-> - **Timeline**: Las Vegas backstory; Clay's last Friday night at the Orleans and the Saturday he flies out to Alaska
-> - **Characters**:
->   - **Clay**: The narrator, a top "closer" in the Vegas mini-vacation racket, drinking and gambling on his final night in the city.
->   - **Nate**: Clay's favorite bartender at the Orleans; twenty-six years behind a Vegas bar; the reader's surrogate.
-> - **Key Themes**:
->   - The "smoke and mirrors" of the Vegas vacation-package con, demonstrated live as a role-play.
->   - The one rule of the floor — you can't lie, you can only omit — and the moral crawlspace it creates.
->   - Self-justification as anesthesia; the con artist about to become the mark.
->   - Leaving: a blacked-out last night, a life shed down to a suitcase, and the geographic-cure delusion carried onto the plane.
+I’ve been breathing this for six years. Tonight is the last time.
 
----
+Nate slides a Stone IPA across the bar before my elbows even touch the rail. Nate is late fifties. Nate has spent twenty-six years behind a Vegas bar. Eight of them right here. Nothing in this city can surprise him anymore. My father taught me to tip a dollar a beer, minimum. A commandment I took to church. I’ve tipped Nate hundreds on the nights I hit a progressive. That’s why the beer lands before I ask.
 
-The Orleans smelled the way it always smelled at nine on a Friday — somebody's cologne, the ghost of a cigarette nobody was smoking, and underneath it the sweet chemical chill of the air conditioning losing its war with three hundred sweating tourists. I'd been breathing that smell for six years. This was the last night I ever would.
+Five hours ago, I was locked in a concrete cell. One hour ago, I watched Alisha pile three boxes of my life on the sidewalk like garbage. Right now, I am just a regular having a regular Friday night. That is the illusion I sell for a living. I look like a man who has it all handled. Tonight, I am running the con on Nate. Mostly, I am running it on myself.
 
-Nate slid a Stone IPA in front of me before my elbows hit the rail. Late fifties, twenty-six years behind a Vegas bar, eight of them right here, and not one thing left in this town could surprise him. My father taught me to tip a dollar a beer, minimum, and I'd carried that to church — tipped Nate hundreds on many nights I'd hit a royal-flush progressive. That's why the beer landed before I asked. That's why, on a Friday with a trainee on his fourth shift more or less running the well, Nate had time to lean on the bar across from me and shoot the shit. On my last night, I had him almost to myself.
+Nate knows the broad strokes. He knows our crew. What he doesn't know—what he’s been trying to pry out of us for years—is exactly how we afford to drink like this.
 
-Five hours earlier I'd been in a cell. An hour earlier I'd watched Alisha stack three boxes of my life on the sidewalk like it was trash day. Now my elbows were on the rail and the beer was already sweating in front of me, and anybody walking in cold would've seen a regular having a regular Friday. That's the same trick I sold for a living — looking like a man who has it handled. Tonight I ran it on Nate. Mostly I ran it on myself.
+"It's not a scam," we always tell him.
 
-He knew the broad strokes of my life the way a good bartender knows everybody's. He knew there were between one and five of us, every single day, and that at least one of us was holding down a stool at his bar most nights of the week. The crew is a whole other book — one I might write someday and might not. Tonight it was just me.
+Technically, this is true. A scam is taking a man's money and giving him nothing. We give him something. We just never tell him what it is.
 
-What Nate didn't know — what he'd been trying to pry out of us for years — was exactly what we did for a living.
+The whole game runs on one rule. You cannot lie. Every call is recorded. So you don't lie. You omit. You sidestep. You answer a question the mark hasn't asked and let him hear whatever he wants to hear. I have lived in that half-inch of daylight for six years. A grand a week base. Twenty, thirty bucks a deal. Ten to fifteen deals a night. Cash paid daily. This is how we drink. This is how we gamble. This is how I am getting on a plane to Alaska tomorrow.
 
-"It's not a scam," we always told him. And it wasn't, technically. A scam is when you take a man's money and hand him nothing. We always handed him something. We just never told him what it was.
+"I’ll tell you what," I say. "Last night in town. I’m going to show you how the sausage gets made."
 
-That was the whole game, and it ran on exactly one rule: you could not lie. At least you couldn't tell a lie that affected the backend of the sale. Every call was recorded. But you could omit. You could sidestep. You could answer a question the man hadn't asked and let him hear the answer he wanted. I'd lived in that half-inch of daylight for six years, and I'd gotten fat in it — a grand a week base, twenty or thirty bucks a deal on top, ten to fifteen deals a night, paid out daily in cash. That's how we drank. That's how we gambled. That's how I'd be wheels-up to Alaska in less than twenty-four hours with money in my pocket.
+Nate’s face lights up.
 
-"Tell you what," I said. "Last night in town. I'm gonna show you how the sausage gets made."
+We run it live. He plays the mark. I play both ends—the opener and the closer.
 
-Nate's whole face lit up.
+"Don't hang up on me," I say.
 
-We'd run it live, I told him. Him the mark, me front to back — I'd open the call and close it, both ends. He was Nate from Phoenix now, travels a couple times a year, last hit Vegas six months back, naturally suspicious. Ask me anything a real man would ask. One rule.
+"Oh, I'm absolutely hanging up on you," Nate says.
 
-"Don't hang up on me."
+I hold my hand up to my ear like a phone.
 
-"Oh, I'm absolutely hanging up on you," he said.
-
-Game on. Every line I fed him, I'd tell him after what I'd really just done. Two voices — the one he heard, and the one I never said out loud on the phone. Except tonight, for him, I would.
-
-I held up my hand like a phone.
-
----
-
-His pretend phone rang — I picked the ringtone, *It's Raining Men*, in my highest voice, because the details are what make it real — and he answered laughing. "You motherfucker. Hello?"
-
-"Hi, is this Nate?"
+"Ring, ring," I say. I pick my highest voice. "Hi, is this Nate?"
 
 "Yeah."
 
-"Nate, my name's Clay, I'm a VIP travel host calling from the VIP Travel Awards Company, here in Las Vegas. You've been designated a VIP through your past travels, which means you've got access to something most people never see — and before you say it, this isn't a cold call. This is something you've actually earned. Give me one minute and thirty-six seconds and I'll lay the whole thing out. If it's not for you, no hard feelings, we part as friends. Fair enough?"
+"Nate, my name's Clay, I'm a VIP travel host calling from the VIP Travel Awards Company here in Las Vegas. Give me one minute and thirty-six seconds, and I’ll lay this whole thing out. If it’s not for you, no hard feelings. Fair enough?"
 
-"Okay," he said, suspicious already, exactly right.
+"Okay," Nate says. Suspicious. Perfect.
 
-*One minute and thirty-six seconds. Nobody on God's earth schedules ninety-six seconds. But a number that specific sounds like a man reading off a real form, and sounding real was ninety percent of the job. "About a minute" is a salesman. "A minute and thirty-six seconds" is your accountant. The entire call is actually going to take twenty or thirty minutes, but after a minute and thirty-six seconds I'll have shoved so much ether up his ass he won't even remember the number. The exact wording doesn't matter nearly as much as the fact that you're saying words with no meaning. It's called pacing. When you take a step back and look at it, you realize a good portion of this entire con is simply the art of wasting enough of the mark's time and energy that he doesn't have the faculties left to notice you're actually picking his pocket.*
+I step out of character to explain the mechanics. "One minute and thirty-six seconds. It's a hyper-specific number. It sounds like I am reading a real form. Being specific is pacing. Pacing is how you waste enough of a mark's time and energy that he stops noticing you are picking his pocket."
 
-"When you travel, Nate, is it just you, or you and a spouse?"
+I step back in. "When you travel, Nate, is it just you, or you and a spouse?"
 
 "Me and my wife."
 
-*Here's why that matters, and it's got nothing to do with being polite. The entire point of this call — the only reason any of these gifts exist — is to put him in a chair at a sixty-to-ninety-minute "travel show." That's a timeshare presentation. Nobody on earth wants to sit through a timeshare presentation, so we never call it that. If he asks me, point blank, "is this a timeshare," I say no — and I'm not lying, because they repackaged the thing and call it a Vacation Club now. Mini-vacations instead of week-long blocks. Same animal, prettier bow. And most of our contracts won't take a single man at all. You bring the spouse to the travel show or you get turned away at the door — no room, no gifts, stranded in Vegas with nothing. So I need to know there's a spouse before I spend a dollar of gifts on him.*
+I step out. "If he's single, the deal is dead. The entire point of the call is to drag a warm body into a ninety-minute timeshare presentation. They just call it a Vacation Club now. No spouse, no presentation. No presentation, no deal."
 
-"Now — you've been to Vegas in the last couple years?"
-
-"Don't your records tell you that?" Nate said, folding his arms, getting into it.
-
-"No, sir, I'm not privy to that information. They don't hand that kind of thing to first-line outreach reps like me — it's tucked away, for your protection. Would you like me to transfer you up to a floor manager?"
-
-Nate broke. "Sneaky little shit."
-
-"It's for your own good, Nate." I winked. "Stay in character."
-
-*Watch what I just did. I never lied. "They" don't give me that information — true. That's because nobody in this building has it. It's tucked away somewhere for his protection — also true, somewhere. I never once said the floor manager had it either. I just built a door, set it right next to him, and let him decide whether to walk through. And on the other side of that door is a closer. Like me. Either way the sausage gets made; he just gets to pick the chef. Right now, he's dealing with the sous chef. He hasn't said "no" yet. He hasn't said, "let me talk to my wife." He's not even sure he's been screwed with. He's just kind of amused. But the sooner I can get him over to a closer, the sooner I can move on to the next mark and start the process over.*
-
-Nate, wheels turning, deciding whether or not to push the door. "Do I want to be transferred to your manager?"
-
-"Up to you, Nate. Put yourself in a real traveler's shoes, first time getting this call."
-
-He thought about it. "No. Keep going."
-
-"Thank you for that." *And I mean it — every minute he stays on the line is a minute closer to his card.* "Last time you were here, where'd you stay?"
+"Last time you were here, where'd you stay?" I ask him.
 
 "Six months ago. The Orleans."
 
-"The Orleans — one of my favorites. Far enough off the Strip to feel like a local, close enough to cab in when you want the circus." I let a beat go by, and then I took it away from him. "Unfortunately, since the Orleans is off-Strip, they don't run these frequent-traveler promotions. They market to locals."
+"The Orleans," I say. "One of my favorites. Unfortunately, they don't run these frequent-traveler promotions. They market to locals."
 
-Nate frowned — genuinely a little disappointed, which told me the trick had landed even on a man who knew it was a trick.
+Nate frowns. A genuine frown. The trick has landed.
 
-*That's the takeaway, and it's the most important move in the whole call. I'm not here to hand you everything you want. A man who gets everything gets suspicious. I give, then I take something back, and the taking is what makes the giving feel real. Now — if you'd named one of the sixteen Strip hotels I'm allowed to mention, I'd have done the opposite. As the opener I'd have gone, "Oh — Mandalay Bay? Hold on one second for me," like I'd just found gold, and transferred you to the closer. To me. So let's run it that way. Say you'd told me Mandalay Bay.*
+I step out again. "That is the takeaway. The most important move in the call. I am not here to hand you everything. A man who gets everything gets suspicious. I give, and then I take. The taking makes the giving feel real. Now, say you stayed at Mandalay Bay."
 
-"Mandalay Bay," Nate said, grinning, playing along.
+"Mandalay Bay," Nate says, grinning.
 
-"Hold one second for me, Nate." And I put him on hold — *which means I need a beer, and we need a shot of Jameson, thank you, sir.* Nate, professional that he was, poured two and did them with me quiet and quick, the way he did everything, never more than two or three across a whole night. The trainee racked glasses down the rail. Somewhere behind us a slot screamed out a jackpot and nobody we knew got rich. We tipped the shots back and went straight into it — except now I wasn't Clay the outreach rep anymore.
+"Hold one second for me, Nate." I drop my hand. I look at Nate. "This means I need a beer, and we need a shot of Jameson."
 
-"Hi, Nate? My name's Glen, I'm the floor manager running tonight's promotion. I wanted to hop on personally — not because Clay wasn't doing a great job, he was — but because he tells me you stayed at the Mandalay Bay in the last six months. That right?"
+Nate pours the shots. The trainee bartender is racking glasses. A slot machine screams a jackpot somewhere behind us. Nobody we know got rich. We shoot the whiskey.
 
-"That's right."
+I pick the invisible phone back up. I lower my voice. I am the closer now.
 
-"Excellent. Good news for you. They were running a promotion that lets me double your dining and your travel credits, and I've got a handful left. You planning to be back in Vegas in the next two years?"
+"Hi, Nate. My name's Glen. I'm the floor manager. Clay tells me you stayed at Mandalay Bay recently. Good news. They’re running a promotion that lets me double your dining and travel credits. Planning to come back to Vegas in the next two years?"
 
 "Of course."
 
-*That one's a lie — flat out, no crawlspace, a lie. There was no Mandalay Bay promotion. But it never touches the back end of the deal, and good luck to any human being who tries to call Mandalay Bay and ask what their floor wasn't running.*
+I step out. "That is a lie. Flat out. There is no Mandalay Bay promotion. But it doesn't touch the backend of the deal. The rule only applies to the contract."
 
-"Course you are," I said. "You probably wouldn't be on my list if the answer was no, right?"
+I step back in. "I’m going to give you four days, three nights on the Strip. Two full years to use it. No blackout dates."
 
-"Now — has my rep gone over your gifting, or did he pass that buck to me?"
+I step out. "Most people never use it. We sell the same empty hotel bed over and over to people too embarrassed to admit they bought a timeshare pitch."
 
-"Hasn't told me a thing."
+I step back in. "Only date I can't promise is New Year's Eve."
 
-"Typical." *Fake laugh.* "Let me preface this — it isn't for the general public, and it isn't something you won. It's something you earned. But it's fully giftable to anyone twenty-one or older with a valid ID. You got a license, passport, state ID?"
+Nate snorts. "Course you can't."
 
-"Sure do. Oh — I could give this to my eighty-year-old grandmother. She loves Vegas."
+I point at him. "He just sold himself. Give a man everything, but tell him he can't have one specific thing. The one 'no' makes all the 'yeses' feel earned."
 
-"It's yours to do with as you please, Nate. Long as they've got the documents."
+Nate leans in. "What's it run me?"
 
-He looked so genuinely delighted about Grandma that I almost felt bad. Almost.
+I smile. "He leaned in. The tell. Never name the number first. Three hundred and ninety-nine dollars. That’s the price. Say it early, it sounds like real money. Say it after you stack the gifts, it sounds like a steal."
 
-"As a VIP, you're getting four days, three nights, your pick of sixteen hotels right on the Strip. Two full years to use it. No blackout dates — thirty days' notice and I guarantee them."
+I stack the gifts. A hundred in dining at two hundred restaurants. I double it to two hundred. (It’s a Restaurant.com card. Dog shit. Ten percent off per check). Four show tickets. (Real, because the timeshare needs warm bodies). A hundred in free slot play. (Worthless. One promotional machine downtown that never pays out). A thousand dollars in travel credit. (Real, but choked with blackout dates).
 
-*Most never will. Better than seven in ten of these expire in a drawer. Some of these "frequent travelers" already have three or four they never touched and buy another one anyway — which is the whole beauty of it: the owner never has to honor the room. We sell the same empty bed over and over, to people too busy or too embarrassed to ever come sleep in it.*
+"All of it," I say. "Three hundred and ninety-nine dollars. And if you commit right now, I’ll throw in eight days at any RCI resort on the planet. You just pay the twenty-dollar resort fee."
 
-"Only date I can't promise you is New Year's Eve."
+I step out. "Honesty. I just told him there’s a catch. The twenty-dollar resort fee. A man who admits an ugly truth has to be straight on all the rest."
 
-Nate snorted. Twenty-six years in this town; he knew exactly what that meant. "Course you can't."
+Nate lays both hands flat on the bar. "How do I know this isn't a scam?"
 
-*And there it is — he just sold himself. That's the takeaway, the most important move in the whole call: hand a man everything, then pull back the one thing he already knows he can't have, and that single "no" makes the whole pile of yeses feel earned. "No blackout dates" is even true — the way most things on this call are true. There's just an upcharge. You want the weekend you actually want, you pay for it when you book, sometimes a grand on top. Otherwise you're looking at a Tuesday in August in the basement of Circus Circus, AC losing, a hundred and four outside. And Nate — not even my mark — is nodding along like I did him a favor.*
+The best question. I give the best answer.
 
-"Okay," Nate said, leaning in now in spite of himself. "What's it run me?"
+"Because we take credit cards, Nate. Visa, Amex. A merchant account will shut you down in a month if you sell fake packages. The fact that I can run your American Express right now tells you exactly who you are dealing with."
 
-*He leaned in. That's the tell. He isn't asking whether anymore — he's asking how much. So I don't answer. Never name the number first; it's the whole trick. The price doesn't change — it's three-ninety-nine, it was three-ninety-nine before I dialed — but say it now, before I've stacked the gifts to the ceiling, and it sounds like money. Say it last, after I've handed a man four days on the Strip and a week in a resort he hasn't paid for, and the same number sounds like a steal he'd be an idiot to walk away from.*
+I step out. "All true. Except the second the card clears, I put him on a recorded line. Fast, yes-or-no questions. 'You understand this is promotional? Yes. You agree to attend a ninety-minute travel presentation? Yes.' Set it up right, and they say 'yes' to the exact cage they just spent twenty minutes avoiding."
 
-"I'll get there, I promise — couple more things you've earned first." I didn't slow down. "You gotta eat, so here's a hundred in dining at over two hundred restaurants on and off the Strip. And since I'm adding that Mandalay promo, I'm doubling it. Two hundred.  Use it all at the same restuarant, or spread it around.  Up to you."
+I drop the invisible phone.
 
-*It's a Restaurant.com card. Dog shit. Ten percent here, ten percent there, one use per check. He can blow the whole "two hundred" at the same dining establishment — just 10% at a time.*
+Nate looks at me. Impressed. Sick to his stomach. Exactly where he should be.
 
-"Those cards are garbage, man," Nate said, and I pointed at him like he'd won a prize.
+"Six years," Nate says. "I figured it was something like that. I didn't figure it was that."
 
-"Two show tickets — anything at the V or the Saxe, twenty-three shows. With the Mandalay package, I'll make it four."
+I shrug. I drink my beer.
 
-*Those are real. I'll go up to six if I need them to drag a man over the line. The timeshare companies hand them to us by the thousand, because the entire point is a warm body in a chair at the travel show.  You try to keep the gifting as minimal as possible to leave the booking department some ammo to save the deal when the mark inevitably tries to cancel after they find out Labor Day weekend is going to cost them an extra grand.*
+Here is what I don't say to Nate. Here is the math I do to survive my own reflection: They didn't ask the right questions. Nobody made them answer the phone. They wanted something for nothing. I just stood there and let them want it.
 
-The trainee set a fresh beer at my elbow without being asked — four shifts in, already learning the rhythm of the room. I didn't look up.
+After that, the night shatters into fragments.
 
-"And it wouldn't be Vegas without a little gambling — hundred in free slot play, soon as you check in. You hit the big one, don't forget ol' Glen." *Fake laugh. Then I move right past it, fast — because the slot play is the single most worthless thing in the bag, the one I least want questions about. It runs on one promotional machine downtown, pays out maybe once every couple of years, and nobody's ever met the couple. I let him "find" it once he's already in Vegas, after he's sat through the presentation.*
+I don't remember leaving the bar. I play dollar video poker. My father always said, "You can never win on quarters. You've got to play dollars. The devil hates a coward."
 
-"But the one I think you'll really love, frequent traveler like you — travel credit. Five hundred for the promotion, doubled to a thousand with the Mandalay package. Good at over two hundred thousand hotels and resorts worldwide."
+So I play dollars. And I lose. Down to the felt.
 
-*I can give up to $1500.It's real. Also a discount card: blackout dates, no holidays, almost no weekends, sixty percent off at the very most and doesn't cover taxes, so you can't use it to cover your entire room cost. all "based on availability." Real, and good luck.*
+The last clear memory I have is four queens lining up on the screen. A two-hundred-dollar ticket spitting out of the machine. I am drunk. I am grateful. I am sad in a way that has no vocabulary. I slide the ticket across the bar to Nate. One last tip. Goodbye to Vegas.
 
-Nate sat back, and for the first time all night he wasn't grinning. "This is fucked up." A beat. "Keep going."
-
-*And that's the whole thing, right there — the part nobody believes until they've watched it happen a thousand times. He knows. He's known since the first ring exactly what I am. And he still said keep going. Knowing doesn't save you. The con was never built on what a man knows; it runs on what he wants.*
-
-"Now — that thing you've been asking me since the jump. What it costs."
-
-"Which I asked twenty minutes ago," Nate said.
-
-"You did. And now I can finally answer, because now you know what it is." I let it sit a beat. "Four days, three nights, two hundred in dining, four show tickets, a thousand in travel — all of it, today only, not per person, not per night. Three hundred and ninety-nine dollars."
-
-I watched the number land on him. Even Nate — even a man who'd just sat there and watched me build the thing board by board — ran the math for half a second before he caught himself. Three-ninety-nine for 4 nights on the Strip, including food, shows, and a thousand in travel. That half-second is the whole job.
-
-"And if you commit right now, on this call, I'll throw in a bonus — eight days, seven nights, any RCI resort on the planet, two-bedroom suite. Doesn't cover your airfare, and you'll owe the resort fees upon checkout. on the room. Even I can't get you out from paying resort fees. Those are gonna run you about $20 a night. But everything else is on us. Fair?"  
-
-*See what I did with the resort fees? That's me being honest — generous, even. I just looked a man dead in the eye and admitted this thing isn't completely free, that there's a catch, that the resort gets their cut no matter what. And a man who'll cop to the small ugly truth has to be straight on all the rest. That's the play. One honest little disclosure buys cover for every omission in the call — including the "free" eight-day RCI getaway, which is the same trap wearing a different logo: another ninety-minute pitch to collect it, and a calendar blacked out from here to the horizon.*
-
-"No," Nate said, laughing.
-
-"What's holding you back, Nate? You told me you're coming back to Vegas. You gotta eat — covered. You like a show — covered, two of your three nights. A thousand in travel and a week anywhere in the world. You can't get three nights on the Strip for three-ninety-nine to begin with, let alone with all this stacked on top. Can you?"
-
-"…No."
-
-*And there it is. From here, I never hang up. More show tickets. A cruise. Airfare for two that's real and buried under a hundred blackout dates and hoops. I've got a drawer full of "bonuses" and all the patience in the world, and I will, very warmly, guilt a man into his own wallet. I'll put his wife on the phone and run the whole thing again for her. By now most people aren't even fighting me — they're just hunting for a way to say yes that won't make them feel stupid. So I hand them one. Visa, MasterCard, Discover, or American Express?*
-
-Nate laid both hands flat on the bar, the way he did when somebody at his rail had had enough. "All right — how do I know this isn't a scam?"
-
-And just like that, he was the one running it on me. Best question in the call. And I had the best answer.
-
-"Because we take credit cards, Nate. Real ones — Visa, Amex, the works. You don't earn a merchant account selling people nothing. Your card company will never let you pay for a service you don't receive — we don't deliver, you call that 800 number on the back, you cancel, and we lose the account for selling fake packages. We wouldn't last a month. The fact that I can run your American Express right now should tell you everything about who you're dealing with."
-
-*All true. And here's how I make sure he never pulls that 800-number thread. By the time he works out most of the gifts are shit, he's already sat through the presentation and checked into the hotel — which he booked through our agents. And the second his card clears, I put him on a sixty-second recording and walk him through ten fast yes-or-no questions, friendly, half-bored. "You understand this is promotional in nature, that the gifts are promotional, that this isn't a prize you've won but a deeply discounted vacation package — yes?" And the big one, the one that gets the most pushback in the entire call, the one I bury in the middle where it's just another yes: "You and your spouse agree to attend a ninety-minute travel presentation while in Las Vegas — yes?" Set that up wrong before you hit record, and nine out of ten buck right at the finish line. Set it up right, and they say it out loud, into a recording — yes — to the exact cage they spent the whole call trying not to walk into.*
-
----
-
-I set the imaginary phone down. Nate just looked at me for a second, somewhere between impressed and a little sick, which is exactly the right place to be.
-
-"Six years," he said. "Six years I figured it was something like that. I didn't figure it was *that*."
-
-I shrugged and drank. Here's the thing I didn't say to Nate, because I hadn't said it out loud to myself yet either: I was good at it. Best closer in the room, barely a chargeback to my name. And I slept fine. I told myself the same thing every night, the same prayer that washed the whole thing off in the shower — they didn't ask the right questions. Nobody made them pick up the phone. It was their own greed that walked them into it; they wanted the something-for-nothing, and I just stood there and let them want it. They'd still get their three nights in Vegas for three hundred bucks. So what if it was the basement of Circus Circus.  This racket had been going on 20 years before I ever got to Vegas, and obviously those who do use them are buying Timeshares or none of this would still be around. A man gets used to the money, and then he gets used to the man he is when he's making it.
-
-That's the kind of math a man does when he needs to keep doing the thing.
-
----
-
-After that, the night comes apart in pieces.
-
-I don't remember leaving the bar. I'd pulled five hundred dollars at the start of the night and bled it out slow, playing dollar video poker instead of my usual quarters. The difference sounds small and isn't: max bet on quarters runs you a dollar and a quarter a hand, on dollars it's five. You lose four times as fast. But my father never had any use for quarters. "You can never win on quarters," he'd say. "You've got to play dollars. The devil hates a coward." That was his line.
-
-So I played dollars, and I lost — right down to the felt. The one thing I remember clean is four queens lining up on the screen and the little electric rush of cashing out the two-hundred-dollar ticket, and then, drunk as hell and grateful and sad in a way I couldn't have put into words, sliding it across the bar to Nate. One last tip. Six years, and that's how I said goodbye. I think I tried to tell him what it all meant. I don't remember the words. I don't remember if he said any back. Just that it was the last time.
-
-My father was my introduction to this town. Some of the best nights of my life were the two of us posted up at one bar or another, fist-bumping over some small win, him leaning into the machine with a look I can still see. "This one's gonna hit," he'd say. "I can feel it." And the strange part is how often it did — the screen rolling full house after full house, and then the royal, or four aces with the kicker, the both of us hollering like we'd cracked the casino open. Leaving Vegas meant leaving those nights too. I knew I'd never get them back.
+My father was the one who introduced me to this city. The best nights of my life were the two of us, fist-bumping over a Royal Flush, screaming like we broke the bank. Leaving Vegas means leaving him here, too.
 
 I don't remember the room. I don't remember the bed.
 
-I woke up Saturday with a pounding skull, an empty wallet, and one thing in it I couldn't explain — a free-drink ticket from the Sportsbook. You only get those for laying down bets, and I hadn't placed a single one all night. Still have no idea where it came from. Not important. Just one more small mystery from a night I'd handed back to the booze.
+I wake up on Saturday. My skull is a cracked egg. My wallet is empty, except for a single free-drink ticket from the Sportsbook. I didn't place a single bet all night. It’s just another piece of debris from a blacked-out life.
 
-That was the life I kept telling myself I was so good at.
+My flight to Anchorage leaves at five.
 
----
+I spend the morning deciding what pieces of myself I am keeping. Alisha left three boxes on the sidewalk. I sort through them on the floor. A suitcase. A backpack. Clothes. Laptop. Cables.
 
-The plane left at five. I wanted to be at the airport by three, which left me the morning for the last thing I had to do in Las Vegas — decide which pieces of my life were coming with me.
+I leave the rest for housekeeping. Six years in the desert, and I am walking away from it like it was a bad hand of cards. This isn't strength. This is just what running looks like with practice.
 
-Everything I owned was in that room: the boxes Alisha had stacked on the sidewalk and the bag she'd packed, her idea of what I deserved to keep. I sorted it all out on the floor. It doesn't take long when you've trained yourself to travel light. Clothes, the laptop, the cables, whatever fit. A suitcase and a backpack, and that was the sum of it. The rest — the boxes, the odds and ends, whatever she'd decided was mine — I left right there for housekeeping. Six years in the desert and I walked away from most of it without a second look. That's not strength. That's just what running looks like once you've had enough practice at it.
+I check my bank balance. Sixteen hundred dollars. I pull out a hundred. One more morning. One more shot at leaving a winner.
 
-I checked my balance on the way out the door. Sixteen hundred and change, after the room and the cash I'd pulled and burned the night before. I took out another hundred. One more morning. One more shot at leaving this town a winner.
+I step into the Las Vegas heat. I buy a joint at the dispensary. I smoke half of it on the sidewalk.
 
-I stepped out into the heat, hit the dispensary on the corner, bought a single joint for the road, and smoked half of it on the sidewalk like a man with nowhere in the world he had to be.
+I sit at the Alligator Bar inside the Orleans. Two hot dogs. Video poker. Quarters this time. I stretch the hundred out. The machine spits out four of a kind. I cash out at one-twenty. A twenty-dollar profit. In this town, that’s a miracle. I leave the twenty for the bartender. My father's rule, right to the bitter end.
 
-I had a couple of hot dogs at the Alligator Bar inside the Orleans and played one last round of video poker while I ate — quarters this time, slow as I could stand, stretching that hundred out. I was down sixty before I noticed. Then four of a kind came up on the screen, the credits stacked up, and I clawed it back to one-twenty. Cashed out a small winner, which in that town counts as a minor miracle. On my way out I peeled off a twenty for the bartender. My father's rule, right to the end.
+I get in a cab. A hundred dollars in my pocket. A hangover. Six years of memories left on the casino floor.
 
-Then I climbed into a cab with a hundred dollars in my pocket, a hangover I'd earned, and six years of memories I figured I was leaving in the desert for good.
+I watch the Strip shrink in the side mirror. I think I am escaping. I am wrong. I am just changing the background scenery.
 
-I didn't know it yet, riding out with the Strip shrinking in the side mirror, but I wasn't escaping a damn thing. I was just changing the venue.
+Soon, I will be in Alaska. I will be working the phones again. Selling solar. The same machine, different script. And a voice will come across the line. An opener passing a call to a closer. She will tell me I am special.
 
-Before long I'd be in Alaska, working a phone again — solar this time, but the same machine, the same openers and closers just a different script — and there'd be a voice coming across the transfer. Warm. Specific. Telling me I was special, that I'd earned something I never asked for. She was an opener. I was the closer, the best in the room, the man who knew every move because he'd run every one of them himself.
+Her name is Glenda.
 
-And I would not see a single one of them coming.
-
-Her name was Glenda. And she never once had to lie to me either.
+And she will never have to lie to me, either.
