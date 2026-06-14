@@ -10,7 +10,7 @@ The chairs hold men who look exactly like me. Down to their last good idea. Wear
 
 After years of Vegas floors—bells, transfers, money made out loud—the quiet of this place lands on me like weather.
 
-The funny thing is, the librarian never asks for an ID.  miles of walking and a stranger's twenty-dollar bill so the state would certify my existence, and she doesn't want to see a lick of it. Just tells me the forty-five-minute limit.
+The funny thing is, the librarian never asks for an ID. All those miles of walking and a stranger's twenty-dollar bill so the state would certify my existence, and she doesn't want to see a lick of it. Just tells me the forty-five-minute limit.
 
 I already know forty-five minutes isn't enough. I file it away and sit down.
 
@@ -56,7 +56,7 @@ Thirty minutes later, the Harris Teeter.
 
 Western Union lives at the customer-service counter. It shares a window with every small catastrophe in the store. In front of me is a man returning a broken lamp with no receipt. He will not give up. He is going to win this one. I stand there soaked, five hundred dollars and the rest of my life thirty feet away behind a register, watching a grown man litigate a dead lamp for thirty minutes I will never get back.
 
-Finally. The counter. I give them my name and Niki's name. I lay my paper ID faceup next to the broken lamp abandonded by the man who didn't win.
+Finally. The counter. I give them my name and Niki's name. I lay my paper ID faceup next to the broken lamp abandoned by the man who didn't win.
 
 The clerk says: "We need a confirmation number."
 
@@ -70,7 +70,7 @@ I walk straight back to the same elderly woman. She shakes her head before I spe
 
 I need her to generate a unique passcode. I need her on my side. By choice. I plead it small. Straight. I am going to be sleeping outside tonight if I don't get the passcode to my own money. Two minutes. Then I reach into my pocket. I offer her everything I own. Two soft dollar bills. The change from McDonald's.
 
-I try to bribe a librarian with two dollars.  I figured she could maybe hit the bingo hall after work.  Have herself a lttle night.
+I try to bribe a librarian with two dollars. I figured she could maybe hit the bingo hall after work. Have herself a little night.
 
 She looks at me. She gives in. She doesn't touch the money. She generates the code and waves me through.
 

@@ -46,7 +46,7 @@ I'd worry about the ID later. I'd worry about all of it later. For right now I w
 
 There's a sadder thing I have to set down here, because it landed in that same stretch of days and it deserves to sit in this book alongside the rest of it.
 
-When they handed me back that laptop and I got my TextNow working again, Ace reached out. It was a month old. And Ace — the last man standing, though neither of us knew yet that that's what he was — had months of news dammed up behind him and no soft way to let it out. So he gave it to me all at once.
+When they finally handed me back that laptop and I got my TextNow working again, there was a message waiting from Ace. It had been sitting there the better part of a month — I'd been down in detox and the bunkroom the whole time with no way to read it. And Ace, the last man standing, though neither of us knew it yet, had months of news dammed up behind him and no soft way to let it out. So he gave it to me all at once.
 
 Ritchie was dead. Fentanyl, four months back. My best friend in that whole city, the man who scooped me up every morning in that spotless Lexus with the Versace shades and the Rolex and whatever fresh disaster of mine was riding shotgun — gone four months, and I hadn't even known to grieve him. The last thing I have from Ritchie is a text that says *Happy New Year.* I never answered it. It's still sitting there in my TextNow app, unread by me until it was already far too late to matter — the last words my best friend in Vegas ever sent, left hanging in the air.
 

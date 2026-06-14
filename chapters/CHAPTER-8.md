@@ -98,7 +98,7 @@ Inside of days, I am killing it. Two hundred, four hundred, twelve hundred dolla
 
 I am king of the castle again. Glenda has me saved as Alaskan closer. We haven't exchanged one human sentence. Just deals flying down the wire. Opener and closer. I don't know it for what it is. I just know the threads ping, the money comes, and I feel like myself. I feel great. Feeling great is the most expensive thing I know how to feel.
 
-I give up on my stolen stuff. The guy ghosts me twice. I walk into Best Buy and drop nine hundred dollars on a top-of-the-line laptop on clearence. I start buying new clothes. I am redressing the set. I mistake the new costume for a new man. Smoke and mirrors run on myself. The easiest mark in the building.
+I give up on my stolen stuff. The guy ghosts me twice. I walk into Best Buy and drop nine hundred dollars on a top-of-the-line laptop on clearance. I start buying new clothes. I am redressing the set. I mistake the new costume for a new man. Smoke and mirrors run on myself. The easiest mark in the building.
 
 There are good days. Real ones. I hit the local bars. The hostel is a river of travelers. Laura puts me in charge of the Fourth of July cookout. I flip burgers in the white midnight daylight for a yard full of strangers. Briefly, I feel like a person who belongs.
 
@@ -114,7 +114,7 @@ I do what I always do when a place gets complicated. I leave.
 
 I book a flight out. Guess where the flight goes. The universe has a sense of humor and its whole act is callbacks.
 
-Manny drops two tickets in my lap like a tip. Front row. Dave Chappelle and Joe Rogan at the MGM. Find somebody to take. In Las Vegas.  He can no longer make it.
+Manny drops two tickets in my lap like a tip. Front row. Dave Chappelle and Joe Rogan at the MGM. He can no longer make it. Find somebody to take. In Las Vegas.
 
 Fuck my life. The exact city I fled three chapters ago. The place I starved and bled to escape. The wheel comes around to the same green felt it started on. The geographic cure's punchline is always the town you ran from.
 

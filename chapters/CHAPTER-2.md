@@ -40,11 +40,11 @@ I believe in the geographic cure. The alcoholic’s deepest delusion. Cross a st
 
 I have no plan for Alaska. I just know I have to get out before I lose my nerve.
 
-I lived in Anchorage a decade ago. Another lifetime. I had a wife. I had a baby girl. I lost the baby girl to the white powder and the brown liquor. I gave her up for adoption when she was two.
+I lived in Anchorage about seven years ago. Another lifetime. I had a wife. I had a baby girl. I lost the baby girl to the white powder and the brown liquor. I gave her up for adoption when she was two.
 
 That is the heaviest thing I carry. It is too heavy for this book right now. We will get to her later.
 
-I am running from Vegas, yes. But I am also crawling back to the scene of the original sin. If I stand in the exact same spot in the snow, maybe the last ten years will rewind.
+I am running from Vegas, yes. But I am also crawling back to the scene of the original sin. If I stand in the exact same spot in the snow, maybe the last seven years will rewind.
 
 The collapse starts on a Tuesday.
 

@@ -30,7 +30,7 @@ The water was long gone. The coke was nearly gone. I hadn't truly slept in the b
 
 That was about when I saw the dust.
 
-A plume of it, rising off the dirt road, a vehicle coming, and me out in the open with nowhere on God's flat earth to hide. I went down. There was a wash cut into the desert a little ways off — a dry gully, waist-deep — and I half-ran, half-fell into it and pressed myself flat against the dirt and went still, I kept the bamboo stick outside their container home and took it with me for what initially was going to be the mile trek.  I gripped it in both hands like it could do one thing for me against what I was sure was coming.
+A plume of it, rising off the dirt road, a vehicle coming, and me out in the open with nowhere on God's flat earth to hide. I went down. There was a wash cut into the desert a little ways off — a dry gully, waist-deep — and I half-ran, half-fell into it and pressed myself flat against the dirt and went still. I'd kept the bamboo stick from outside Reina's container and brought it along for what was supposed to be a one-mile walk to the bus — and now I gripped it in both hands like it could do one thing for me against what I was sure was coming.
 
 The truck slowed.
 

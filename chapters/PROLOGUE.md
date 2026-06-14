@@ -1,40 +1,31 @@
 # Prologue
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**:
->   - Mountains two hours outside of Rosarito, Mexico (Flash-forward captivity scene)
->   - Present day, safe in a writing chair (Retrospective reflection frame)
-> - **Timeline**: Flash-forward to the height of the crisis / Present day reflection
-> - **Characters**:
->   - **Clay**: The narrator, reflecting on his physical and mental scars.
->   - **Captors**: Unnamed Spanish-speaking men who run the ranch/camp and torment Clay.
-> - **Key Themes / Hooks**:
->   - Captivity, trauma, and powerlessness.
->   - The reality of physical scars vs. psychological survival.
->   - Foreshadowing the chain of bad decisions ("left turns") leading from Vegas to the Mexican mountains.
+The day they finally let the dog catch me, I was twenty yards from the bus.
 
----
+I ought to walk you through how the game worked, because it took me longer than I'd like to admit to understand I was even in one. They'd run me through the morning chores first — feed the horses and the pigs and the chickens, muck the stalls, haul the water and the feed across the open ground — and then they'd point me back at the bus and let me start walking. And they'd wait. They'd let me get just far enough out across that dirt to start believing I'd make it. That was the part they were paying for. The believing. And then, somewhere behind me, a man would say something in Spanish I couldn't understand, and I'd hear the chain come off, and I'd run.
 
-They wait until I'm twenty yards from the bus before they let the dog go. It isn't the first time — but the other times they loose it at ten yards, close enough that I always just barely make it. Not today. Today they want to watch.
+The other times they loosed it at ten yards, and I made the door every time, a half-step ahead of its teeth, and the whole yard would howl. Ten yards I could do. But that day they'd gotten bored of watching me just barely win, and they wanted the other thing — they wanted to see what happened when I lost — so they held it until I was out to twenty. And twenty was too far. I think I knew it was too far before my second step.
 
-That's the game. They make me feed the horses, the pigs, the chickens, clean the stalls, first. Haul the water, the feed, all of it, and they let me get just far enough across the open ground that I have a reason to hope — and then somebody behind me says something in Spanish I can't understand, and I hear the chain.
+I ran anyway. You always run. The shepherd ate the ground between us like it wasn't there, and I heard it before I felt it — that low sound a serious dog makes that isn't a bark at all. Barking would have been a mercy. Barking is a dog telling you to leave. This was a dog that had already decided. Then the teeth went into the back of my ankle and down to the bone, and the whole world tipped sideways, and the dirt came straight up to meet my face — and behind me, a yard full of grown men were laughing and yelling *GRINGO* like it was the finest thing they'd seen all year.
 
-I run.
-
-This time I'm not going to make it, and I know I'm not going to make it. The German shepherd covers twenty yards before I've made it five. I hear it before I feel it — this low sound that isn't barking. Barking would be better. Barking is for dogs that want you to go away. Then it's on me. Teeth in the back of my ankle, and the dirt comes up to meet my face, and somewhere behind me a bunch of grown men are laughing and yelling *GRINGO* like it's the funniest thing they've ever seen.
-
-Maybe it is. I don't know. I'm a forty-something white guy who doesn't speak Spanish, facedown in the mountains two hours outside of Rosarito, getting eaten by a dog for the entertainment of the people who own me.
+Maybe it was. I wouldn't know. I was a forty-something white man who couldn't speak a word of their language, facedown in the dirt on a mountain two hours outside Rosarito, getting taken apart by a dog for the entertainment of the men who owned me.
 
 How's that for a Tuesday.
 
 ---
 
-I can still feel it. I'm telling you this from a chair, a free man, and if I reach down right now I can put my finger on the marks those teeth left in my ankle. They never really faded. Some things don't. The scar's the easy part. It's the one piece of that mountain I can actually hold in my hand — the only part that makes sense, because I can point to it. It happened, here's the proof, end of story. The rest of it I'm still trying to explain to myself.
+I'm telling you all of this from a chair. A free man — sober, the door unlocked, nobody on the other side of it. And if I reach down right now, even now, I can lay a finger on the marks those teeth left in the back of my ankle. They never did fade all the way out. Some things don't.
 
-So let me start where it started. Not in the mountains. Not with the dog.
+And I want you to understand something, because it's the strangest thing I've got to hand you about the whole ordeal: that scar is the easy part. It is the one single piece of that mountain that makes any sense to me. I can hold it. I can point to it and say *it happened, here's the proof, that's the end of it.* Everything else up there — how I came to be standing on it at all, what it cost me and the people I dragged up there beside me, how a man talks his own two feet all the way to a place where dying would have been the kinder draw — that I'm still turning over in my hands, all this time later, trying to make it lie flat.
 
-Let me start on a one-way plane, with two warrants behind me and a woman I'd never met waiting on the other side of a border I had no legal right to cross.
+It doesn't lie flat. I've about made my peace that it never will.
 
-Because you're going to want to know how a man ends up where I ended up. And the honest answer is: one bad left turn at a time.
+---
+
+So let me start where the thing actually started. Not on the mountain. Not with the dog.
+
+Let me start on a one-way plane — two warrants behind me, no passport in my pocket, and a woman I'd loved for three years and never once touched waiting on the far side of a border I had no legal right to cross.
+
+Because you're going to want to know how a man ends up where I ended up: facedown in that dirt, grateful in all the wrong ways just to still be breathing. And the only honest answer I have is the same one I've been circling my entire life.
+
+One bad left turn at a time.

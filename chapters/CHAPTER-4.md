@@ -8,7 +8,7 @@ I press my forehead against the scratched plexiglass window. The cold seeps stra
 
 A brutal, freezing postcard.
 
-Alaska is the one place on earth that already took something from me I can never get back. I lost a two-year-old daughter here ten years ago. And here I am. Flying into the scene of the crime on purpose. Sober-ish. Smiling out the window like a man who hasn't learned a goddamn thing.
+Alaska is the one place on earth that already took something from me I can never get back. I lost a two-year-old daughter here about seven years ago. And here I am. Flying into the scene of the crime on purpose. Sober-ish. Smiling out the window like a man who hasn't learned a goddamn thing.
 
 I call it a fresh start. A geographic cure. That is the alcoholic’s greatest delusion. From thirty thousand feet, a new time zone looks like a clean slate.
 
@@ -16,7 +16,7 @@ On the ground, it is the same dog. Different yard.
 
 Steven is waiting at baggage claim.
 
-He crosses the terminal with his arms out. Big shaved head. A grin I haven't seen in a decade. He wraps me up. He lifts me half off the floor.
+He crosses the terminal with his arms out. Big shaved head. A grin I haven't seen in years. He wraps me up. He lifts me half off the floor.
 
 "You crazy son of a bitch," he says. "You actually did it."
 
@@ -32,7 +32,7 @@ Steven is my buddy from the FedEx home-delivery terminal. Another lifetime ago. 
 
 He is a bad MMA fighter. I say that with love. He walks into the cage with reckless joy and a wide-open chin. He gets his lights turned off in front of a crowd. He laughs about it on the ride home with a bag of ice pressed to his swelling face.
 
-Ten years ago, his wife and my wife were friends. I got ordained online in four minutes to marry them in a backyard. I meant every word. None of us knew how it would end. You never do.
+Back in those days, his wife and my wife were friends. I got ordained online in four minutes to marry them in a backyard. I meant every word. None of us knew how it would end. You never do.
 
 Back then, we'd pool our cash. Order the UFC fight. Drink cheap beer until Steven decided to teach me a chokehold on the living room floor. He fed me alcohol. I set his routes. We were close. The kind of close you only get before life starts charging admission.
 

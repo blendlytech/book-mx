@@ -2,7 +2,7 @@
 
 I have two active bench warrants. I have no passport. I have a one-way ticket to San Diego.
 
-This is how you ruin your life by age thirty. Pay attention.
+This is how you ruin your life by forty-five.
 
 The plan is a chemical equation. Step one: get sober. Step two: get the girl. Step three: get rich. Three birds. One cheap flight. The problem is, when you cram that many moving parts into a single idea, it stops being a plan. It becomes an improvised explosive device.
 

@@ -1,6 +1,6 @@
 # Chapter 30
 
-Thanksgiving, Christmas, New Years have all passed by without an honorable mention by me. By January I was back hauling feed and mucking the stalls, the ankle healed up enough to carry weight again, and for a few weeks that was the whole of it. Up before dawn. Haul, feed, shovel. Clayita at my heel like a little foreman keeping an eye on the work. I'd almost let myself believe they'd run clean out of ideas.
+Thanksgiving, Christmas, and New Year's have all passed by without an honorable mention by me. By January I was back hauling feed and mucking the stalls, the ankle healed up enough to carry weight again, and for a few weeks that was the whole of it. Up before dawn. Haul, feed, shovel. Clayita at my heel like a little foreman keeping an eye on the work. I'd almost let myself believe they'd run clean out of ideas.
 
 They hadn't. They'd just been thinking.
 

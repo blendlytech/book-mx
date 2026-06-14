@@ -138,7 +138,7 @@ He stood over my shoulder maybe five minutes while I pulled up Google Maps and s
 
 I opened it fast.
 
-*Mom's sending Christmas money early,* she said. *$500. I can send it right now.*
+*Mom's sending Christmas money early,* she said. *$500. Same account still good? Confirm and I'll send it right now.*
 
 Five hundred dollars. Sitting right there in front of me. And Omar already turning back my way.
 
