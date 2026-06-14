@@ -1,24 +1,5 @@
 # Chapter 16
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: The leaving of Mexicali for **Puerto Peñasco** (~June 2024) — a 3-hour desert drive in sister **Jo's** car, ending at **Laguna Shores**, a beachfront timeshare resort. The first leg of the geography's Mexicali → Puerto Peñasco move.
-> - **Timeline**: Direct continuation of Ch15. The call-center floor is trained off onto Edgar, the Airbnb run out, and **Glenda has finished her time** (a self-check-in, free to leave at her own discretion — "not near long enough for either of us"). Clay thinks he's **beat the whole thing**; Glenda is openly scared and says so. Her friend **Temo** — a bilingual manager at Laguna Shores — offers a **month rent-free + a free breakfast or lunch for every tour they walk a couple through** (Clay & Glenda working the resort's sales side). They check Glenda out, load into Jo's car, and drive to a town none of them has ever seen. First **unsupervised freedom** in three years (no curfew, no cup, no breath check). The plan: **Rose** (Glenda's mother) keeps **America** through the school year, then brings her to Peñasco. The sober vow has one hole — **weed** — and they'll both be smoking within the week.
-> - **Characters**:
->   - **Clay**: Thinks he's won — the cure worked, the deal pays, the girl's free, a beach town waiting. About to run **the very same concealment con in person** that he ran for 6 years by phone — crossing from the disembodied phone *opener* to the in-person *closer/tour-giver* (the Ch3 Vacation Club con cashed, but he's still the con-runner, NOT the mark) — which is also a **return to his roots** (he began in face-to-face sales as a **car salesman** before the phones). Physically restored: **~170 lbs** (up ~30 from the buck-forty skeleton of Ch11, all sober), dress shirt/pants/shoes, "looks the part," genuinely excited. Makes Rose a promise he half-means and half-can't keep.
->   - **Glenda**: Sober and **free** (self-check-in, left at her own discretion). **Openly nervous/scared** and says so out loud — the one of the two reading the road right. (Do NOT write her drinking; weed only, within the week.) The withheld-tears beat is NOT touched — keep paying it forward.
->   - **Temo** (NEW): Glenda's friend; bilingual, sharp, well-liked, **killing it in timeshare sales** at Laguna Shores, Puerto Peñasco. Offers the rent-free month + tour-meal deal that pulls them to the coast.
->   - **Rose** (NEW — Glenda's mother): Watched **America** through Glenda's whole rehab stay. Deported from the US for selling meth a lifetime ago — **8 years in an Arizona federal prison, deported the day she got out, 15+ years gone**. Knows the drill cold. Asks Clay to keep her daughter sober; he promises. Untroubled by the weed (never the real problem).
->   - **America** (Glenda's daughter, ~11): With Rose the whole rehab stretch; **to move to Peñasco after the school year** — answers the open "where is America" thread.
-> - **Key Themes**:
->   - The con, cashed from a new seat: the Vegas play was pure **concealment** — never say "timeshare," never warm the mark up, walk them in cold with their guard down (Ch3's omit-never-lie). Now Clay runs the identical concealment **in person** — phone *opener* become face-to-face *closer*, doing it "with his own actual face" for the first time.
->   - Freedom as the trap that doesn't look like one: no cup, no curfew, no nose to blow into — and Clay reads it as victory while Glenda reads it as danger.
->   - "We had a plan": the realest, most domestic plan they ever made — laid over a reader who already knows the mountain camp at the end of the road (Prologue).
->   - The honest hole in the vow: sober was the promise; weed was never in it.
-
----
-
 I want to tell you I had the whole thing beat, because that is exactly what I believed, riding shotgun in Jo's car with Mexicali falling away behind us and three hours of open desert running out ahead.
 
 Glenda had done her time. She'd checked herself in, so she could check herself out — her own signature, her own discretion, free to walk whenever she decided she was ready — and looking back on it now, it wasn't near long enough. Not for her and not for me. But you don't know that at the time. At the time I had a clean phone floor running itself behind me, a replacement trained and seated, an Airbnb run out to its last paid day, and a sober woman in the back seat that I'd finally, after three years, gotten to hold in my own two arms. I had done every single thing I'd come down to that country to do, and then I'd done the one thing I hadn't even known to come for, which was get myself clean. The math all came out my way. I had it beat.
@@ -74,5 +55,3 @@ The promise had one hole in it, and Rose and I both knew the exact size and shap
 Anywhere but Peñasco. In Peñasco it wouldn't cost us a thing.
 
 That's what we drove toward. The free unit, the open road, the kid coming after school let out, the perfect deal, the first air either of us had ever breathed without a watcher in it. I had it beat.
-
-I want you to hold on to that — *I had it beat* — and carry it with you into what comes next.

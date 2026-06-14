@@ -1,23 +1,5 @@
 # Chapter 18
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: The road from **Puerto Peñasco down into Sinaloa** (~early December 2024). A ~thousand-mile drive into the cartel heartland with a paperless gringo in the back seat. Ends ~5 miles outside the family's hometown.
-> - **Timeline**: Direct continuation of Ch17's hook. **Rose drives up from Mexicali to Peñasco** to collect the four of them (Clay, Glenda, **America**, Rose driving) for the holidays in **Sinaloa** — where Rose & Glenda are **from**, and where **Rose's brother** (Glenda's uncle) still lives; they'll stay **all of December and January**. The danger engine: Rose **mistakenly gets off the toll roads (cuotas) onto the free roads (libres)** — the rural badlands. Four escalating beats: **(1)** a **cop stop → extorted 1,000 pesos** to let the no-passport Clay pass; **(2)** a **gas station** — a cartel man pulls up in a truck mid-fill, tells them to **hand him the gas money and leave**; **(3)** a truck **tails them close for ~45 min at night** — all certain they'll be robbed and killed, **staying silent so America won't be scared**; **(4)** **~5 miles from town a mountaintop lookout (halcón) spots them and sends armed men** to check who's coming in — Clay gets a **pass because they know Glenda and Rose** (the family's local roots = his safe passage). **Accepted into town.**
-> - **Characters**:
->   - **Clay**: The paperless gringo — the one liability in the car, the reason every checkpoint is a held breath. First real immersion in the cartel world that will (Prologue) later swallow him; here it looks him over and waves him through **on two women's names.** Dramatic irony: he doesn't yet grasp that the pass was a gift, not a right.
->   - **Glenda & Rose**: Sinaloa-born; their **knowledge of the roads endangers** (they go anyway) and their **being known saves** (the checkpoint pass). The two of them run the calm so the girl stays calm.
->   - **America** (~11): The reason the adults perform composure through the tail-car terror. Largely shielded; must not be scared.
->   - **Rose's brother** (NEW, off-page this chapter): Glenda's uncle; lives in the Sinaloa hometown; the destination/host for Dec–Jan.
-> - **Key Themes**:
->   - Roots as passport: Clay has no papers, but Glenda and Rose have a *name* in that country — and a name is the only document that matters where they're going.
->   - The wrong road: one mistaken turn off the toll highway drops the family into the badlands — the small saved fee, the large unpayable risk.
->   - Performing calm for the child: love measured in what the adults swallow so America won't see it.
->   - Foreshadow / the world that lets him in: the cartel country first appears as a place that *accepts* Clay — making the Prologue's later verdict land all the harder.
-
----
-
 Rose drove all the way up from Mexicali to Puerto Peñasco just to collect us, and I should have read the size of the thing right there in that — that the trip didn't even properly start until somebody had already burned a day's driving to reach the place we were leaving from.
 
 She loaded the four of us into the car, and the bags, and America in the back with me, and she pointed it south. A thousand miles of Mexico laid out between that beach and the town she still called home. Glenda up front with her mother. The girl beside me. And me — no passport, no papers, a country behind me and not one legal reason to be sitting where I was sitting — going along for the ride into Sinaloa.

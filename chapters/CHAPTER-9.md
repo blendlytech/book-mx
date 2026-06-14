@@ -1,3 +1,5 @@
+# Chapter 9
+
 The jet bridge in Vegas hits you like an open oven door. A hundred and ten degrees of recycled jet fuel and welcome home.
 
 This is the sick punchline. You can fly two thousand miles north. You can get your face caved in. You can sit in a freezing cell and resurrect yourself on a dead man's laptop. You can run to the absolute edge of the continent, up where the bears eat the tourists.

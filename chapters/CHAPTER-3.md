@@ -1,3 +1,5 @@
+# Chapter 3
+
 The Orleans Casino at nine o'clock on a Friday smells like someone else’s cheap cologne, the ghost of a cigarette, and the sweet chemical chill of an air conditioner losing a war against three hundred sweating bodies.
 
 I’ve been breathing this for six years. Tonight is the last time.

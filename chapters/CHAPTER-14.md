@@ -1,21 +1,5 @@
 # Chapter 14
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: A **conjugal-visitation apartment one block from Zaul's Mexicali rehab** — the first private space Clay and Glenda have ever shared. ~mid-April 2024, the second week in Mexico. Small and domestic: a borrowed kitchen, a laptop movie, a door that locks from the inside.
-> - **Timeline**: Direct continuation of Ch13. The call-center team is trained and ready; Clay's next drug check comes back **clean** (the weed finally flushed) and he's released off the men's side. He and Glenda are given the conjugal apartment for their first night alone. Beats: their first **domesticity** (she cooks for the first time; a movie neither watches; cuddling); the **first time together** — sober and in person after three years of screen-only, drunken intimacy — clunky, awkward, **forgettable** (Clay's ~1.5 years out of practice; one prior fling during a relationship "break"), gets better later, **unspoken until much later** when they laugh about it; **falling asleep holding each other** (the real point — "all it ever was"); the morning **food poisoning** from noodles boiled in **Mexicali tap water** (Glenda's lifelong habit; never thought of it), **two days** violently ill.
-> - **Characters**:
->   - **Clay**: The screen and the bottle both gone in one night — nothing left to hide behind. Fumbles the night he'd built into a cathedral; the *after* (falling asleep holding her) is what he actually crossed a border for. Still ~150 lbs, a tourist's stomach in a local's kitchen.
->   - **Glenda**: Sober throughout (do NOT write her drinking). Cooks for Clay for the first time; her innocent lifelong tap-water habit nearly kills him. The withheld-tears beat is NOT touched here; keep paying it forward.
-> - **Key Themes**:
->   - Fantasy vs. the flesh: strip away the screen *and* the booze in one night and what's left is clumsy, human, and true — the cathedral turns out to be just a room.
->   - The real intimacy was never the sex: it was falling asleep holding each other — "all it ever was, underneath all the noise."
->   - First sober intimacy of their lives: three years of drunken screen-sex, now stone sober and in the same air — the role-reversal cashed in the body.
->   - The comic near-disaster as love story: the first meal she ever cooked him almost killed him — "the truest little love story I know."
-
----
-
 I had waited three years for this one night and built it up in my head into something the size of a cathedral, so let me tell you right at the top how it actually went, because the daylight between the two is about the realest thing I've got to hand you in this entire book. It was a clumsy, fumbling, half-forgettable mess. And it was the best night of my life. Both of those are true, and they are true in that order, and if you have ever once loved a person past the point of performing for them, you already know exactly how the two of them fit inside the same night.
 
 ---

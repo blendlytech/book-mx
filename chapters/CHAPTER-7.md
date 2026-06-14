@@ -1,3 +1,5 @@
+# Chapter 7
+
 I am standing in a library.
 
 An elderly woman sits at a desk. She guards the rights to a bank of twenty desktop computers like they are the last clean water in the city. They are rationed out in forty-five-minute slices.

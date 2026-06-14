@@ -1,28 +1,5 @@
 # Chapter 19
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: The family's **Sinaloa hometown** (~December 2024–January 2025) — the full two-month holiday stay at **Rose's brother's** place. The introspective companion to Ch18's road-terror.
-> - **Timeline**: Direct continuation of Ch18 (they've been waved into town). **⚠️ NOT dead sober — corrected:** Sinaloa **celebrates drinking** (everyone gets hammered; a bottle on every table) and reserves its contempt for **drugs** (a user — even a weed smoker — is **basura**, a family disgrace). So Clay & Glenda are **secretly drinking again** (one or two, never drunk, poured into a **Yeti** so **Rose** — to whom Clay promised he'd keep her daughter sober — never knows, and so **America** never sees) — the Yeti a direct callback to Ch12 (hiding cut vodka from his newly sober father). The exception: a **~2-week ayahuasca course** (a **dieta** week + **five ceremonies**, run by the curandero **Mateo**) for which they go **fully dry**, signing on to **quit drinking for good**. **What surfaces instead:** Clay's **cousin David** (both age 5; David killed under a garage door Clay operated — lifelong **survivor's guilt**; uncle **Dudley**, the mother's brother, lost his only son) and **his daughter** (the 2-yr-old lost to adoption — **now corrected to 10 years gone, she's 12**, in Alaska — the book's deepest wound; sharpened by his aborted fathering of America); **Glenda's** is the **physical abuse from America's father** + **America's fatherlessness**. **The hard irony:** it cracked open the oldest grief in both and did **NOT** touch the drinking — they'll drink again the moment they cross back north.
-> - **Characters**:
->   - **Clay**: Drinking on the sly (Yeti), dry only for the medicine. The ceremony excavates **David** (survivor's guilt) and **the daughter** (10 yrs gone, age 12) — the cruelty of fathering America while his own girl is a stranger. Comes back scoured and **still thirsty** — his "it's not nature or nurture, it's me" thesis, proven.
->   - **Glenda**: Her purge (Ceremony Four) is the **abuse from America's father** and her daughter's **fatherlessness** — witnessed across the room, told to Clay after. (⚠️ NOT the withheld-tears beat — that stays unpaid.)
->   - **Rose**: The one Clay promised to keep Glenda sober; **she never learns they're drinking again.** Family anchor in the hometown.
->   - **America** (~11): Among her Sinaloa cousins; the living echo of Clay's lost daughter the ceremony makes unbearable; shielded from the drinking.
->   - **Mateo** (NEW, minor): The curandero — leathery, ocean-deep eyes, *mapacho* and *icaros*; runs the five ceremonies.
->   - **Cousin David & Uncle Dudley** (NEW backstory): David, Clay's only-child cousin, killed at ~5 under a garage door a 5-yr-old Clay worked; Dudley = Clay's mother's brother, who lost his one boy. The root of Clay's survivor's guilt. **⚠️ Add to character encyclopedia; check for cross-book consistency.**
->   - **Rose's brother / the uncle** (minor): Host of the stay.
-> - **Key Themes**:
->   - The narco-state paradox: the land that sells the world its drugs **loves to drink** and spits on the user.
->   - The medicine shows, it doesn't fix: ayahuasca excavates the deepest grief and leaves the addiction untouched.
->   - Survivor's guilt: spared in childhood, the spared life squandered.
->   - The daughter wound, finally opened (10 years gone; echoed by America).
->   - Trauma isn't the cause: "the drink stands on nothing but itself" — Clay's "it's me" thesis, proven the hard way.
-> - **Research note**: Ayahuasca detail grounded in standard practice (B. caapi + chacruna/DMT brew; ~8 p.m. start, mats in a circle, the dark; **la purga** — vomiting/tears as release; **icaros** + **chacapa**; the **dieta** — no booze/salt/pork/sugar/dairy/caffeine/sex). Town and the *maloca* kept generic.
-
----
-
 There is one thing about Sinaloa I turned over in my hands the whole two months and never did get to lie flat, so I'll hand it to you the way it was handed to me.
 
 That state grows and moves and sells a fair share of every bit of misery that ever ended up in an American vein or up an American nose. It is, in the plainest words I've got, the company town for the entire industry of getting high. And it holds the lowest opinion of a person who *actually gets high* that I have ever come across anywhere on this earth.

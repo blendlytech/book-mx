@@ -1,3 +1,5 @@
+# Chapter 6
+
 The door buzzes me out at two in the morning.
 
 The sky is the color of a three-day-old bruise. It is never dark here. Late June in Alaska. Just a cold gray glow hanging over the city like the house lights coming up at last call. Bright enough to see by. Too late to save you.

@@ -1,22 +1,5 @@
 # Chapter 15
 
-> [!NOTE]
-> **Metadata for AI Ingestion**
->
-> - **Setting**: A cheap **Airbnb a few blocks from Zaul's Mexicali rehab**, in another bad part of another Mexican town. ~late April–June 2024, the two months after the conjugal night (Ch14). One bedroom, propane stove, cable, internet — Clay's for two months on a $1,400 check.
-> - **Timeline**: Direct continuation of Ch14. Glenda is back on the rehab's **free side** (comes and goes on a curfew, a cup and a breath check every time she returns); Clay rents the Airbnb and, for the first time, **stays sober the whole stretch** — submits to the same cup and breath check himself. The call-center floor finally **hums** (~a month to dial in; 10 reps, 15–20 appointments/day, ~5 sales/week). Clay trains his **replacement, Edgar ("Tristá")** — a three-year heroin lifer. He learns the **law of the place** (one dirty test can mean a life sentence by family decree) and starts **riding the rehab's pickup van** on evening extractions (2+ dozen runs; the door-off-the-hinges scene).
-> - **Characters**:
->   - **Clay**: The role-reversal cashed all the way in — now the one blowing into the cup and pissing clean, walking his sober girl back to the cage at curfew. The man who flew down to *use* this building is now riding its van and hauling strangers into it. Full-circle seed made literal: he doesn't yet know this is the house that saves him.
->   - **Glenda**: Sober throughout (do NOT write her drinking). On the free side now — curfew, cup, breath check. Cooks for Clay at the Airbnb nightly (the tap-water lesson learned); the 8:30 walk back to the cage door is the chapter's emotional spine. The withheld-tears beat is NOT touched here — keep paying it forward.
->   - **Edgar / "Tristá"** (NEW): Clay's trainee and replacement. Real name Edgar, flawless English, sharp, three years in on heroin, a self-aware **lifer** whose family will never sign him out. His nickname means "sad face."
-> - **Key Themes**:
->   - The cure and the con in the same building: Clay came to bolt a sales machine onto a rehab and ends up sober, on the cup, riding its van — exploiting the place and being remade by it at once.
->   - The cage has no clock: in this country a single dirty test can be a life sentence by a family's say-so; freedom is one letter from the same people who called the dogs.
->   - Love on the clock: the nightly walk back to the cage door — sober, kissing her goodnight at curfew — is the whole role-reversal made physical.
->   - Moral vertigo: dragging strangers kicking and screaming toward help they didn't ask for, and not being able to tell the saving from the terror.
-
----
-
 Here is the part nobody warns you about when you finally decide to get clean in the same season you finally fall in love: you have to do them both stone sober, in a bad neighborhood, in a country where the word they hung on the smartest man in the building was just the Spanish for a sad face.
 
 I'll get to him.
@@ -75,8 +58,6 @@ You want me to tell you how that felt and I've tried, and the truest thing I've 
 
 ---
 
-So that was me, that spring. Two months sober in a bad little room, blowing into the nose of a security guard and pissing clean into a cup every morning to walk my girl to dinner and back to a cage by 8:30. Running a phone floor for a hundred and fifty to three hundred dollars a sale. Riding a van at night, hauling strangers kicking into the same building I'd flown down here to *use* — the building where I'd cooked up a sales machine and bolted it on like a parasite to the side of a place full of broken people.
+So that was me, that spring. Two months sober in a bad little room, blowing into the nose of a security guard and pissing clean into a cup every morning to walk my girl to dinner and back to a cage by 8:30. Running a phone floor and training new reps for a hundred and fifty to three hundred dollars a sale. Riding a van at night, hauling strangers kicking into the same building I'd flown down here to *use* — the rehab where I'd cooked up a sales machine and bolted it on like a parasite to the side of a place full of broken people.
 
-I thought I was the one working the room.
-
-I had no idea yet that the room was working me — that this exact building, this cage with no clock on it, the one I was helping fill, was the one that was finally going to let me out.
+This cage with no clock on it, the one I was helping fill, was the one that was finally going to let me out.

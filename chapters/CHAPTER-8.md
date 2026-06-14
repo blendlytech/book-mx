@@ -1,3 +1,5 @@
+# Chapter 8
+
 Here is the part nobody warns you about. The trap that finally gets you almost never looks like a trap.
 
 It looks like dinner.

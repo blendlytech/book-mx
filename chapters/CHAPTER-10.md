@@ -1,3 +1,5 @@
+# Chapter 10
+
 Michigan is green. Not the pale, desperate green of a Vegas golf course. Deep, wet, overgrown green. Mowed right up to the edge of the Grand Rapids runway lights. It looks like a place where bad things aren’t allowed to happen.
 
 Never trust a town without scars. A pristine landscape just means the repo man hasn't arrived. You’re just early to the slaughter.
@@ -80,7 +82,7 @@ She has a daughter. America. Eight years old. Soon, America will be the referee 
 
 But that’s later.
 
-The first year is the free-fall. I get drunk and sing country songs to the camera. She looks at me like I am the only good thing left on earth. She changes her passwords to *I love Clay Mills!* I complain about the single exclamation point. She loves me violently. And I love her back.
+The first year is the free-fall. I get drunk and sing country songs to the camera. She looks at me like I am the only good thing left on earth. She changes her passwords to *I love Clay!* I complain about the single exclamation point. She loves me violently. And I love her back.
 
 Whatever happens later—the mountain, the dog, the bus—it starts here. A phone line, two drunks, and a barn.
 
