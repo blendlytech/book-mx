@@ -1,8 +1,10 @@
 # Chapter 4
 
-The plane came down through a wall of grey and there it was again, fifteen years later, like it had been sitting there the whole time waiting on me to lose enough to come crawling back. The Chugach hunched along the edge of the city with old snow still packed in the high cracks. The inlet lay flat and brown as gravy. The whole brutal postcard of it. Alaska. The one place on this earth that had already taken something from me I will never get back, and here I was, flying into it on purpose, sober-ish and grinning out the window like a man who'd learned absolutely nothing.
+The plane came down through a wall of grey and there it was again, seven years later, like it had been sitting there the whole time waiting on me to lose enough to come crawling back. The Chugach hunched along the edge of the city with old snow still packed in the high cracks. The inlet lay flat and brown as gravy. The whole brutal postcard of it. Alaska. The one place on this earth that had already taken something from me I will never get back, and here I was, flying into it on purpose, sober-ish and grinning out the window like a man who'd learned absolutely nothing.
 
-I'd told myself this was a fresh start. That's the thing about a geographic cure — it always looks like a fresh start from thirty thousand feet. It's only from the ground that you can see it's the same dog, different yard.
+I'd told myself this was a fresh start. That's the thing about a geographic cure — it always looks like a fresh start from thirty thousand feet. It's only from the ground that you can see it for what it really is.
+
+It's the same dog, different yard.
 
 ---
 
@@ -32,17 +34,17 @@ But Monday came and when I'd gone to log in, my credentials were dead. Not wrong
 
 It was no glitch. Alisha had gotten into my email and written my employer a nice long letter from my own account — all about the arrest, all about the warrant waiting on me back in Ohio, every ugly thing she had, signed in my name and mailed off with a bow on it. Her parting gift. I wouldn't find that out until Tuesday evening, and by then it wouldn't matter, because by Tuesday I'd have made my peace with being free instead of paid and owned. But that's getting ahead of it.
 
-I wasn't worried. God, I was never worried. That was the whole disease in one sentence. I had money in the bank and a roof and two weeks of nothing but Alaska in front of me, and I decided, right there in that empty lot, that I was going to enjoy every minute of it before I lifted a finger to save my own life.
+I wasn't worried. God, I was never worried. That was the whole disease in one sentence. I had money in the bank and a roof and two weeks of nothing but Alaska in front of me, and I decided, right there and then, that I was going to enjoy every minute of it before I lifted a finger to save my own life.
 
 ---
 
 My Airbnb sat dead in the heart of Mountain View. *A steal,* the listing said. Yeah, a steal because every third house had plywood over the windows and the streetlights were shot out. The pavement smelled like old piss and burnt foil. Leave it to me to do exactly the kind of research that matters. My due diligence consisted of a Google Maps search that confirmed a liquor store and a dispensary sat within a four-block radius. A drunk’s idea of location, location, location.
 
-So for a solid week, I went strolling through the highest crime rate in Anchorage like a tourist inside a snow globe. I’d walk past twitchy kids on BMX bikes and guys with jailhouse ink shivering on the corners, visibly hammered, visibly stoned. I hauled fat plastic bags of groceries in one hand, a sweating twelve-pack swinging from the other. All in broad daylight, didn't matter. I smiled at the homeless people and never got touched. Never got hassled. I’ve spent my whole life walking into rooms I had no business walking out of, mistaking dumb luck for a bulletproof vest. It isn't a vest. It's just the house letting you keep playing a little while longer.
+So for a solid week, I went strolling through the highest crime rate in Anchorage like a tourist inside of a snow globe. I’d walk past twitchy kids on BMX bikes and guys with jailhouse ink shivering on the corners, visibly hammered, visibly stoned. I hauled fat plastic bags of groceries in one hand, a sweating twelve-pack swinging from the other. All in broad daylight, didn't matter. I smiled at the homeless people and never got touched. Never got hassled. I’ve spent my whole adult life walking into neighborhoods I had no business walking out of, mistaking dumb luck for a bulletproof vest. It isn't a vest. It's just the house letting you keep playing a little while longer.
 
 The days, though — the days were honest-to-God good. I’d wake up, hit the dispensary, and point myself at whatever trailhead looked steepest and climb until my thighs burned and my lungs tasted metallic. Up into that thin, biting air where the city became a smudge of grey smog behind me. For an hour at a time, the wind whipped away the fact that I was a man with two warrants, zero prospects, and a woman three thousand miles away still finding new ways to gut me. That country does not give a fuck what you've done. Standing on that packed snow was the closest I came to clean. Then my legs would cool off, the high would crack, and I’d hike back down into the dirt of Mountain View to crack the first beer.
 
-Evenings I'd walk the three miles into downtown and post up at the local pubs for dinner and a long night of it. I'd fall in with whoever was around, locals mostly, swap stories, collect a phone number or two off some woman I had no intention of ever calling. Just drunken bullshit, the warm and weightless kind, the kind that feels like a life if you don't look at it straight. No fights. No cops. No Alisha. For the first time in longer than I could remember, nobody was trying to put me in a cage. I mistook the quiet for peace. It was just the run-up.
+Evenings I'd walk the couple miles into downtown and post up at the local pubs for dinner and a long night of it. I'd fall in with whoever was around, locals mostly, swap stories, collect a phone number or two off some woman I had no intention of ever calling. Just drunken bullshit, the warm and weightless kind, the kind that feels like a life if you don't look at it straight. No fights. No cops. No Alisha. For the first time in longer than I could remember, nobody was trying to put me in a cage. I mistook the quiet for peace. It was just the run-up.
 
 ---
 

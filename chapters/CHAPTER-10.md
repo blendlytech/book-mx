@@ -30,7 +30,7 @@ She runs the DoorDash app like a cartel boss. But her long con is the masterpiec
 
 I laugh until my chest aches. Because here’s the bleeding heart of it: I have a daughter. Out there. Given up. A life I am locked out of. Every toy I buy for May is me paying down an unpayable debt with counterfeit grace. You just keep making the gesture at whoever is standing close enough to catch it.
 
-Somewhere in the middle of this green illusion, I fly to Ohio.
+Somewhere in the middle of this green illusion, I take a trip to Ohio.
 
 Josh. The clean foil. The man who built the house with his own hands. Once a year, he drives across five states recruiting fresh-faced college grads for his corporate machine. Ohio, Kentucky, Tennessee, South Carolina, West Virginia. He brings me along.
 

@@ -1,239 +1,193 @@
 # Chapter 9
 
-The jet bridge in Vegas hits you like an open oven door. A hundred and ten degrees of recycled jet fuel and welcome home.
+The plane put down in Vegas a little after noon and the heat came up off the jet bridge to meet me, a hundred and some degrees of *welcome home.* And that was the truth of it, the sick joke I'd flown two thousand miles north and gotten beaten and jailed and resurrected on a dead man's laptop trying not to learn: Vegas was home. You can run clear to the edge of the country, up where the bears eat the tourists, and the table still pulls you back to the same seat.
 
-This is the sick punchline. You can fly two thousand miles north. You can get your face caved in. You can sit in a freezing cell and resurrect yourself on a dead man's laptop. You can run to the absolute edge of the continent, up where the bears eat the tourists.
+I just happened to be coming back to it wanted.
 
-But the table always pulls you back to the same seat.
+Somewhere in a Clark County computer there was a warrant with my name on it, a present from the court date I'd skipped on my way out of town. I knew it was there. I flew in anyway, and I did not think about it — which is a skill, not thinking about things, and by then I was a craftsman.
 
-Vegas was home.
+I booked the trip as a week. One week. An Airbnb just off the Strip, far enough off to be cheap and close enough to be dangerous, and I got on the phone and let the crew know the king was back in town.
 
-I just happened to be coming back to it a wanted man.
+*Already?!* That was Ritchie — my best friend in that city, first to pick up, first to give me grief.
 
-Somewhere inside a Clark County server, a bench warrant had my name flashing next to it. A little parting gift for skipping my court date. I knew it was there. I flew in anyway. Not thinking about things is a survival skill. By now, I was a master craftsman.
+*That didn't take long,* said Ace, my right-hand man.
 
-One week. I booked an Airbnb off the Strip. Far enough to be cheap. Close enough to be dangerous. I made the calls. I let the crew know the king was back in town.
+Ha. It's only a week, I told them. A week, and then who knows where after that. And I meant the *who knows* as a brag, because after Vegas the map went blank, and a blank map was the only kind I'd ever trusted.
 
-Already?! That was Ritchie. My best friend in Vegas. My shadow. First to pick up, first to give me shit.
+The job came home with me, of course. That was the whole point of what I'd clawed back together up north — a thing I could run from anywhere there was a phone and a chair, and this week the chair sat in a rented room just off the Strip. So that's where my money came from this trip: me, alone in an Airbnb, slinging solar appointments down the same wire I'd rebuilt my whole life on up north. Glenda was still on the far end of it — my opener, my golden goose — and still nothing more than that. A face on a screen, a name in a thread, a person I made good money with and had yet to say a single human word to. I thought about her about as much as I thought about the warrant, which is to say I'd gotten very, very good at not thinking about either. There was money to make and a town to make it in.
 
-That didn't take long, Ace said. Ace was my right hand.
+Let me tell you about Ritchie, because you can't understand that week, or that city, or the version of me that lived there, without him.
 
-"It's only a week," I told them.
+Ritchie was three years younger than me and a New Yorker down to the marrow. Before Vegas he'd traded stocks back east, real money, tens of thousands of dollars riding on a single move, the kind of job where you're a god by lunch and a corpse by close. Then one day the market, or the habit, or both, took all of it — every dime — and he did what people do when the floor drops out: he ran to where the family was. Parents in Vegas, a sister in Vegas, so Vegas it was. The geographic cure has a New York chapter too.
 
-A week, and then who knows. I said who knows like a badge of honor. Because after Vegas, the map dropped off the edge of the world. A blank map was the only thing I trusted anymore.
+He had a daughter. Twelve years old when I first met him, six years before all this, which meant I got to watch that girl come up — twelve to near-grown, a smart, funny, genuinely kind young woman, and the unmistakable love of Ritchie's life. The apple of his eye, plain as the sun. I'd be lying if I said some quiet, fenced-off part of me didn't watch her grow up thinking of my own daughter. The way you watch a thing you weren't allowed to keep. But that's a different chapter, and Ritchie never knew I was doing it, and that's the way I wanted it.
 
-The hustle came with me. Glenda was still on the other end of the wire. My golden goose. Just a face on a screen, a name in a text thread. A stranger I made serious money with. Not one human word passed between us. I thought about Glenda about as much as I thought about the warrant. Which is to say, never.
+He was a Trump man, Ritchie, all the way down to the foundation. Fox News in the morning, Fox News at night, a true believer who'd argue the paint off a wall and enjoy every minute of it. And I'll be honest with you, because this is a confession and not a campaign: I'd lost my own mind a little on that front myself, back in the Hillary-and-Trump year. I took every argument I had straight to Facebook and lit my whole friends list on fire, and by the time the smoke cleared I was down about half of them. Racist, they called me. Bigot. A couple of uglier things. I was none of it — wasn't even much of a Republican, never have been. I just knew, the way you know a bad beat is coming, that I was no Democrat. I figured I could see from ten million miles off exactly what those people were selling. We damn near lost everything, the way I saw it, to those motherfuckers and their me-too movements, and I'd have told you so at full volume, to your face or on your timeline, your call.
 
-Let me tell you about the crew. You can't understand that week without them.
+Which is the thing about me and certainty. I never met a table I didn't think I could read, a room I didn't think I had figured cold. Politics was just one more floor where I was dead sure I was the sharpest man standing on it. Ritchie was the same animal aimed the other direction, and the wild part — the part I need you to actually hear, because it's the only part that mattered — is that none of it ever cost us one thing between us.
 
-Ace. Six-foot-four, two hundred and fifty pounds. Bald. A Black man who sounded on the phones like a white suburban accountant. He slept in the offices he managed because every dollar he made went right back into a slot machine before the sun came up. The sweetest man alive to us. A mean, violent drunk to strangers. We were forever pulling him out of fights with tourists.
+Not one of us in that crew agreed with the others on a single thing the rest of the world was screaming about, and not one of us gave a damn. We were a brother-and-sisterhood I had never once had anywhere else in my life. We had each other's backs, red hat or no red hat, and we loved each other in that busted, all-in way that only people who are all quietly going down together ever learn how to love. It was a family. The most fucked-up family you ever saw, and the realest one I ever got.
 
-We were the family of the damned. Not one of us agreed on a single thing. Politics, religion, whatever. Didn't matter. We had each other's backs in that busted, all-in way that only people drowning together ever learn.
+There were five of us when we were all in one room — me, Ritchie, Ace, John-J, and Silesh — and there's no handing you that week without first handing you them. So let me walk them out one at a time. You start with Ace, because Ace was the man you noticed the second you came through the door.
 
-Ritchie and I. We were shadows. He’d pick me up every morning in a spotless 2017 Lexus. Versace shades. Rolex. Yankees cap. The newest iPhone. A former New York stock trader who lost everything and landed where his parents lived. Devout Trump guy. Fox News running in his veins. And then there was me. Rolling out of whatever disaster I'd survived the night before.
+Ace was a year older than me and had been in the game longer than any of us — five years deeper than the next man, which in that business is a geological age, a kind of survival nobody plans on. Six foot four, two hundred and fifty pounds, bald, a good-looking Black man who filled a doorframe just standing in it. And here is the whole trick of him: you'd never have guessed one inch of that off the phone. On the phone, Ace was a thirty-something white accountant named John Gardner. That was his close, his second skin — soft, reasonable, Saturday-morning suburban, a voice that built a man in the mark's head who looked nothing on God's earth like the man actually talking. Smooth as glass. Ace could close with his eyes shut, and most afternoons, half a tall boy past caring, that's about how he did it.
 
-His poison was downers. Pills.  Not my thing. My thing, you already know. We both swore off meth. We both made our peace with Adderall. A little coke when the night demanded it. And we were both, down to the marrow, committed gamblers.
+His whole menu stopped at weed and tall boys — no pills, no powder, none of the rest of the buffet the rest of us grazed — but the beer was plenty, because Ace was a mean drunk. Never with us. Never once with his own. With the crew he was the sweetest, funniest, most openhanded man at any table, and we all ran on each other's humor till our faces ached. But put a stranger in front of a drunk Ace — a tourist who eyeballed him a half-second too long, said the wrong thing, breathed wrong — and we'd be peeling him off the guy before it found its way to fists. We spent a good part of those nights being Ace's seatbelt.
 
-This is how a workday started for us. It started by not working.
+He lived with a woman pushing seventy who took him apart out loud, daily, called him every name there was except a good salesman — and the worst of it was that Ace mostly figured he had it coming. He never made it home with a dime; none of us did, but Ace least of all. He fed every dollar he ever earned back into a machine before sunup, which is why he never got a place of his own and why, more nights than not, he slept in the offices he managed. I'd come to do the very same thing in my time — thirty days in a cell behind me and not one square foot on the planet to land on, the only other door being the one back to Alisha, which I leaned on with everything I had until it gave and swallowed me whole. It was Ace who put a roof over me in that stretch — an office, a floor, a key — the one place I had in the world. He was my boy. Generous past all sense, soft as warm bread under all that size, one of the truest friends I have ever had. Right up to last call, anyway, when somebody nobody knew looked at him a beat too long.
 
-Ritchie scoops me up. We hit the casinos to run whatever free play the house seeded onto our cards. The slot machine decided our fate. If we hit, we didn't work. If it came up dead, we went to earn.
+You could see the whole of it on the sales floor, the love and the rot both, living in the same body.
 
-Earning meant a sales floor. Independent contractors. Either one of us could walk into any vacation room in the city, half shit-faced, and have a chair in five minutes.
+Ritchie was my shadow in Vegas, and I was his. He picked me up every single morning in that 2017 Lexus — silver LS, spotless, the man wore Versace shades and a Rolex and a Yankees cap and plain white or black tees and cargo shorts and carried whatever iPhone had come out that week, while I rolled up looking like whatever I'd survived the night before. The two most unlikely friends you ever saw. His poison was pills, the downers, which I never could get behind; mine you already know. We both swore off meth and both made our peace with Adderall and a little coke when the night called for it, and we were both, top to bottom, drinkers and gamblers of the committed variety.
 
-Here is how you make a chair. You find some kid two weeks on the job. A kid fighting for the one deal that keeps him from sleeping in his car. You lift him right out of his seat. You put me in it. Because I'm a sure thing and he's a maybe.
+And here's how a workday started for the two of us: it started with not working. Ritchie would scoop me up and we'd hit wherever we had free play that morning — every casino seeding your card with a little house money to get you in the door — and we'd run it, and if we hit something, anything, we did not go to work that day. Simple as that. The slot decided. If the slot came up dead, then, fine, we'd go earn.
 
-I’d close a deal in twenty minutes. Then I'd get up. I’d walk down the block to Dotty's for a drink and a slot machine. Leaving the chair I just stole sitting empty. Still warm. For nobody.
+And earning, for me and Ritchie, meant a floor back before my new gig. Being an independent contractor meant you weren't chained to one room or one company. Either one of us could walk into any sales room in that city half shit-faced and have a chair inside five minutes. They'd make one for us. They'd take one. You'd see it happen: some kid two weeks on the job, fighting like hell for the one deal that'd cover his weekly so he didn't end up sleeping in his car — and they'd lift him right out of his seat to seat me, because I was a sure thing and he was a maybe. I'd sit down. I'd close something inside twenty minutes, because I damn near always closed something, which no rookie in that building could say. And then I'd get up, go out front for a cigarette, drift over to the 7-Eleven or the Dotty's down the block for a drink and a turn at a machine — and leave the chair I'd just pulled that kid out of sitting empty and still warm, for an hour, for nobody.
 
-This was the life. This gorgeous, rotten life I flew back into like the universe owed it to me. A warrant breathing down my neck. Money burning through my hands. My silver Lexus chariot.
+That was the life. That was the whole gorgeous, rotten life I'd flown back into like it was something I was owed. And for about a week — with a warrant breathing on the back of my neck, with money running through my hands faster than I could lose it, and the best worst family I ever had scooping me up every night after my new gig at the Airbnb in a silver Lexus — it damn near felt like it.
 
-The first night back started where the best and worst nights always start. The Orleans.
+It started the first night, the way the best and worst of my Vegas always started: at the Orleans.
 
-All five of us bellied up at the Sports Book bar. And there was Nate. The same bartender, in the exact same spot he'd been every night of my life.
+All five of us bellied up at the Sports Book bar, and behind it, right where he'd been standing every night of my life in that town, was Nate. He caught me from down the rail and his whole face came open — the same shock my own crew had given me over the phone, damn near the same words out of his mouth that Ritchie's had been: *That was quick! The hell you doin' here, man?* — already reaching across the bar for my hand, pumping it, grinning a yard wide.
 
-He saw me from down the rail. His face cracked wide open. That was quick! The hell you doin' here, man?
+Felt like home. God help me, it felt like home.
 
-He reached across the wood. Pumped my hand. Grinning a yard wide.
+Missed you, Nate, I told him, and meant it. And I couldn't help myself: we never did settle up on that vacation package you bought off me last time I was through.
 
-God help me. It felt like home.
+He barked a laugh — just the two of us laughing, because not one man in my crew had the first idea what I meant. The last time I'd sat at Nate's bar, the blacked-out night I said my goodbye before Alaska, I'd done the one thing none of them would ever have done: pulled the curtain all the way back on the con for him, played him both ends of it, opener and closer, and sold him, for sport, a luxury getaway to the one city he'd lived in his entire life. Told him exactly what we did for a living. So the crew looked at me sideways now, puzzled, like maybe I really had closed a bartender on a vacation to his own zip code.
 
-"Missed you, Nate," I said. "I came to collect on that vacation package you bought off me last time I was through."
+*Check's in the mail, buddy,* Nate said, and winked.
 
-Nate barked a laugh. Just the two of us got the joke. The rest of the crew looked sideways. The last time I sat here, I ran the whole con for him. Sold him a luxury getaway to his own zip code for sport.
+Boys, I said, Nate knows what we do now — and every one of them grinned, glad of it, glad the man who'd been pouring our drinks for years was finally on the inside of the joke. That was the crew exactly. We'd let a bartender further into the truth of us than we ever let our own families.
 
-Check's in the mail, buddy, Nate winked.
+And then the whole bar started buzzing, and it wasn't the liquor. It was the number on the progressive. Every quarter video-poker machine along that bar fed one jackpot — a royal flush — and it started its climb at a thousand dollars and crept up nickel by nickel until somebody on the rail caught the right five cards and carried it off. It almost always blew before fifteen hundred. That night it read twenty-two hundred dollars. For quarters. I'd never once seen it that high, none of us had, and what a number like that tells a row of people who know the math is that the thing is *due* — that it is going to hit any hand now, any second, and every soul at that bar wanted to be holding the cards when it did.
 
-"Boys," I said. "Nate knows what we do now."
+So we sat down to feed it. And the jackpot hanging over that room, the buttons, the booze — that is the exact weather in which I do my finest and stupidest work. Because I'd dropped onto a stool with two women on my left I had no intention whatsoever of ignoring.
 
-The crew grinned. Glad of it. The bartender who poured our drinks was finally inside the joke. We let a bartender closer to the truth than our own blood families.
+Now, you have to understand something first. I was never single the entire time I lived in Vegas, and neither was anybody else in that crew — with one exception, and the exception is a man you ought to meet. John-J. Sixty-some years old, the worst salesman the good Lord ever set in front of a phone, a man who'd fire off joke after joke after joke into stone silence and never once flinch at the crickets. He lived in a rented room, four hundred a month, with no bed in it. And he had the biggest heart of any of us. We sort of took care of John-J, and John-J sort of appointed himself ours, and somewhere in the middle of that he just turned into family — our old stray dog, the one nobody else had any use for and not a one of us would have given up for the world. He won us with nothing but plain kindness and a naked need for company, and it worked on us because it was real.
 
-Then the bar started vibrating. Not the liquor. The progressive.
+But this trip, for once, I was the single man at the bar. And to my left were two women in their mid-thirties playing the wrong game.
 
-Every quarter video-poker machine fed one jackpot. A royal flush. It starts at a grand and creeps up nickel by nickel. Usually pops before fifteen hundred. Tonight? Twenty-two hundred dollars. On quarters.
+That was the whole opening, right there. They were pecking away at quarter Keno — Keno, the worst odds in the building — sipping a couple of loud, fruity things Nate had built them, while a twenty-two-hundred-dollar royal sat one machine over getting ready to blow. Nate caught my eye and gave me the slow eyebrow and the grin. *Look what you got there.*
 
-I’d never seen it that high. What that number tells a gambler is simple. The machine is due. It is pregnant. Its water is about to break. And every soul at that bar wanted to be holding the bucket.
+The one next to me was Erika. White girl, born and raised in Vegas, in a tank top running about two sizes short of the work it had been hired to do, and I'll be a gentleman about it only this far: there was a great deal of Erika, and the tank top had long since surrendered. She informed me, unprompted and a shade too firmly, that she was a waitress. A waitress — at Little Darlings, the one fully nude club in the whole city, the seediest room inside thirty miles. A waitress. Sure thing, sweetheart. I got a little more of the real story out of her with every drink, the way you always do.
 
-We sat down to feed it. The jackpot humming in the air. The buttons. The booze. This is the exact weather system where I do my finest and most stupid work.
+Her friend on the far side was Kara — thirties, Black, flat-out gorgeous — and also, she'd want me to know, a *waitress* at the very same fine establishment. Naturally.
 
-Because to my left were two women.
+They didn't really know how to play video poker, they confessed. Which was all the door I ever need.
 
-You have to understand. I was never single in Vegas. Neither was anyone else in the crew. Except John-J.
+You're not in on the progressive? I said, with every ounce of honest shock I could counterfeit, already steering them off the Keno and onto the machines. It's twenty-two hundred dollars. It's going to hit any minute. Here — let me show you. And I walked them through it, hand on the glass, the wise old local teaching the girls how it's done, the whole time hammering my own buttons one stool down, chasing the very same royal I was promising them — because in that town you can run the con and be the mark inside it at the exact same time, and most nights I was both.
 
-John-J was sixty-something. The worst salesman God ever put on a phone. He’d fire joke after joke into absolute, crushing silence. A rented room, four hundred a week. No bed. But the biggest heart of us all. Our old stray dog. The one nobody had a use for. We took care of John-J and he appointed himself ours.
+On my right, Ritchie had gone quiet and watchful, leaning in, hunting his own way into it. Ritchie had a girlfriend back at the house — a woman he kept, if I'm being honest on his behalf, mostly for the roof she put over him. No beauty, but a steady paycheck and a heart that loved Ritchie and every last one of his faults. He could've pulled his own; he was no slouch. But that was the thing about the two of us and women in that city: we never really tried. We didn't come to the casino for women. We came for the only two things that never once told us no — the drink and the gamble.
 
-But tonight, I was single. And to my left were two women, mid-thirties, playing the wrong game.
+That was the first night. And I am telling you, it had barely cleared its throat.
 
-Quarter Keno. The absolute worst odds in the building. Sipping loud, fruity drinks Nate built them. While a twenty-two-hundred-dollar royal was screaming to be born one machine over.
+So there we were, the two of us hunched over our machines — me and Erika — because Kara, it turned out, never took the bait. Kara was there to watch her friend, play her Keno, and nurse her drink, and that was the whole of Kara's ambition for the evening. Which left me and Erika, and, hovering just off my shoulder, Ritchie, still circling for his opening.
 
-Nate gave me the slow eyebrow. Look what you got there.
+Here's how it went. Erika would hit DRAW on a dollar-twenty-five bet, five quarters, max coin. Five cards would come up. I'd reach over and tap the ones to hold. She'd hit DRAW again. And she'd lose. Then we'd do it again, and she'd lose again. I was running my own machine alongside hers, maybe three hands to her one, and between us we were just feeding quarters into the dark. Then, finally, the screen dealt her three jacks, and she caught the fourth on the draw, and you'd have thought somebody had handed the woman a newborn. Sixty dollars. A sixty-dollar hand that dragged her back up to roughly even, and she was happier in that one moment than I'd watched a grown adult be in a long time.
 
-The one next to me was Erika. White girl. Vegas born and raised. Wearing a tank top two sizes too small for the heavy lifting it was assigned. It had surrendered hours ago. She informed me, a little too loudly, that she was a waitress. At Little Darlings. The fully nude club. The seediest joint in thirty miles.
+This went on a good thirty minutes. And in thirty minutes, three of the beers I'd put away got themselves organized and started filing toward the exit. I had to piss, bad. Which meant, at last, it was Ritchie's turn.
 
-Right. A waitress. Sure thing, sweetheart.
+I'd already walked him and Silesh up to the girls earlier — and Silesh, you have to understand Silesh.
 
-Her friend was Kara. Black. Gorgeous. Also a waitress at the same fine establishment. Naturally.
+Silesh was a ladies' man and a born self-promoter, smooth as anyone I ever stood next to and funny as hell. Somewhere back before even I got roped into managing — which I never wanted and ended up doing anyway — Silesh had set his heart on a manager's chair, and when he finally landed one, the whole city was going to hear about it. He'd work it into any conversation he could find a seam in. *I'm their manager, you know.* At a bar, at a table, to a stranger, to a woman especially — he was the manager, and wasn't that something. We let him have it every single time, because the man was so plainly, beamingly proud of the thing that taking it from him would've been a sin.
 
-They confessed they didn't really know how to play video poker.
+And when Silesh got on your phone — took over your live call to close it for you — you knew you had a clean forty-five minutes to go do whatever a man needs to do. Gamble, smoke, grab a beer, lie down in an empty office. Because Silesh was a *talker.* Doubly so if there was a woman on the line; he'd be *sweetie* this and *doll* that, never once creepy with it, just warm, just Silesh.
 
-This is the only door I need.
+He was born and raised in Somalia, and I teased that man without an ounce of mercy, and he loved every second of it, because he was the finest sport God ever built. He'd be parked on a call with a glass of water sitting there in front of him, and I'd lean in behind his shoulder and murmur, *habibi… you are never going to believe what I am looking at right now* — like some cousin back home would weep at the sheer obscene abundance of water on Silesh's desk. I knew exactly nothing about Somalia except that it was a hard country and I'd decided clean water came hard there, and that was the entire joke, dumb as a bag of hammers, and I ran it into the ground, and Silesh laughed every time. Because that's what we were to each other. Dumb jokes, always with love. That was the whole currency of the crew.
 
-"You're not in on the progressive?" I said. Pure, counterfeit shock. "It's twenty-two hundred dollars. It's going to hit any minute. Let me show you."
+He'd drift down to us every couple of minutes to sling a line at the girls and talk to Kara in that smooth Silesh way of his, then drift off again.
 
-Hand on the glass. The wise local teaching the girls. All while I hammered my own buttons one stool down. Chasing the exact same lightning. In this town, you can run the con and be the mark at the exact same time. Most nights I was both.
+So I handed Erika over to Ritchie — show her how to hold, I'll be right back — and went to go give three beers back to the desert.
 
-To my right, Ritchie went quiet. Watchful. Circling his opening. He had a girlfriend back at his house. Mostly for the roof she provided. But Ritchie and I didn't come to the casino for women. We came for the only two things that never said no. The drink and the gamble.
+I was gone maybe two minutes.
 
-Kara wasn't taking the bait. She was nursing her drink. Guarding her friend.
+I came out to screaming. Not the bad kind — the other kind, the kind that turns every head in a casino at once. And there was Erika, up off her stool and already moving, locked dead onto my eyes and coming across that floor at a flat run, and somewhere in the launch one of those breasts the tank top had been losing its war with all night had fully and finally escaped, nipple and all, leading the charge a half-step out ahead of the rest of her. I did the only sensible thing a man can do in the path of an incoming breast at that velocity: I shut my eyes for safety. She hit me like a linebacker, mashed my face clean between the two of them, and — I swear this to you — with her free hand grabbed a fistful of the exact package I had, thirty seconds prior, finished emptying into a Orleans urinal. *I hit! I HIT! Oh my god, oh my god, I'm so glad I met you, thank you, thank you, THANK you!*
 
-I tapped the glass to show Erika what to hold. She hit DRAW. Lost. Again and again. We fed quarters into the dark. Finally, three jacks. The draw gave her the fourth. Sixty bucks. You’d think I’d handed her a newborn baby.
+She'd caught the royal.
 
-Thirty minutes of this. Thirty minutes of beer filing toward the exit. I had to piss. Bad.
+Four to it on the deal, and the draw had laid the ten of clubs right into the gap — ten, jack, queen, king, ace, every last one of them a club, strung across that screen the way only a royal flush ever strings. If you have never watched one land in the flesh, I'll just tell you: it is a genuinely beautiful thing to look at. Twenty-two-hundred-dollars beautiful.
 
-Which meant it was Ritchie's turn.
+She peeled a thousand off the win right there and pushed it into my hand — my cut, for the teaching, for the in. And I told her how to do the rest of it right: ten percent to the house, two hundred to Nate, and a twenty to the hand-pay girl who came over to count it out, for her trouble. Erika did it gladly, didn't so much as blink. Then I split my own thousand straight down the middle with Ritchie, five hundred apiece, because Ritchie was the man standing on the buttons when the cards came, and that was the law with us: you got paid for the chair you were sitting in when it hit.
 
-Silesh had already drifted over earlier. Silesh. Somali-born. Smooth. Hilarious. A born self-promoter. I'm the manager, you know. We let him have it. Taking that lie from him would be a sin.
+And I figured that was the night. A jackpot, a face full of Erika, a pocket full of found money — what more could a Saturday owe you?
 
-When Silesh got on your phone to close a deal, he'd talk for forty-five minutes. Sweetie this. Doll that. Smooth, warm, never creepy. A marathon talker. I teased him without mercy and he loved it. That was the currency of the crew.
+Little did I know that was the appetizer. Our night with the girls had barely started. Because Erika and Kara, flush now and grateful and lit up brighter than the Strip, already had their phones out — calling up a few more *waitresses* to come down and help the crew celebrate this fine and glorious Saturday night at the Orleans.
 
-I handed Erika to Ritchie. "Show her how to hold. Be right back."
+But first — and I will never not love this about them — Ace, Silesh, and John-J had materialized at my elbow, hands more or less out, every one of them somehow under the firm impression that he'd had a personal hand in Erika's royal flush. They had done nothing. They'd been across the bar working their own angles when it hit. Didn't matter. In our family you cut the boys in, so Ritchie and I each peeled them a twenty, which made forty apiece, and forty apiece was a number every last one of them could live with handsomely.
 
-I was gone for two minutes.
+Which left me, when the dust settled, four hundred and forty dollars to the good for the night so far. Four hundred and forty dollars for the company of a lovely young woman and one unscheduled face full of tits. I'll take that trade any day of the week and twice on a Saturday.
 
-I came out of the bathroom to screaming. Not the bad kind. The kind that snaps every neck on the casino floor.
+The girls were getting hungry, so I made the call: Bailiwick. The Orleans had dropped a brand-new gastropub right there off the casino floor a few months back, and — call it instinct, call it a sense of occasion — I saw it as fitting. Wings and cold draft beer and, the part that actually mattered, a little bank of video poker machines built right into the bar. I leaned over to Erika and told her, with a smirk I couldn't keep off my face, that we were about to *double* what she'd just won. She didn't believe me for a second. That was fine. I didn't believe me either.
 
-Erika was off her stool. Running at me. Somewhere in the launch, one of her breasts had finally defeated the tank top. It was fully out, leading the charge. I did the only sensible thing a man can do when faced with incoming flesh at high velocity. I closed my eyes.
+Her friends were already inbound — two more of them, meeting us over at Bailiwick — and wouldn't you know it, here they came: two more "waitresses" out of the trashiest fully-nude club in the city. I'll be straight with you, they weren't quite as put-together as Erika and Kara, and I'm not going to sit here and pretend I can hand you their names, because by then Erika was the whole of my ambition for the evening and every scrap of my attention was aimed at her. One was Asian, one was white, both of them somewhere in their late twenties, both wearing a touch more makeup than the job strictly required — not, let's say, the kind of women you'd want to wake up beside in the cold honest light of an open curtain. But they were a good time, and they had, to a woman, exactly the bodies the profession demands. Stripper bodies, the lot of them.
 
-She hit me like a linebacker. Mashed my face between them. And—I swear to God—she grabbed a fistful of my crotch. The exact package I had just finished emptying in the urinal.
+And so we settled in, and we stayed for hours. We fed the machines and ate wings and french fries and threw back shots, and somewhere in the thick of it one of Erika's friends floated the idea of a little pick-me-up — Erika slid me her bullet, a fat little thing loaded with coke, and Ritchie and I slipped off to the bathroom and came back out the far side with the whole night reset to zero, ready to run it all over again.
 
-I hit! I HIT! Oh my god, thank you, thank you, THANK you!
+Around us the crew had sorted itself into assignments. Silesh and Ace were working the two new arrivals, smooth and shameless. John-J was laying out joke after joke into the usual merciful silence, undeterred as a man can be. And Ritchie had set up next to Kara — Kara, the tightest-wound of the whole bunch, the hardest read at the table — and was loosening her a drink at a time, running a patient, clean, beautiful slow play straight into her heart. Her pants, rather. Either way, the man was an artist.
 
-The royal flush.
+Meanwhile Erika had already fed about three hundred dollars of her winnings right back into the machine in front of her, the way the house always gets its loan back, and I had her bouncing between the quarter game and the dollar game, quarters to dollars and back, chasing the lightning a second time. She was on dollars when it came. The screen dealt her three to the royal: ten, jack, king, every one of them a heart. She needed two cards to fill it — the queen and the ace, both hearts, off a two-card draw, which is the kind of long shot you laugh at out loud just to say it. And on dollars, a royal pays four thousand.
 
-Four on the deal. The ten of clubs on the draw. A perfect string across the screen. A twenty-two-hundred-dollar string of pixels. Ten Jack, Queen, King, Ace.  All Clubs.  If you've never seen it on a Vegas poker machine, it's a thing of beauty.
+And she hit it. She hit it *again.*
 
-She peeled off a thousand. Shoved it in my hand. My cut for teaching her. She tipped the house, tipped Nate.
+We all came up out of our chairs like we'd all just been informed we'd never have to work another day in our lives. And here came Erika's breasts up and down on the bounce one more time — and this time I did not flinch. This time I squared up and braced for the impact like a professional, and this time my package was rested, recovered, and fully prepared to receive its personal congratulations.
 
-I split my thousand with Ritchie.  He was the man on the buttons when it hit. That’s the law. You get paid for the chair you’re sitting in.
+The payout came, and this time she only tipped a hundred — this wasn't Nate's bar, and I'd told her flat, a hundred's plenty for a stranger — and then she peeled me off another clean thousand. I passed the boys a hundred apiece. Everybody was rich. Everybody was gorgeous. Everybody loved everybody.
 
-I figured that was the night. Five hundred bucks profit, a face full of Erika, a pocket of found money.
+And that was the exact moment Erika threw her arms in the air and hollered the four words that turn a good Vegas night into a story you tell for the rest of your life:
 
-It was just the appetizer.
+*Let's get a suite!*
 
-Erika and Kara were on their phones. Calling in reinforcements. More waitresses.
+She was done sipping. She was ready to burn the whole place to the studs now. And the boys and I looked at each other across that bar, every one of us lit up and grinning ear to ear, and the same single thought passed between all of us without anybody saying a word: this was going to be a night we would never, ever forget.
 
-First, Ace, Silesh, and John-J materialized. Hands out. Every one of them convinced they had a personal hand in Erika's win. They had done nothing. Didn't matter. In our family, you cut the boys in. Ritchie and I peeled off twenties.
+And it was. After six years in that city — six years of jackpots and cuffs and benders and goodbyes — that night, the one that was only just getting started, would stand by itself as the single most memorable night I ever had in Las Vegas.
 
-"Alligator Bar," I called it. The round bar with machines built into the top. We ordered a pile of hot dogs.
+But a suite doesn't conjure itself out of thin air, and four words hollered by a drunk woman at a bar are not a reservation. This was the part of the night that was mine. This was my turn to shine.
 
-I leaned into Erika. "We're going to double what you just won." She didn't believe me. I didn't believe me either.
+I got you covered, I told her, and I meant the whole room when I said it. I'd go see Nate. Nate could pull strings nobody else in that building could even find, and a suite on a Saturday night at the Orleans is precisely the impossible kind of thing you need a Nate for. I was Gold status on my card back then — good for twenty percent off a room, which on a night like that one was about as useful as a coupon in a house fire. Twenty percent off of *nothing available* is still nothing. I needed Nate.
 
-The reinforcements arrived. Two more waitresses from the nude club. One Asian, one white. Way too much makeup. I don’t remember their names. Erika was the entirety of my ambition.
+I leaned over the bar and gave him the good news of the whole night, and his face split ear to ear, shaking his head at the two-royal miracle of it. *I'll see what I can do,* he said. I slid a hundred across the wood and told him: do better than that, my friend. He grinned. *Excellent.*
 
-We fed machines. Ate hot dogs. Threw back shots. Erika slid me a bullet. A fat little glass vial of coke. We hit the bathroom, gummed the drip, and came back with the night reset to zero.
+So now Nate's working the phone, and the rest of them — the girls, the boys, the whole loud confederation of us — had drifted out onto the floor to feed the slots, and it was just me and Erika left leaning on the bar, watching Nate dial and wait, hanging on the man's face for word.
 
-The crew deployed. Silesh and Ace on the two new arrivals. John-J firing comedic blanks into silence. Ritchie running a slow, clean, beautiful sniper play on Kara. Loosening her up one drink at a time. An artist at work.
+And then Erika and I locked eyes. And then we locked lips.
 
-Erika fed three hundred back into the machine. The house always gets its loan back. I moved her to the dollar game. Chasing lightning.
+What followed was a long, obscene, sloppy makeout session right there against the bar — the kind of thing no human being should ever be made to stand next to and politely pretend not to see. Which is exactly what everyone around us did: stared down into their drinks and willed the two of us out of existence. That's what the booze and the powder do to you. They build a little glass room around you and your prize and convince you that you are the only two souls in the building, and that everybody else is just lucky to be there, lucky to catch the show. It makes me uncomfortable to even think about now, honest to God it does. But in that moment it was a done deal, signed and sealed — Erika was mine, my prize waiting at the end of the night.
 
-Three to the royal on the deal. She needed the queen and ace of hearts. A joke of a long shot. On dollars, a royal pays four grand.
+Nate hung up the phone and came back down the bar wearing the face of a man holding a winning ticket. The Presidential Suite was open. He could have a concierge host walk over right now and put it in my name — two hundred and fifty dollars, because the thing was sitting empty for the night and an empty room earns the house nothing. A thousand-dollar-a-night room on a Saturday. Top-floor views of the Strip. An extra-large hot tub built right into the master bath. A massive living room, a wet bar, two bedrooms.
 
-She hit it. She hit it again.
+Deal, I said, before he'd even finished laying it out.
 
-All of us exploded out of our chairs. Here came the breasts. Bouncing up and down. This time I didn’t flinch. I squared up. I braced for impact. My package was rested and fully prepared to receive its congratulations.
+And Ritchie and I split it straight down the middle, same as the jackpots, same as everything — because there wasn't a chance in hell either one of us was going to let Erika put up a single penny of her own.
 
-Four thousand dollars. She tipped a hundred. Peeled me off another clean thousand. I gave the boys a hundred each.
+The rest of it you can mostly fill in for yourself, but I'll walk you through the parts that matter, because this is *the* night, and a man ought to tell the truth about his own legend — even when the truth of it is that the legend ran on chemicals.
 
-Everybody was rich. Everybody was gorgeous. Everybody loved everybody.
+Ritchie did what any red-blooded man holding the key to a room and a long night does. He got in that silver Lexus and hauled ass home for his bottle of Viagra. He had one for every man on the roster — me, Ace, Silesh, even one set aside for John-J on the wild chance the night got that generous with him, though we all knew by then John-J was the odd man out. Silesh and Ace had already cut their two picks out of the new arrivals. Ritchie went under the cover story of a liquor-and-smokes run — which was also true, that was the beauty of it — and the rest of us went up to break in the room.
 
-Erika threw her arms in the air and screamed the four magic words.
+And the room. Lord, the room. Every bit of what Nate had promised and then some: high up on the top floor, panoramic windows, and an extra-large Jacuzzi hot tub dominating the master suite. A private wet bar stocked to the gills. The one catch on the mini-bar was that every bottle sat on a sensor, and lifting one off its little perch put a number on your folio you did not want to see in the morning. So we left those alone. Ritchie was already on his way back with our own.
 
-Let's get a suite!
+The girls didn't wait to be asked. First thing they did was crank the music, peel out of every stitch they had on, and jump in the hot tub — and every last one of us but John-J went in right behind them. There we were, packed into this massive steaming tub in a penthouse suite with women we'd known for three hours. It was, I can tell you for a fact, the most any of us had ever seen of each other. Three grown men with our dicks floating in the water and three naked women in there with us — Kara the lone holdout, still keeping herself back, watching from the edge of the tub.
 
-The boys and I exchanged a look. After six years of jackpots, handcuffs, benders, and blood. This was going to be the single most memorable night of my Las Vegas life.
+Erika came straight across the water and straddled me, and it was off to the races. After that it goes blurry the way the best and worst nights always do — hands and mouths everywhere, and somewhere in it the best lapdance of my life in that churning heated water.
 
-But suites don't appear out of thin air. You need a Nate.
+Then Ritchie was back — liquor, cigarettes, and the little night-saving pills — and the room sorted itself into couples the way it does. He posted up with Kara, the one he'd been slow-playing patient as a sniper all night, working shots and the long con on the hardest read in the building, and sure enough the two of them slipped off into one of the bedrooms. The other two girls drifted to Silesh and Ace. And Erika and I secured the master bedroom with a bottle and a pack of smokes and shut the door on the world for hours.
 
-My Gold-status meant nothing on a Saturday. Twenty percent off sold out is zero.
+We surfaced at dawn. One by one we all found our way out to the massive suite windows to watch the sun come up over the valley — all of us but John-J, who we found laid out cold on the floor in front of the bathroom, gone to the world. He never touched the coke, John-J, so he never had the fuel to run the distance the rest of us were running on. Missed the whole thing. And then talked about it for months anyway, the way Ace and Ritchie told it later — the wildest night of a life he mostly slept through on a bathroom floor.
 
-I slid a hundred across the wood to Nate. "Do better, my friend."
+The next day Ritchie and I met back up with Erika, Kara, and the Asian girl at the Flamingo pool bar and ran the whole thing again in the daylight. Somewhere in the haze the night before I'd fake-proposed to Erika as a joke — got down on a knee and everything and slid a candy ring I'd bought at the gift shop downstairs onto her finger — and she wore that thing to the Flamingo proud as a two-carat diamond. Ritchie and I held court at that bar like a pair of kings, a gorgeous woman apiece and the Asian girl running sidekick, and we had the time of our lives all over again.
 
-I'll see what I can do.
+I got back to my Airbnb that Sunday evening, and I never laid eyes on Erika again. We texted hot and heavy a few days, talked on the phone, but the closer my flight crept the quieter it got between us. I even stretched it — grabbed a second week at the same Airbnb — and still we never could get our schedules to line up. One thing was certain, though: I'd created a monster. She'd text me about the progressives running high at this bar or that one across town, telling me I ought to come out and play. And I just… didn't. I still can't tell you exactly why. Maybe I didn't want to ruin that night. Maybe I knew whatever came next couldn't help but be smaller, and I'd rather leave the one perfect thing sitting clean at its high-water mark than watch it come apart over a bad schedule and a dead room. I don't know. Some things you walk away from on purpose, while they're still good.
 
-Erika and I locked eyes. And then we locked lips.
+That next Friday, the Joe Rogan and Dave Chappelle show went off without a hitch. I was no longer leaving that Sunday, I extended for another week. Ritchie and I sat front row at the MGM — front row — for two of the biggest names alive, and I swear to you we couldn't make out a single punchline. The sound in that room was a catastrophe, all percussion and no words, every joke landing as one jumbled wall of noise. Didn't matter even a little. We had a VIP bar with no line about twenty steps off our seats, and we drank and we grinned and we watched two legends work their mouths, and then we went and gambled a few hours after. A perfect night I couldn't hear a word of.
 
-A long, obscene, sloppy makeout session right against the bar. Everyone around us stared into their drinks. Pretending we didn't exist. That's what the booze and the powder do. They build a glass room around you and your prize. In that moment, Erika was my prize.
+I stayed out the extra week, never did get Erika and me onto the same page, and then it was time to go. I hugged each of my boys goodbye at the end of it — Ritchie, Ace, Silesh, John-J — not one of us knowing that for three of those four men, that was the last time I would ever see them alive.
 
-Nate hung up the phone. He had the face of a man holding a winning ticket. The big suite. Two bedrooms. Full living room. A sunken in-floor jacuzzi the size of a pool. Empty. Two hundred and fifty bucks.
+I'm going to let that sit right there for now. There will be a place to tell you how that family came apart, one by one. This isn't it.
 
-"Deal," I said.
+But Vegas — Vegas had been a hell of a success. King of the castle: jackpots and a penthouse suite and a front-row seat I couldn't hear out of, money I hadn't lost yet, and a warrant I still hadn't thought about one single time. And now it was off to Michigan, where another of my best friends in this world was living. My only other best friend.
 
-Ritchie and I split it. We weren't letting Erika pay a dime.
+Troy. Another one I'd come up with, grew up right beside — except where Josh was the friend with the good clean life you visited careful, Troy was the party friend, the bad-decisions friend, the one I could still get into real trouble with. Not that Troy didn't have all the same things Josh had: a big house full of kids, a good job, a wife, even horses out back. He just liked to party, and he liked to do it right. He drank the way I drank and he liked the uppers, the coke, the way I liked them — the one difference being that Troy could buy a gram, do a single line off it, and put the rest away for next weekend. Unheard of. A thing I have never once in my life been able to do.
 
-Ritchie did what any man holding a suite key does. He hauled ass home in the Lexus for his Viagra. One pill for every man on the roster. Even John-J. The cover story was a liquor run.
+That's where I was headed next. A few months with another man I'd grown up with and loved like a brother.
 
-We broke the room in. The jacuzzi was real. The sensor-rigged mini-bar was ignored. The girls didn't wait. Music up. Clothes off. Into the water.
-
-Every man but John-J piled in right behind them. Three grown men with our dicks floating in the hot bubbles. Three naked women. Only Kara stayed on the edge.
-
-Erika swam across and straddled me. Off to the races.
-
-The rest goes blurry. Hands. Mouths. The best lapdance of my life in four feet of heated water.
-
-Ritchie returned. Liquor. Smokes. Pills. The room paired off. Ritchie and Kara slipped into one bedroom. The long con paid off. Ace and Silesh took the other two girls. Erika and I took the second bedroom with a bottle and shut the door on the world.
-
-We surfaced at dawn.
-
-Staring out the big windows at the valley sun. All of us except John-J. He was passed out cold on the floor by the bathroom. Never touched the coke, so he didn't have the fuel. He slept through the wildest night of his life. He talked about it for months anyway.
-
-The next day. Flamingo pool bar. The daylight replay. Somewhere in the haze, I had fake-proposed to Erika with a candy ring from a gift shop. She wore it like a two-carat diamond. We were kings.
-
-Sunday evening. Back at the Airbnb. I never laid eyes on Erika again.
-
-We texted for a few days. She told me about progressives. I extended my trip a second week. But our schedules never lined up.
-
-I let it go. Maybe I didn't want to ruin it. Leave the high-water mark alone. Walk away while it’s still good.
-
-Friday came. Joe Rogan and Dave Chappelle. The reason I came back. Front row at the MGM.
-
-The sound was a catastrophe. All percussion, no words. One jumbled wall of noise vibrating in our chests. We couldn't hear a single punchline. It didn't matter. VIP bar, no line. We drank. We grinned. We watched two legends move their mouths. Then we gambled. A perfect night I couldn't hear.
-
-I stayed the extra week, worked, hit the casinos with the boys.  Then it was time to go.
-
-I hugged my boys goodbye. Ritchie. Ace. Silesh. John-J.
-
-Not one of us knew. For three of those four men, it was the last time I would ever see them alive.
-
-I’m going to let that sit right there. There will be a place to tell you how that family came apart. This isn’t it.
-
-Vegas was a hell of a success. King of the castle. Jackpots. Jacuzzis. Front-row seats. Money in my pocket. A warrant I hadn't thought about once.
-
-Next stop: Michigan. Troy.
-
-Troy was the other best friend of my life. Not Josh. Josh had the clean life. Troy had the bad-decisions life. He had the house, the kids, the wife, the horses. But he liked to party. And he did it right.
-
-He drank like me. He liked the uppers, the coke, like me. The difference? Troy could buy a gram, do one line, and put the rest away for next weekend.
-
-Unheard of. A superpower I have never possessed.
-
-A few months in Michigan with a man I loved like a brother.
-
-It was the start of a good run for me.
+And it was the start of a good run for me.
