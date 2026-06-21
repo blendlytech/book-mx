@@ -120,7 +120,7 @@ She stands by the front door now, smirking, shaking her head. I can already pict
 
 The blood drains back down into my newly acquired moccasins.
 
-Twenty minutes become an hour. I know because I ask a neighbor walking up for the time: quarter to six. Over an hour past when the cops were due. No sign of Alisha for a solid forty minutes.
+Twenty minutes become an hour. I know because I ask a neighbor walking up for the time: quarter to eight. Over an hour past when the cops were due. No sign of Alisha for a solid forty minutes.
 
 Then the door opens. And there she is — dolled up now, miniskirt, low-cut top, high heels.
 

@@ -1,223 +1,133 @@
 # Chapter 5
 
-The schedule alone is a confession.
+The schedule alone was a confession. Two three-hour shifts: noon to three, five to eight. To a normal man, a two-hour break carved out of the middle of the day is a nuisance. Dead time. To me, it was the most beautiful roster ever printed. It meant two hours dead center of the day to walk to the store, buy a sandwich, buy two tall boys, and smoke a joint on the walk back. It meant easing into the second shift loose, warm, and grinning into the headset. They were paying me to work six hours and drink through the seam in the middle. I thought I had died and gone to heaven. I should have recognized the address.
 
-Two three-hour shifts. Noon to three. Five to eight.
+It was late June, Solstice in Anchorage, and the sun never went down. The city was drowning in a pale, flat light twenty-four hours a day. Three in the morning looked exactly like six in the evening. The whole city ran on zero sleep and didn't seem to know it. Meanwhile, I sat in that room calling California homeowners who were an hour ahead of me, living in a totally different reality. The clock, the light, the work, the drinking—none of it lined up. I rode the crooked, disjointed rhythm of it all, and I called it freedom.
 
-A two-hour break carved out of the middle of the day. To a normal man, that is a nuisance. Dead time. To me, it is the most beautiful roster ever printed. Two hours, dead center of the day. Time to walk to the store. Buy a sandwich. Buy two tall boys. Smoke a joint on the walk back. Ease into the second shift loose, warm, and grinning into the headset.
+I was killing it right out of the gate.
 
-They are paying me to work six hours and drink through the seam in the middle. I think I have died and gone to heaven. I should have recognized the address.
+They called us closers. I never stopped finding that funny. In Vegas, a closer took the money. He ran the card. Up here, I didn't close a dime. I closed an appointment. Talked a stranger into a soft credit pull. A credit pass. Like a backstage laminate for a FICO score.
 
-The sun never goes down. Late June. Solstice in Anchorage. The city is drowning in light twenty-four hours a day. Three in the morning looks like six in the evening. The whole city runs on zero sleep and doesn't know it. I am calling California homeowners. An hour ahead of me. The clock, the light, the work, the drinking. Nothing lines up.
+One hundred dollars per pass. I didn't bring a single dollar into the building. I just built the doorway.
 
-I ride the crooked thing. I call it freedom.
+Twenty minutes. That was the rope I got. Some opener in Mexico warm-transferred a homeowner to me, and I had twenty minutes to talk a total stranger into handing me the last four of their Social Security number and their date of birth.
 
-I am killing it. Right out of the gate.
+I did it eight times in two days.
 
-They call us closers. I never stop finding that funny. In Vegas, a closer takes the money. He runs the card. Up here, I don't close a dime. I close an appointment. Talk a stranger into a soft credit pull. A "credit pass." Like a backstage laminate for a FICO score.
+Eight appointments. A credit pass clipped to every one. The next best closer in the room booked three. Three hundred dollars my first day. Five hundred my second. Eight hundred dollars in forty-eight hours. Cash. And I hadn't told a single lie to earn it.
 
-One hundred dollars per pass. I don't bring a single dollar into the building. I just build the doorway.
+After six years in Vegas, this was easy as breathing. It was clean. Nobody was steered into the basement of Circus Circus. I set a free appointment for a real product. The stranger thanked me. I got rich. I sat there those first two nights with no idea how rich the number was about to get.
 
-Twenty minutes. That is the rope I get. Some opener in Mexico warm-transfers a homeowner to me. I have twenty minutes to talk a total stranger into handing me the last four of their Social Security number and their date of birth.
+The openers were in Mexico. They were paid like it—a fraction of what I made for the exact same call. There were only two US-based closers in the machine, and I was the one who could close. The openers got a twenty-five dollar bonus for every transfer that turned into an appointment. I wasn't just a coworker. I was money. I was their commission walking around on two legs.
 
-I do it eight times in two days.
+My phone vibrated on the desk, the WhatsApp going off like a slot machine paying out. It was a flood of all-caps, exclamation points, and *gracias* from people I would never lay eyes on. They were celebrating me from two thousand miles south like I'd just hit the jackpot for the entire room. They fought over me. If a transfer landed on the other closer, they'd disconnect him and dial right back through the system until the line dropped onto my headset.
 
-Eight appointments. A credit pass clipped to every one. The next best closer in the room books three.
+King of the castle. Again. It was the purest form of the old addict high—that warm, golden feeling of being the most wanted man in the room. I was too spun on it to notice that the warmth was coming up a fiber-optic wire from Mexico. Or that being wanted is never the same thing as being safe.
 
-Three hundred dollars my first day. Five hundred my second. Eight hundred dollars in forty-eight hours. Cash. And I haven't told a single lie to earn it.
+The operation was new. Door-to-door appointment setting had died with COVID. Manny wrote the script, and Manny was out of Vegas. He knew the mini-vacation rooms. He knew exactly what words to drop into an ad to summon a creature like me out of the snow. He reached into the desert and pulled my exact type to the top of the world. Birds of a feather.
 
-After six years in Vegas, this is easy as breathing. It is clean. Nobody is steered into the basement of Circus Circus. I set a free appointment for a real product. The stranger thanks me. I get rich.
+The first time I saw her was on a group video call. It was a grid of twenty-something lit squares—openers logging in from cramped kitchens and living rooms all over Mexico, ceiling fans blurring behind them while Manny droned through the script. One of those squares was Glenda.
 
-I sit there those first two nights. I have no idea how rich the number is about to get.
+She was two years younger than me, and she was beautiful. I will be completely straight about it, because she’d want me to be: that was the entire content of my first thought. Not *there's the best opener in the building*. Not *be careful with that one*. Just beautiful. I filed her face away with everything else I thought I had a handle on, looking at her the exact way you look at a thing you don't yet know is going to cost you everything.
 
-The openers are in Mexico. They are paid like it. A fraction of what I make for the exact same call.
+Which is to say, I barely looked at all.
 
-There are only two US-based closers in the machine. I am the one who can close.
+Then I heard her.
 
-The openers get a twenty-five dollar bonus for every transfer that turns into an appointment. I am not just a coworker. I am money. I am their commission walking around on two legs.
+My first closed appointment came from her. My third call on the job. The first thing I learned about Glenda's voice was that she was drunk. I heard it straight through the line. Loose. Low. A half-step too warm. Wasted at her desk in the middle of a workday. And somehow better at the job because of it.
 
-My WhatsApp goes off like a slot machine. A flood of all caps, exclamation points, and gracias from people I will never lay eyes on. They celebrate me from two thousand miles south like I hit the jackpot for the whole room. They fight over me. If a transfer lands on the other closer, they disconnect him. They dial back through until the line drops on me.
+She warmed the Californian up so perfectly the deal was half-closed before I spoke. I caught the lob. I put it away clean. My first of the eight. I felt like a natural.
 
-King of the castle. Again. The old addict high. The warm feeling of being the most wanted man in the room. I am too high on it to notice that the warmth is coming up a wire from Mexico. Or that being wanted is never the same thing as being safe.
+Somewhere under the easy warmth, I clicked the voice to the face on the screen. Something turned over inside me. I knew I had to meet her.
 
-The operation is new. Door-to-door appointment setting died with COVID. Manny wrote the script. Manny is out of Vegas. He knows the mini-vacation rooms. He knew exactly what words to drop into an ad to summon a creature like me out of the snow. He reached into the desert and pulled my exact type to the top of the world.
+Saturday came in like a coronation.
 
-Birds of a feather.
+The word came down the WhatsApp before I was even off the mattress: double commissions, all day. Every credit pass worth two hundred dollars instead of one. *Holy shit.* After the week I'd just had, I sat there running the math on a pot I hadn't won yet, and the number was obscene. I was going to make bank. Real, stupid bank. There was just one loose thread left in the whole gleaming picture — the Airbnb was up Monday, and I had to be out.
 
-The first time I see her is on a group video call.
+And I hadn't accounted for what this town cost. Nobody warns you that Alaska in high summer runs double — solstice money, everything marked up for the few bright weeks people actually want to be there, hotels worst of all. I priced a few and felt the floor tilt. Then I found a hostel near downtown for forty dollars a night, and I booked it for two weeks sight unseen — the same brilliant due diligence that had already landed me in the most dangerous neighborhood in the city.
 
-Twenty-some lit squares. Openers logging in from kitchens all over Mexico. Manny droning through the script. One of the squares is Glenda.
+Forty dollars, it turned out, bought you a pod. Japanese style — and I am not stretching this for the page — a hole in the wall you climbed up into. You could not stand inside it. It had a bed, and a little shelf of a desk jutting out from the wall that you could work at if you sat on the mattress with your laptop, headset on, calling California homeowners out of a slot the size of a coffin with a reading light screwed into it. There was a quiet day room with a real table I could use when the building emptied out. And I looked at the listing photos of that hole in the wall — a man who'd just made eight hundred dollars in two days and pissed some of it away already on bars and a dispensary and a city that cost double — and I thought: *perfect.*
 
-She is two years younger than me. She is beautiful.
+That's the word I used. Perfect. I reserved it for the full two weeks, set check-in for Monday, and closed the laptop. Saturday morning, the light already flat and bright as noon, and me standing in that Airbnb feeling like I'd solved my whole life before breakfast. Housing handled. The biggest payday I'd ever seen a few hours out. King of the castle, crown and all.
 
-I will be straight about it. She would want me to be. That is the entire content of my first thought. Not the best opener in the building. Not careful with that one. Just beautiful. I file it away with everything else I think I have a handle on. I look at her the way you look at a thing you don't yet know is going to cost you everything.
+Before my first shift I set out for breakfast.
 
-Which is to say, I barely look at all.
+There's a Denny's about a twenty-minute walk from the Airbnb, same bad side of town, and I made the trip on foot the way I'd made every trip that week — loose and unbothered, a dead man strolling and grinning at the scenery. Big breakfast. Coffee. On the way back I stocked up for the day: a joint, a few tall boys, a bag of snacks to ride out both shifts. Then I started home through my own neighborhood, arms full of goodies, the joint lit, the sun up, two hundred dollars a pass waiting on me at noon.
 
-Then I hear her.
+That's the last thing I've got. The joint. The walk. The math.
 
-My first closed appointment comes from her. My third call on the job. The first thing I learn about Glenda's voice is that she is drunk.
+Next thing in my head is the rose bush.
 
-I hear it straight through the line. Loose. Low. A half-step too warm. Wasted at her desk in the middle of a workday. And somehow better at the job because of it.
+I came to in it — flat on my back in somebody's landscaping, thorns hooked into my arms, my shirt torn half off me, my face wet and stinging where I'd gone down into the branches. It took me a long moment to understand I was awake, and another to understand I was empty. I mean *empty.* The Airbnb key, gone. My wallet — my whole life was in that wallet — gone. My phone. My cash. Every beer and every snack and the joint. Everything I'd carried out of that house stripped off me while I was somewhere else inside my own skull, and not one frame of it left in my memory. No face. No hands. Nothing.
 
-She warms the Californian up so perfectly the deal is half-closed before I speak. I catch the lob. I put it away clean. My first of the eight. I feel like a natural.
+It was still before noon. I was maybe three blocks from the Airbnb. And I was about as alone as a man gets.
 
-Somewhere under the easy warmth, I click the voice to the face on the screen. Something turns over inside me. I know I have to meet her. It isn't love. I just want to see her naked. That is the whole size of it.
+Here's the full inventory of what I had left: nothing. No phone to call a soul. No wallet, no ID, no way on God's earth to prove I was a man who belonged anywhere, least of all in the rented townhome up the block. I didn't know a single neighbor by name. I had no number for the owner — I'd learn later, off somebody on the street, that the owner lived down in California, which was about the most fitting detail in the whole disaster — and nobody on that block had it either. It was strictly an Airbnb. A lockbox and a stranger's house and not one human being within three thousand miles who could let me in.
 
-She works out of a house in Mexico. I work out of a hole in the wall in Alaska. Best opener. Best closer. Both of us drunk. Both of us dead sure we run the machine. We are two drunks falling for each other through a corporate phone system, one transferred call at a time. Very good at exactly one thing: feeding each other's worst habits.
+So I spent the next three hours trying to break into my own life.
 
-She doesn't have to fake a word to get to me. Remember that. Everything that comes after, she means.
+There was a window I could see standing open — an upstairs bedroom, cracked for air. A neighbor lent me a ladder, and I need you to picture this thing: one of those little wooden folding jobs, a step stool with ambitions, and me balanced on the very top of it still a good five feet shy of the sill, swaying, reaching up at an open window like it owed me money. So I tried to jump it. Stood on that top step and threw myself at the ledge and came down hard enough to damn near snap my ankle. No water. No food. Nothing in me but a hangover, a head wound, and the slow cold understanding that my debit card — over a thousand dollars still on it, the last money I had in this world — was out there in the wild in somebody else's hand, bleeding out by the minute, and there was not one thing I could do about it.
 
-Saturday comes like a coronation.
+Because everything that could save me was on the wrong side of that door. My laptop. My whole job. If I could just get inside, I could open the dialer on my PC and at least kill the card before it emptied. That was the entire prize now. Not the double commissions. Not two hundred a pass. Not the king-of-the-castle week. Just: get in, cancel the card, drink a glass of water.
 
-A message down the WhatsApp before I even leave the mattress. Double commissions. All day. Every credit pass is two hundred dollars.
+So I worked it like a man losing his mind in slow motion. Sit on the step for twenty minutes. Get up, walk the house, try a window, try the door, claw at the lock with nothing in my hands, fail, sit back down. Wait on a car, a neighbor, anybody with a phone or a name or the owner's number. Nobody came. Nobody had it. And the sun didn't move, because the sun never moved up there — just hung in the sky and watched me with the rest of the block.
 
-I sit in the Airbnb. I run the math on a pot I haven't won yet. Obscene. I am going to make stupid bank.
+By the time it got past six I'd stopped thinking straight, if I ever started. And I made the single dumbest decision in a life that's mostly a monument to them. I was going to put my elbow through a window.
 
-There is one loose thread. The Airbnb is up on Monday. I have to be out.
+I picked the thickest one in the place, naturally. Drove my elbow into it, and it did not politely crack — it went off like a shotgun, the whole street ringing with the sound, and in the half-second after I understood I'd just announced myself to every soul in the most heavily policed poor neighborhood in Anchorage. I didn't care. I was through the frame in seconds, opening my arms up on the glass on the way in, and I dropped down into my own rented kitchen bleeding from about nine new places and could not have been more relieved.
 
-Alaska in the summer costs double. Solstice money. I find a hostel near downtown for forty dollars a night. I book it for two weeks. Sight unseen. The same brilliant due diligence that landed me in the most dangerous neighborhood in the city.
+First thing I did was pour a glass of water. Stood at the sink and drank it down like water was the thing that had been wrong all day. It couldn't have been five minutes. I was still standing there — glass in my hand, blood running down to my knuckles — when I looked up at the window over the sink, the one I hadn't broken.
 
-Forty dollars buys you a pod. Japanese style. A hole in the wall you climb up into. You cannot stand. It has a mattress and a little shelf of a desk. I can sit on the bed with my laptop and call California homeowners out of a slot the size of a coffin.
+There was a cop on the other side of it. Looking right at me.
 
-I look at the listing photos. A man who just made eight hundred dollars in two days. And I think: Perfect.
+So I did the only thing a man with my history does when the law turns up on the far side of the glass. I waved. Polite as church. Gave him the little half-smile you hand a cop when you've already decided, against every piece of evidence stacked up around you, that this is going to go just fine. *Sorry — I got jumped. Robbed. They took everything, I had no way in, no way to reach the owner.* I said it through the window like it was an explanation, like it was a thing that would land.
 
-I reserve it. I close the laptop. Saturday morning. The light flat and bright as noon. Housing handled. The biggest payday of my life a few hours away. Crown and all.
+And somewhere in the middle of saying it I caught my own reflection in the glass next to his face and understood exactly what he was looking at. A man bleeding out of nine places. Shirt half torn off his back, thorns still hooked in his arms, face shredded, filthy, swaying, standing in a stranger's kitchen he'd just put an elbow through the window to get into. I didn't look like the renter. I looked like the precise creature this whole neighborhood gets warned about — the homeless guy who'd break into an empty house for a glass of water. And I want that on the record: I was, at that exact moment, holding the glass of water.
 
-I already told you what my luck is. It is just the house letting me keep playing.
+Okay, he said, easy, reasonable. Can you open the front door for me and step outside so we can talk?
 
-This is the morning the house decides to collect.
+Sure. Of course. I'd open the door and I'd explain it and he'd understand, because I have spent my entire life dead certain that the next room is the one where I finally get to explain. I walked to that door working out which words to lead with.
 
-Before my shift, I walk to Denny's. Twenty minutes on foot. Loose and unbothered. A dead man grinning at the scenery.
+There was no conversation. I opened it and I was spun, shoved, told to put my hands behind my back, and folded into the back of an Alaskan cop car before I'd gotten one syllable of the speech out. Cuffed and stuffed. The only mercy the night saw fit to hand me — and I take my mercies wherever they fall — was that this one didn't reek of Joop.
 
-Big breakfast. Coffee. On the walk back, I stock up for the day. A joint. Tall boys. Snacks. I start home through my neighborhood. Arms full of goodies. The joint lit. The sun up. Two hundred dollars a pass waiting on me.
+Then I sat. Two hours in that backseat while the longest day of the year refused to end outside the windows. Every so often a cop would crack the door, ask me exactly one question, and shut it again before I could turn the answer into a story. *You got the owner's number?* No. Door closes. *You know the owner's name?* No. Door closes. *Any ID in the house?* No — a laptop, I can pull up a receipt if you let me get to my laptop. Door closes. Each one a door, an actual door, swinging shut on me one more time, on a day that had been nothing but locked doors since the rose bush.
 
-That is the last thing I remember. The joint. The walk. The math.
+Out past the glass there were four cruisers now, maybe more, every light bar running, painting the block red and blue under a sun too high to let the colors mean anything. Two of the cops were carrying what looked to me like AK-47s. For me. For the bleeding man who'd wanted a glass of water. They stood in a knot out in the street and talked, and I couldn't catch a word of it, and I sat there in my cuffs running the same broken arithmetic I'd run my whole life. *Surely.* Surely once they sorted it out they'd laugh. Surely a man can't go to jail for breaking into his own Airbnb. Surely. The best closer in the building, the unmovable mark, the man who'd seen the wire from both ends — and I sat there genuinely certain I couldn't be closed by four cop cars and a felony. A closer doesn't get closed. I'd staked my whole life on that one.
 
-The next thing is the rose bush.
+One of them peeled off the group and came to my window. He had good news and bad news, he said. He didn't extend me the courtesy of choosing the order.
 
-I wake up flat on my back in somebody's landscaping. Thorns hook into my arms. My shirt is torn half off. My face is wet and stinging.
+Bad news: I was going to jail.
 
-It takes a long moment to understand I am awake. Another to understand I am empty.
+*Fuck my life.*
 
-The Airbnb key: gone. My wallet: gone. My phone: gone. My cash: gone.
+Good news: they'd reached the owner — down in California, naturally, three thousand miles from the door I'd just bled all over — and the owner had confirmed I was the renter. So they weren't going to charge me with breaking and entering. Just destruction of property. The owner wanted to press charges. And I was not allowed back on the property.
 
-Everything stripped off me while I was somewhere else inside my own skull. No face. No hands. Nothing.
+Sit with the shape of that. I'd been jumped and robbed and stripped of every last thing I owned in broad daylight, spent the longest afternoon of my life clawing to get back into a house I was paying for, and finally bled my way in for a glass of tap water — and the verdict on all of it was that I was the criminal. I'd told you what my luck really was. Nothing but the house letting me keep playing. This was the morning it reached across the table and raked the whole pot back.
 
-It is before noon. I am three blocks from the Airbnb. I am as alone as a man can be.
+They booked me into county, put me in a cell, and told me I'd see a judge on Monday. Okay. Great. I lay down on that bunk and felt the old machine spin right back up: *this won't be too bad.* Surely the judge would take one look and see straight through it and cut me loose. Surely the owner had somebody nearby with a key — they'd let me in, I'd grab the suitcase and the laptop, I'd get hold of work and lay the whole insane story out and pray to God I still had a job to lay it out to. I had the Japanese hole in the wall rented for two weeks. I had time. I had a plan, lying there on a steel bunk in Anchorage with not one thing left to my name.
 
-Here is the inventory: nothing. No phone to call for help. No ID. No way to prove I belong in the rented townhome up the block. I don't know the neighbors. The owner lives in California.
+Does any of that sound familiar? It should. It's the exact same sermon I'd preached myself the weekend my job got erased — *it's a glitch, I'll straighten it out Monday.* Same man, same voice, same unshakable faith that the next morning was finally going to break my way. I never learned. That was the whole disease, and there I was on a jail bunk feeding it one more time.
 
-I spend the next three hours trying to break into my own life.
+Monday morning came — the weekend swallowed whole on a steel bunk, Sunday a dead day with no court and nothing to do but wait on it — and the judge was a face on a TV screen, and I want to be precise about how this went: I did not get to say one single word. Not one. She read the case off a page, postponed the whole thing to Wednesday, and the screen went dark. And the jail, it turned out, was still scared out of its mind of COVID — scared enough that we weren't let out of our cells to eat, to walk, to do anything at all. You ate where you slept and you stayed there.
 
-There is a window cracked open upstairs. A neighbor lends me a wooden step stool. I balance on the top of it, five feet shy of the sill. Swaying. I jump at the ledge. I come down hard enough to damn near snap my ankle.
+So now I really might be finished. Three more days of work gone, maybe four, and that was *if* they actually turned me loose Wednesday. How could this be happening? It isn't a question. There's no answer down at the bottom of it. It's just the sound a man makes on the inside while the floor keeps dropping out from under him.
 
-No water. No food. A hangover. A head wound. The slow, cold understanding that my debit card is out in the wild. A thousand dollars bleeding out by the minute.
+Monday and Tuesday were the two longest days of my life — and I'll let you sit with that one, given the calendar. The longest days of the year, the sun nailed to the sky and refusing to go down over the whole state, and I was spending them in a box where you couldn't tell and it wouldn't have changed a thing. A two-man cell. And my cellmate — I'm not going to dress this up, because dressing it up would be a lie. He was a serial masturbator. Five months in, and by every other measure a completely normal guy — we'd talk, he made sense, he was pleasant enough — right up until he'd roll onto his side with no warning and no shame, fish himself out, and go to work, and it did not matter to him in the slightest whether I was three feet away watching or not. That was the company. That was who the State of Alaska sat me across from for the longest two days I'd ever lived. It is too stupid to invent. But that was the exact texture of my life — wall to wall with this kind of insane shit, and me the one common denominator in every room it ever happened in.
 
-Everything that can save me is on the wrong side of that door. My laptop. My job. If I get inside, I can kill the card. That is the entire prize. Just get in. Cancel the card. Drink a glass of water.
+Wednesday the judge had the owner on the phone, live. The owner would be in town Saturday to come let me into the house. *Saturday.* I lost it, as much as you can lose it at a face on a screen — that's unacceptable, my whole life is in that house, I need the laptop, I need to work, there is no version of this where I sit here until Saturday. Didn't move her an inch. And then she did me one better: a protective order. I was not to go anywhere near the property without a police escort. Barred by force of law from the home I was still paying for. I'd been here before — a court order locking me out of a house I was paying for, Alisha's name on that one, a Vegas judge instead of an Alaska screen. New state, new stranger holding the key, same fool on the wrong side of the door. The geographic cure, working exactly as designed.
 
-I work it like a man losing his mind in slow motion. Sit on the step. Walk the house. Try a window. Try the door. Claw at the lock. Fail. Sit back down. The sun doesn't move. Just hangs in the sky and watches me.
+*Fuck my life. Again.*
 
-By six o'clock, I stop thinking straight. I make the single dumbest decision in a life built on them.
+I'd be released the next morning, they told me, or the afternoon. And I lay there and thought: released to *what?* No money. No debit card — that one was already out in the wild, bleeding down to zero. No ID, and no way on earth to replace an ID with no ID, that perfect little snake of a loop. No way to so much as prove who I was long enough to climb into the forty-dollar Japanese pod I had already paid for — a full week of it now, paid up front, every night of it spent in a cell instead. The one roof I had left in the world, and I couldn't get under it. Meantime I had free room and board, courtesy of Alaska's finest establishment. The jail, at least, didn't need an ID.
 
-I am going to put my elbow through a window.
+After my cellmate finished his business, I asked him the only practical question I had left: what time do they cut a man loose around here? All depends, he said. Could be as early as two in the morning. And I lay there and prayed it wouldn't be. Two a.m. in Alaska is cold as death even in June, and I owned, at that point, a torn-up t-shirt and a pair of filthy shorts and nothing else. I was hoping with everything I had for a mid-afternoon checkout, someplace warm to walk out into. But there's no front desk in a place like that. Nobody to call. No request you get to put in. You go when the door says you go.
 
-I pick the thickest one in the place. I drive my elbow into the glass. It goes off like a shotgun. The whole street rings. I announce myself to every soul in the most heavily policed neighborhood in Anchorage.
+I drifted off at last, my celly — full of cum and bad news in equal measure — squeezing in one final go before lights out. And then the cell door cracked open like a gunshot, and a voice said:
 
-I don't care. I am through the frame. I open my arms up on the glass on the way in. I drop into my rented kitchen bleeding from nine new places. I have never been more relieved.
+Mills. Go home.
 
-I pour a glass of water. I stand at the sink and drink it down.
+I lay there a second in the dark.
 
-Five minutes pass. I stand there, glass in hand, blood running down to my knuckles. I look up at the window over the sink. The one I didn't break.
+I had no home.
 
-There is a cop on the other side of it. Looking right at me.
-
-I do the only thing a man with my history does. I wave. Polite as church. A little half-smile. Sorry. I got jumped. Robbed. I had no way in.
-
-Then I catch my reflection in the glass next to his face. I see what he sees.
-
-A man bleeding from nine places. Shirt torn. Thorns hooked in his arms. Face shredded. Filthy. Swaying. Standing in a kitchen with a broken window.
-
-I don't look like the renter. I look like the homeless guy the neighborhood gets warned about. The guy who breaks into a house for a glass of water.
-
-I want it on the record: I am, at that exact moment, holding the glass of water.
-
-"Okay," the cop says. Reasonable. "Can you open the front door and step outside so we can talk?"
-
-Sure. Of course. I will explain it. I have spent my entire life dead certain that the next room is the one where I finally get to explain. I walk to the door, working out the words.
-
-There is no conversation.
-
-I open it. I am spun. Shoved. Hands behind my back. Cuffed and folded into the back of an Alaskan cop car before I get a single syllable out. Cuffed and stuffed. The only mercy is that this cop doesn't smell like Joop cologne.
-
-I sit for two hours in the backseat. The longest day of the year refuses to end. A cop cracks the door, asks one question, and shuts it. You got the owner's number? No. Door closes. You know the owner's name? No. Door closes. Any ID in the house? No. Door closes.
-
-Every door swinging shut. A day of locked doors.
-
-Outside, there are four cruisers. Light bars painting the block red and blue. Two cops are holding AK-47s. For me. For the bleeding man holding a glass of water.
-
-I sit in cuffs. I run the broken arithmetic. Surely. Surely they will laugh. Surely a man can't go to jail for breaking into his own Airbnb.
-
-The best closer in the building. The unmovable mark. I sit there certain I cannot be closed by four cop cars. A closer doesn't get closed.
-
-A cop comes to the window. He has good news and bad news. He doesn't give me the courtesy of choosing the order.
-
-Bad news: I am going to jail. Fuck my life. Good news: They reached the owner in California. The owner confirms I am the renter. No breaking and entering. Just destruction of property.
-
-But the owner wants to press charges. And I am not allowed back on the property.
-
-Sit with the shape of that. Jumped. Robbed. Stripped of everything. Clawing my way into a house I paid for. Bled for a glass of tap water. And the verdict is that I am the criminal.
-
-The house reaches across the table. It rakes the whole pot back.
-
-They book me into county. Put me in a cell. Tell me I will see a judge on Monday.
-
-I lie on the steel bunk. The old machine spins up. This won't be too bad. Surely the judge will cut me loose. Surely the owner has someone nearby with a key. I will get my laptop. I will explain to work. I have a plan.
-
-Lying there with not one thing left to my name. Preaching the exact same sermon from the weekend my job was erased. It's a glitch. I'll straighten it out Monday. The unshakable faith that the next morning will finally break my way.
-
-I never learn.
-
-Monday morning. The weekend swallowed whole on a steel bunk. The judge is a face on a TV screen. I want to be precise: I do not get to say one single word. Not one. She reads the case. Postpones it to Wednesday. The screen goes dark.
-
-The jail is terrified of COVID. We are not allowed out of our cells. We eat where we sleep. We stay there.
-
-Now I am finished. Three more days of work gone. Maybe four. How is this happening? It isn't a question. It is just the sound a man makes inside while the floor drops out from under him.
-
-Monday and Tuesday are the longest days of my life.
-
-My cellmate is a serial masturbator. He rolls over, no warning, no shame, and goes to work three feet away. Indifferent to whether I watch. Too stupid to invent. But this is the exact texture of my life. Wall to wall with insane shit. And I am the common denominator.
-
-Wednesday.
-
-The judge has the owner on the phone. The owner will be in town Saturday to let me into the house. Saturday.
-
-I lose it at the TV screen. Unacceptable. My whole life is in that house. I need the laptop.
-
-It doesn't move her an inch. She does me one better. A protective order. I am barred from the property without a police escort.
-
-Barred by force of law from the home containing everything I own. Again. New state. New stranger holding the key. Same fool on the wrong side of the door. The geographic cure. Working exactly as designed.
-
-Fuck my life. Again.
-
-I will be released the next morning. Or the afternoon.
-
-Released to what? No money. No debit card. No ID. No way to prove who I am to sleep in the forty-dollar Japanese pod I already paid for. The one roof I have left in the world, and I cannot get under it.
-
-I ask the masturbator the only practical question left. What time do they cut a man loose?
-
-"Could be as early as two in the morning," he says.
-
-I pray it isn't. Two a.m. in Alaska is cold as death. I own a torn-up t-shirt, filthy shorts, and nothing else. I want a mid-afternoon checkout. Someplace warm to walk out into.
-
-But there is no front desk. You go when the door says you go.
-
-I drift off. The cell door cracks open like a gunshot.
-
-A voice says: "Mills. Go home."
-
-I lie there in the dark.
-
-I have no home.
-
-It is two in the morning.
+It was two in the morning.
