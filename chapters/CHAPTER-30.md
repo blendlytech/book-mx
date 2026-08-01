@@ -1,91 +1,43 @@
 # Chapter 30
 
-Thanksgiving, Christmas, and New Year's have all passed by without an honorable mention by me. By January I was back hauling feed and mucking the stalls, the ankle healed up enough to carry weight again, and for a few weeks that was the whole of it. Up before dawn. Haul, feed, shovel. Clayita at my heel like a little foreman keeping an eye on the work. I'd almost let myself believe they'd run clean out of ideas.
+Tijuana is not a line you just stroll across.
 
-They hadn't. They'd just been thinking.
+It's one of the most heavily watched borders in all of Mexico, and I was about to try to walk into it with no passport, no luggage, and no good answer for anybody who decided to ask me a question. That last part was almost the point. A man crossing south for an honest day — to shop, to drink, to see a cheap dentist, the things Americans go down to TJ to do — doesn't haul a suitcase. He travels light and he comes home by dark. So in one narrow way the nothing I owned worked in my favor: I didn't look like a man moving to Mexico, because I had nothing left to move. But I also looked exactly like what I was, which was a man who'd been sleeping on a beach for a couple of weeks, and that look gets you stopped and questioned at the one border you least want to be stopped and questioned at. What I needed was to not look poor. I needed to look like a day-tripper. I needed to clean up.
 
-I was finishing up the stalls one morning when I felt it before I understood it — the air changed. Whispering. I looked up and there was a crowd of them filing in along the barn, the way men gather when something's about to happen that they all already know about and you don't.
-
-A man stepped out of the group and pulled his shirt off over his head.
-
-He started toward me, and I stood there with the rake in my hand not knowing one single thing about what was coming. I'll be honest, because I've promised myself I'd stay honest in this book even about the parts that don't make me look like much: rape crossed my mind. Right then, that's where my head went. A shirtless man walking at me across a barn in the middle of nowhere and a crowd gathered up to watch — I didn't have a better guess than that.
-
-Then he put his hands up. Fists up, chin tucked. And another man came at me slow, talking low careful Spanish, the way people talk to a foreigner like the words will land if you just sand the edges down — and he reached out and picked my own hands up off my sides and lifted them in front of my face. *Put 'em up.* Like that.
-
-And I got it. That was the game.
-
-I didn't even get my fists all the way up before the first one landed. The punch came in from the side and the barn floor came straight up and met the side of my head, and that was it, I was down. Off at the edge of it I saw Clayita break and run and tuck herself out of sight. Nothing a half-wild cat could do about these men. Nothing anybody could.
-
-The crowd came apart laughing.
-
-I stayed down. I lay there in the muck I'd just shoveled and I did not get up, because the cold part of my brain — the part that never fully shuts off, the part that had kept me breathing this long — had already run the math. There was no winning this. Fight back and it gets worse. Get up and it gets worse. The only move left on the board was the dirt, so I took the dirt.
-
-Then it was over. Just like that. The barn emptied out.
-
-Omar came over and crouched and checked me, turned my face up to the light, the way you'd look over a horse you were afraid you'd lent out too rough. Then he handed me my rake and my bucket. *Here,* he said. *Next time you fight back.*
-
-I could feel my face already going tight and hot with the swelling.
-
-That was the new game.
+Which meant, God help me, panhandling. Again.
 
 ---
 
-It ran once or twice a week, depending on how bad the last one had left me. A different man every time. The same thing every time. They'd gather, somebody would peel his shirt off, somebody would lift my hands for me, and somebody would knock me to the floor — and I would stay there.
+So I spent half a day with my hand out, asking strangers for money for food.
 
-I never fought back. Part of it was fear, plain fear, of what twenty men would do to me if I turned it into a real fight. But that wasn't the whole of it, and I'm not going to pretend it was. The bigger part was that I'd figured out what they were buying. They didn't want to watch a man get hit. They wanted a brawl. They wanted me to swing back and make a show of it, give them a scrap to howl at. That was the satisfaction in the whole thing.
+It's a regular sight down there, a whole quiet economy of it, and you learn the shape of it fast. Three out of every four people look at you like something they scraped off a shoe. Then, if you stay out in it long enough, you find the one soft spot in the crowd. I watched men who'd truly perfected the craft and figured a person who gave himself fully to it could clear a hundred, two hundred dollars in a day out there. It was not in me. I was ashamed every single time I opened my mouth — so ashamed I couldn't lift my eyes to the face I was asking, so I'd ask the pavement instead, the shoes, the middle distance. My line was that I was visiting and I'd just gotten robbed, and the one small mercy of it was that for once in my life the line was simply, completely true. It took me hours to scrape together enough for a bar of soap, a razor, a clean t-shirt, and something to eat.
 
-And I'd already learned, face-down in the dirt with a gun against the back of my skull months before, that there was exactly one thing on that mountain they couldn't take off me unless I handed it over myself. So I didn't hand it over. I ate the beating and I gave them nothing to cheer. It was the only fight up there I could win, and the way I won it was by losing it.
-
-This went on about six weeks. Once or twice a week some new man who lived on the compound handed me my ass — and then, days later, this is the part, that same man would walk up to my desk in front of the bus and buy his dope off me. Most of them wouldn't look at me when they did it. Bought their meth staring down at the table, took it, walked off. A few looked me dead in the eye grinning ear to ear, said something to their buddy, and laughed the whole way back down the hill.
-
-That was what I'd become up there. The laughingstock of the mountain. The gringo who got worked over for sport and then sold you your drugs with a fat lip.
-
-Until one day it ended. And I want to tell you exactly how.
+The rest I did in a gas station bathroom. A bird bath at the sink, soap and cold water, scraped my face down with the razor, worked the worst of the beach out of my jeans. And then I peeled off the shirt — the one I'd slept in on the sand for two weeks — and left it there in the bathroom trash. I'd done that once before, in a fitting room in Anchorage, shed a bled-through shirt off my back and walked out of it like a snake leaving a skin. It's the same move every time. You can't change the man, but by God you can change the shirt, and some days the shirt is the only thing you've got the power to change.
 
 ---
 
-There was one man in particular I could tell Glenda had taken a liking to. I didn't need the language to read it. He was from Sinaloa, and he carried himself like it — dressed to impress every day he came around, gold on him, a watch, bright white shoes without a mark on them, an iPhone he was forever finding a reason to have out. He'd come by when our shifts overlapped and talk to her in that low flirty way, and she'd laugh, and swat at him, playful, and look back over my way and say something to him I couldn't make out but didn't need to. *Stop it.* That kind of *stop it.* The kind that means *don't you dare stop.*
+By the time I was clean it was coming on dinnertime, which I'd figured for my best shot and turned out to be exactly right.
 
-He did it right in my face. On purpose. He'd catch my eye first, make sure I was watching, then lean in and say his thing to her and let me sit there and watch her laugh.
-
-Remember where I was with her by then — the woman I'd come down through all of this hell for, the one I'd told on a walk to a bank that I was leaving. She'd gone cold on me and started handing everything that used to be mine out to any stranger who stepped up to the desk, and here was this peacock in his spotless white shoes collecting it right in front of me with a grin.
-
-I had so much hate in me by then. So much pain, all of it loaded up and just looking for the right face to go off on.
-
-So this one day I lost it. He laughed my way and I flipped him off and threw my arms up and asked him what the fuck was so funny. *I'll fuck you up,* I told him, and I meant it all the way down to the floor. He laughed. Then he drew one finger slow across his throat. And I gave him the big sarcastic *ooooh, I'm so scared* — because I wasn't. Not of him. I welcomed it. *Put me out of my misery,* I thought. I'd half wanted somebody to do it for months. Let it be him.
+The border at that hour is a river. All the people who work on the American side and live on the Mexican one come flooding home, and the ones headed the other way churn against them, bodies and cars thick enough that one more clean-enough gringo walking south just dissolves into the current. Nobody asked me a thing. I walked right past an armed Mexican guard who looked at me and gave me a small nod — *go on, have a good time*, the nod said — and just like that I was through. I was back in Mexico. Illegally, on foot, with a phone, a wallet, a clean shirt, and twenty-some miles of dark between me and the only person on earth still expecting me to show up.
 
 ---
 
-He took me up on it.
+Twenty-three miles, to be exact. The map put the walk at about eight hours.
 
-I knew it was coming the second the audience started filing in — fifteen, twenty men, into the barn, same as always. And then I saw him walk in and my blood went hot, because it was him. The Sinaloa man. Come to teach the gringo a lesson in front of the whole camp.
-
-He was maybe five-six. Stocky, built like he'd picked up a weight or two in his life, but when the shirt came off there was some chub on him. Off came the gold, off came the watch, set aside careful. He'd seen these fights before. He knew exactly how it went — one punch, the gringo folds, everybody laughs, on with the day. One punch.
-
-Except this time the gringo was throwing first.
-
-I hit him with everything I had and everything I'd been saving up. Caught him flush and felt it travel all the way up my arm, and I didn't stop to admire it — I took him down to the floor and got on top of him and dropped elbows, dropped fists, every man who'd ever put me in that dirt going down through my arms and into his face. When he turned over to cover up I got my forearm under his throat and I choked him. Choked him until he quit moving. And then I kept on choking him after that. They had to pull me off. They peeled me off the man with my arm still locked.
-
-And here's the thing I never saw coming.
-
-They didn't beat me for it.
-
-They celebrated me.
-
-*GRINGO!* — but different now, the whole barn roaring it, and a man hauled me up off the floor and carried me around that barn like I'd just won a title belt. Somebody shoved a half-drunk Tecate into my hand. I was in pure disbelief, getting carried past the same faces that had been laughing at me for six weeks straight and were now laughing *with* me, pointing down at the Sinaloa man laid out cold on the floor and howling at him for once. When he came around they were all over him, making fun, pointing, doubled over.
-
-It was the best day of my life. I mean that as plainly as I've meant anything in these pages. Right then, in that barn, on that mountain, it was the best I have ever felt.
-
-Another beer came after the first. A whole one this time, unopened, a cold Tecate Red, and I cracked it and it was the best thing to touch my lips since the day they first dragged me up that mountain. Men were slapping my hand. Bumping my fist. Rubbing my head — *atta boy, gringo* — big smiles all around me.
+Down the coast, in the dark, through the ragged edges of Tijuana — which is not a city you want to be caught drunk on the shoulder of at night, so I'd be doing the whole thing stone sober whether I liked it or not. I think about it now and it sounds insane, because it was. I'd spent my crossing money on looking the part and on a meal, and what was left wouldn't have covered a cab out of the parking lot. Looking back, the sane play was to stand out there another few hours and panhandle up bus fare or a ride. I couldn't do it. I would rather walk twenty-three miles through one of the most dangerous cities in Mexico in the pitch black than put my hand out to one more stranger for one more dollar. I want to be honest that this was not bravery. It was something closer to a death wish wearing pride's coat. Walking felt better in my head, and by then what felt better in my head was the only compass I had left — and that broken compass had never once pointed me anywhere good.
 
 ---
 
-After that day, the games stopped.
+So I set out, and for a long first stretch it was almost boring, which I will gladly take.
 
-I had a whole different standing in that camp from the floor of that barn forward. I'd hear *gringooo* from somebody passing by, and instead of the sideways grin it'd be a fist thrown up in the air and a point and a real smile. I got fist-bumped now by the same men who used to line up to knock me down. I went from the joke of the mountain to a man they respected, and it took all of about forty-five seconds of pure chaos to do it.
+I'd borrowed a charger at the Taco Bell where I stopped to eat before I left the states and put the phone back to full, because the phone was everything now. It was the map, the light, and the only thing in the world that knew where I was going. I followed that little blue line south. Around seven the sun went down and took the whole world with it, and that's when I stepped off the road and down into the fields running alongside it. I'd been smart enough, or paranoid enough, to buy a black shirt instead of a white one, something that wouldn't throw back a headlight, and I kept off the shoulder as much as I could and let the dark have me.
 
-And the sweetest part — God forgive me, but I told you I'd be honest — the sweetest part was that it was him. The man from Sinaloa. The one in the white shoes hitting on my woman while he drew his finger across his throat at me. That it was his face I finally went off on, his lights I put out in front of the whole camp, made it better than it had any right to be.
+It was terrifying. Pitch black, real black — coast-and-country black with no town glow to thin it — and the only light in all of creation was the weak little torch of my phone screen held out in front of my face. I had no idea what was out there. Dogs. Men. A hole in the ground. I kept walking straight into it anyway, and if you want to call that a death wish you won't get a fight from me; I'd have told you that night I genuinely did not care what found me out there, and I'd have meant every word.
 
-It was worth it. The dozen-some ass-whoopings I ate to get there, every last one of them. Lying in that dirt week after week, taking it and giving them nothing, right up until the one day I gave them everything.
+What found me was rocks. I tripped over stones I never saw coming, went down hard more than once, tore the knee clean out of my jeans on one of them. That was the whole of the damage. Twenty-three miles through the worst city in the country at three in the morning, and the entire bill came to a pair of jeans and a quarter of my mind. I got to Glenda's door at a quarter to four. I have never in my life been so thoroughly beaten by simple distance — wrung out, parched, hollowed by hunger. She let me in. I ate some fruit and drank glass after glass of water and lay down in the bed of our new home, such as it was, for now. And yes — of course — I smoked a joint first, because some rituals outlive everything else a man owns. Then I went out like a dropped call.
 
-I wouldn't change a second of it now.
+---
+
+We woke up around noon, and that was when the next plan was going to have to get built, because the one I'd walked in on had ended at this door.
+
+We had two weeks before the rent came due. It was the middle of September. And every well I had ever lowered a bucket into was bone dry now — my father by my own hand, the rest of them by plain shame — so there wasn't a soul left on this earth I could call and ask for money. Even though my life, in the most literal sense I had ever meant those three words, depended on finding some.

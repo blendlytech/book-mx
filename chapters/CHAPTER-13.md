@@ -29,8 +29,7 @@ And then we were in Mexico.
 That's it. That's the whole crossing. I didn't even know it had happened. One second we were rolling up on the thing I'd lost sleep over for a month, and the next Jo was grinning at me going *see? That was easy.* No stop. No check. No man with a gun and a clipboard asking me the one question I had no answer for. It was like driving from one town into the next, and the only thing on God's earth that changed was the signs — the language gone over to one I couldn't read, the speed limits counting up in kilometers instead of miles, the numbers suddenly bigger and meaning less. I'd bet everything I had left on a stranger's say-so, and the house had let me walk. It always let me walk. That's the thing about a streak like mine: it doesn't feel like luck while it's running. It feels like you've got the place figured.
 
 ---
-
-They pulled up to the rehab and I grabbed my bags, and Jo sent me off with the smile and the line I'd carry a long way: *good luck.* And then, half under her breath, that laugh — the one that means *you are completely out of your mind* — sized me up and let it go.
+She pulled up to the rehab and I grabbed my bags, and Jo sent me off with the smile and the line I'd carry a long way: *good luck.* And then, half under her breath, that laugh — the one that means *you are completely out of your fucking mind* — sized me up and let it go.
 
 I banged on the metal door. It opened on a wall of Spanish I didn't have a single word for. *Hola* — and then a run of it, faster than I could catch.
 
@@ -50,7 +49,7 @@ And I want you to appreciate the comedy of it, because I've had years to and I s
 
 That cup changed everything. I was walked into a back room and told to strip. All the way. And then a stranger went through every crease and crevice a man's got, looking for whatever a man in my shape might be smuggling into a place like that. This was not in the agreement. Nobody on that night shift spoke a word of English — or at least nobody in charge of getting you naked and running his hands along your every seam did — so there was no arguing it, no name to drop, no angle to work. I'd come down to run a clever little operation inside this building, the broker, the man with the plan. And the building's first order of business was to strip the plan off me and have a look at what was underneath.
 
-I'd also, somewhere in that doorway, signed a document. Officially checked myself into rehab. So when they told me I'd be spending the next few days in detox, there was no part of me with standing to say a word about it. I'd come to use the place. The place had checked me in first.
+I'd also, somewhere in that doorway, signed a document. Officially checked myself into rehab. I'd come to use the place. The place had checked me in first.
 
 ---
 

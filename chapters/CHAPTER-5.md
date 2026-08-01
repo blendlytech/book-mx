@@ -116,7 +116,7 @@ Then I heard her voice, drifting through the cold concrete of the cell.
 
 *I put the best spell on you, wait for it...*
 
-I'd brushed it off on that sidewalk in Vegas. Just some of her Wiccan cousin's candle-burning bullshit. I'd been so hyper-focused on her destroying my phone or my ID that I completely missed the mark. But sitting on that steel bunk—robbed, and charged with breaking into my own life—the joke bled out. She didn't curse my wallet. She cursed the ground I walked on. She told me Alaska would eat me alive, and here I was, feeding myself right into its teeth. Did she actually put a curse on me?  Nah, I thought — I put myself in the most dangerous neighborhood in Alaska. I alone walked like that thin line. I wouldn't give her the satisfaction of knowing she had anything to do with any of this.  
+I'd brushed it off on that sidewalk in Vegas. Just some of her Wiccan cousin's candle-burning bullshit. I'd been so hyper-focused on her destroying my phone or my ID that I completely missed the mark. But sitting on that steel bunk—robbed, and charged with breaking into my own life—the joke bled out. She didn't curse my wallet. She cursed the ground I walked on. She told me Alaska would eat me alive, and here I was, feeding myself right into its teeth. Did she actually put a curse on me?  Nah, I thought — I put myself in the most dangerous neighborhood in Alaska. I alone walked that thin line. I wouldn't give her the satisfaction of knowing she had anything to do with any of this.  That will be the last time I every bring that up, but it did cross my mind.  Cudos to her. 
 
 Monday and Tuesday were the two longest days of my life — and I'll let you sit with that one, given the calendar. The longest days of the year, the sun nailed to the sky and refusing to go down over the whole state, and I was spending them in a box where you couldn't tell and it wouldn't have changed a thing.
 
@@ -124,7 +124,9 @@ A two-man cell. And my cellmate — I'm not going to dress this up, he was a ser
 
 Wednesday the judge had the owner on the phone, live. The owner would be in town Saturday to come let me into the house. *Saturday.* I lost it, as much as you can lose it at a face on a screen — that's unacceptable, my whole life is in that house, I need the laptop, I need to work, there is no version of this where I sit here until Saturday. Didn't move her an inch. And then she did me one better: a protective order. I was not to go anywhere near the property without a police escort. Barred by force of law from the home I was still paying for. I'd been here before — a court order locking me out of a house I was paying for, Alisha's name on that one, a Vegas judge instead of an Alaska screen. New state, new stranger holding the key, same fool on the wrong side of the door. The geographic cure, working exactly as designed.
 
-*Fuck my life. Again.*
+*Fuck my life. 
+
+Again.*
 
 I'd be released the next morning, they told me, or the afternoon. And I lay there and thought: released to *what?* No money. No debit card — that one was already out in the wild, bleeding down to zero. No ID, and no way on earth to replace an ID with no ID, that perfect little snake of a loop. No way to so much as prove who I was long enough to climb into the forty-dollar Japanese pod I had already paid for — a full week of it now, paid up front, every night of it spent in a cell instead. The one roof I had left in the world, and I couldn't get under it. Meantime I had free room and board, courtesy of Alaska's finest establishment. The jail, at least, didn't need an ID.
 

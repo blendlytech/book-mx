@@ -1,43 +1,71 @@
-# Chapter 23
+# Chapter 23 — The Core Wound
 
-Tijuana is not a line you just stroll across.
+Back to the *maloca*.
 
-It's one of the most heavily watched borders in all of Mexico, and I was about to try to walk into it with no passport, no luggage, and no good answer for anybody who decided to ask me a question. That last part was almost the point. A man crossing south for an honest day — to shop, to drink, to see a cheap dentist, the things Americans go down to TJ to do — doesn't haul a suitcase. He travels light and he comes home by dark. So in one narrow way the nothing I owned worked in my favor: I didn't look like a man moving to Mexico, because I had nothing left to move. But I also looked exactly like what I was, which was a man who'd been sleeping on a beach for a couple of weeks, and that look gets you stopped and questioned at the one border you least want to be stopped and questioned at. What I needed was to not look poor. I needed to look like a day-tripper. I needed to clean up.
+The third ceremony, two nights on from the second, was the one that broke the floor open.
 
-Which meant, God help me, panhandling. Again.
+I went in exhausted and scared, and I want it on the record: I did not go in there for my daughter. I went in for the drink, like we'd planned, my intention squared away and rehearsed and aimed at the bottle like a good soldier. *Show me why I drink. Take the thirst.* That was the deal I thought I was making.
 
----
+The medicine didn't care what I'd planned. It went straight past the alcohol like the alcohol wasn't worth its time. Past the Vegas scams, under the cartel roadblocks, by the petty grifts and the daily lies, down to the bedrock — the oldest, coldest thing in me, the thing I'd spent ten years and four thousand miles and an ocean of vodka refusing to look at.
 
-So I spent half a day with my hand out, asking strangers for money for food.
+It took my face in both hands and turned it toward my little girl.
 
-It's a regular sight down there, a whole quiet economy of it, and you learn the shape of it fast. Three out of every four people look at you like something they scraped off a shoe. Then, if you stay out in it long enough, you find the one soft spot in the crowd. I watched men who'd truly perfected the craft and figured a person who gave himself fully to it could clear a hundred, two hundred dollars in a day out there. It was not in me. I was ashamed every single time I opened my mouth — so ashamed I couldn't lift my eyes to the face I was asking, so I'd ask the pavement instead, the shoes, the middle distance. My line was that I was visiting and I'd just gotten robbed, and the one small mercy of it was that for once in my life the line was simply, completely true. It took me hours to scrape together enough for a bar of soap, a razor, a clean t-shirt, and something to eat.
+I had a daughter. I've told you that, in passing, the way I've trained myself to say it — *had a two-year-old once, lost her to adoption, a long time ago, up in Alaska* — fast and flat, like a line off a tax form, so the words can get clear of my mouth before what's behind them catches up. Ten years I'd kept a concrete vault around her. I'd drowned her in every bar I ever stood in.
 
-The rest I did in a gas station bathroom. A bird bath at the sink, soap and cold water, scraped my face down with the razor, worked the worst of the beach out of my jeans. And then I peeled off the shirt — the one I'd slept in on the sand for two weeks — and left it there in the bathroom trash. I'd done that once before, in a fitting room in Anchorage, shed a bled-through shirt off my back and walked out of it like a snake leaving a skin. It's the same move every time. You can't change the man, but by God you can change the shirt, and some days the shirt is the only thing you've got the power to change.
+That night the vault blew open.
 
----
+The room didn't fade; it ceased to be. The air went to a dry biting cold that belongs only to an Alaskan winter, snow crunching under boots — and there she was. Not a notion, not a blur. Vivid. Real. Two years old in a thick pink snowsuit, and I could smell the baby shampoo in her hair and see the exact color of her eyes and the small mittened hand reaching up for mine. I felt the weight of her against my chest, a phantom pressure so real my body ached around it.
 
-By the time I was clean it was coming on dinnertime, which I'd figured for my best shot and turned out to be exactly right.
+And then the math I'd dodged for a decade. She was two when she went.
 
-The border at that hour is a river. All the people who work on the American side and live on the Mexican one come flooding home, and the ones headed the other way churn against them, bodies and cars thick enough that one more clean-enough gringo walking south just dissolves into the current. Nobody asked me a thing. I walked right past an armed Mexican guard who looked at me and gave me a small nod — *go on, have a good time*, the nod said — and just like that I was through. I was back in Mexico. Illegally, on foot, with a phone, a wallet, a clean shirt, and twenty-some miles of dark between me and the only person on earth still expecting me to show up.
+The toddler in the snowsuit dissolved into the ghost of a near-teenage girl out somewhere in the world, learning algebra, fighting with her mother, discovering everything — with some other good man's last name, and not one idea who I was. Worse than gone: a stranger. If I passed her on a sidewalk tomorrow she would not look twice at the broken man going by.
 
----
+The purge that came then didn't start in the stomach. It started in the marrow. Grief — pure, decade-old grief heaving up out of me all at once, so vast and heavy it felt like it would crack my spine. I went off the mat and onto the concrete and curled around the bucket and I wept. I didn't cry; I wailed — a guttural animal sound that tore my throat raw, the way I have not wept since I was a scared boy hiding in the dark.
 
-Twenty-three miles, to be exact. The map put the walk at about eight hours.
+I wept for her. For the milestones. But mostly for the plain fact that I had not fought.
 
-Down the coast, in the dark, through the ragged edges of Tijuana — which is not a city you want to be caught drunk on the shoulder of at night, so I'd be doing the whole thing stone sober whether I liked it or not. I think about it now and it sounds insane, because it was. I'd spent my crossing money on looking the part and on a meal, and what was left wouldn't have covered a cab out of the parking lot. Looking back, the sane play was to stand out there another few hours and panhandle up bus fare or a ride. I couldn't do it. I would rather walk twenty-three miles through one of the most dangerous cities in Mexico in the pitch black than put my hand out to one more stranger for one more dollar. I want to be honest that this was not bravery. It was something closer to a death wish wearing pride's coat. Walking felt better in my head, and by then what felt better in my head was the only compass I had left — and that compass had never once pointed me anywhere good.
+The medicine stripped the central lie of my life right off the bone: that letting her go had been the kind thing, the strong thing, the selfless act of a man who knew he couldn't provide. That was a lie, and had always been a lie. I let her go because it was the same thing I have always done — I leave before the leaving can be done to me. A geographic cure of the soul. I left my own child standing in the road the exact way I have left every town and every job and every person I ever got scared of.
 
----
+And then the cruelest cut of the night, the one the medicine made dead sure I didn't miss. It pulled up America. Eleven years old, walking a grown man out past the last houses of her own town so he could find a signal on a hill. Sitting down beside me at a table of twenty people to tell me what the joke was and that it was fine. The flat hand out, the high five, and never once a hug. I had crossed a desert and braved cartel roadblocks and landed here pouring every ounce of a father's ache into a girl who wasn't mine — desperate to protect her, to be a man for her — while my own blood walked the earth a stranger to me. The medicine laid the two girls side by side in the dark, the phantom child up north and the living eleven-year-old asleep a few miles away, and made me measure the distance between my guilt and my scramble for redemption until I couldn't draw breath.
 
-So I set out, and for a long first stretch it was almost boring, which I will gladly take.
+Through the roar in my ears I heard Mateo. He'd come and knelt over me, the *mapacho* drifting down across my face, the *chacapa* rattling inches from my head like a sudden rain, and he was singing an *icaro* meant just for me — a fast, urgent thing built to drag the sorrow up out of the tissue by its black root. I lay on that concrete in my own sweat and snot and tears, gripping the bucket like the last solid thing in the universe, and I let ten years of grief break me clean in half.  To this day, it is the most unexplainable thing I have ever tried to explain.  I've done it no justice here.  Those experences changed me.  For better, for worse, I don't know.  But I'm changed.  You can't put an experience like that in a paragraph.  There was so much more, but my own mind won't let me put it on paper because it hurts too much.  Emotional pain is something I've learned you can bury.  Don't you dare bring a shovel because unearthing things you don't even think about or even know they exist in your subconscious can leave you with more questions than answers.  Questions I still had and I wasn't done, nor did I really have a choice to be done.
 
-I'd borrowed a charger at the Taco Bell where I stopped to eat before I left the states and put the phone back to full, because the phone was everything now. It was the map, the light, and the only thing in the world that knew where I was going. I followed that little blue line south. Around seven the sun went down and took the whole world with it, and that's when I stepped off the road and down into the fields running alongside it. I'd been smart enough, or paranoid enough, to buy a black shirt instead of a white one, something that wouldn't throw back a headlight, and I kept off the shoulder as much as I could and let the dark have me.
-
-It was terrifying. Pitch black, real black — coast-and-country black with no town glow to thin it — and the only light in all of creation was the weak little torch of my phone screen held out in front of my face. I had no idea what was out there. Dogs. Men. A hole in the ground. I kept walking straight into it anyway, and if you want to call that a death wish you won't get a fight from me; I'd have told you that night I genuinely did not care what found me out there, and I'd have meant every word.
-
-What found me was rocks. I tripped over stones I never saw coming, went down hard more than once, tore the knee clean out of my jeans on one of them. That was the whole of the damage. Twenty-three miles through the worst city in the country at three in the morning, and the entire bill came to a pair of jeans and a quarter of my mind. I got to Glenda's door at a quarter to four. I have never in my life been so thoroughly beaten by simple distance — wrung out, parched, hollowed by hunger. She let me in. I ate some fruit and drank glass after glass of water and lay down in the bed of our new home, such as it was, for now. And yes — of course — I smoked a joint first, because some rituals outlive everything else a man owns. Then I went out like a dropped call.
+I'm all in. Not that I really had a choice
 
 ---
 
-We woke up around noon, and that was when the next plan was going to have to get built, because the one I'd walked in on had ended at this door.
+## The Third Morning
 
-We had two weeks before the rent came due. It was the middle of September. And every well I had ever lowered a bucket into was bone dry now — my father by my own hand, the rest of them by plain shame — so there wasn't a soul left on this earth I could call and ask for money. Even though my life, in the most literal sense I had ever meant those three words, depended on finding some.
+I told her about my daughter the next day, and that was its own small strange thing, because Glenda already knew about my daughter. She'd known for three years. I'd handed her the line early on the way I hand it to everybody — had a little girl once, lost her to adoption, up in Alaska, long time ago — and she'd taken it the way everybody takes it, which is carefully, and never brought it up again. Three years. Not once.
+
+So she had the sentence. She'd never had the thing.
+
+I gave it to her out on that same patio, and I didn't get through it clean. The snowsuit. The shampoo. The weight of her on my chest that my arms still know the shape of. And then the part I'd never said to a living soul, which is that letting her go wasn't strong and it wasn't kind, it was just the same thing I've always done, one more town I left before it could get around to leaving me.
+
+Glenda listened to the whole thing with her hands flat on her knees.
+
+Then she said, she's twelve.
+
+Yeah.
+
+Same as her, she said. About.
+
+America's eleven, I said.
+
+I know how old my daughter is, she said.
+
+And then she asked me the question. She asked it plain, no cruelty in it at all, which is the only reason it went as deep as it did.
+
+When you're with America, she said. Are you with America?
+
+I didn't answer that. I have never answered that. I sat on the tile and looked at the wall and let it sit there between us and go cold, and after a while she reached over and put her hand on the back of my neck, which is a thing she almost never did, and left it there a minute, and took it back.
+
+I'm not asking to be mean, she said.
+
+I know it.
+
+I'm asking because I've got the same problem from the other side, she said. She's got me twice and she's got him nothing. And you're over here with a whole father in you and nobody to give it to.
+
+Then she looked out toward the wall and the dogs up on the roof and said it again, the thing from the day before, in about the same voice you'd use to tell a man it's going to rain.
+
+It's coming for me, she said. Tonight or the next one. It let you have your turn.

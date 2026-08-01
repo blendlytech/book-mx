@@ -1,75 +1,125 @@
-# Chapter 21
+# Chapter 21 — The Hall of Mirrors
 
-So I started selling websites.
+The second night the room felt charged, the air heavier, a static to it. The brew tasted exactly as vile. I swallowed it, curled around my bucket, and braced for the purge to come tear my ribs apart again.
 
-It's what I had. A man with a phone, a laptop, and a gift for talking a stranger into something — that man can always find a thing to sell, and websites were the thing that spring. I'd cold-walk the small businesses of Puerto Peñasco. It was a tourist town, so the majority of them had bilingual staff. I'd walk into the taco stands and the dive shops and the little tiendas that sold sunblock and cervezas to the Arizona tourists, and I'd tell them what I told everybody about everything: that they were leaving money on the table, that I could fix it, that it wouldn't cost them much. A couple hundred bucks a build. Maybe one a week if the week was kind. It wasn't good money. It wasn't even good-enough money. It was *scrape by by the skin of your teeth* money, the kind you spend before it clears, but we were doing it — rent covered, food on the table, a beer or two poured into the Yetis at night where the girl couldn't see — and after the call center died and the residual went into the ground with Zaul, *doing it* felt like a kind of winning.
+But the medicine is a trickster, and it almost never gives you what you brace for.
 
-I want to be honest that I was still telling myself the old story through all of it. The dial in my hand. The basement scrubbed clean. Two beers and stop, every night, like proof. A man drowning will call the water he's still treading *swimming*, and I called it swimming.
+The purge never came. My stomach cramped and held. Instead the room went cold, and the dark cracked open, and I wasn't in Sinaloa anymore.
 
----
+And this part is really hard to explain on paper. I was standing on the beige carpet of a Las Vegas telemarketing floor under buzzing fluorescent light, the air thick with stale coffee and cheap cologne and the metal tang of desperation, cubicles running out to infinity. And I was pitching. I could hear my own voice going out across that endless room and it didn't sound like me — it sounded slick, greased, scrubbed of anything human. The voice of the hustle. The armor I'd spent forty years welding on to charm and con my way clear of every consequence I ever earned. I watched myself spin lies to faceless marks down the line, watched the easy charisma of it, the thing that had fed me and funded the drinking for decades.
 
-Then in April her mother came up to see us.
+The medicine wasn't showing me monsters. It was showing me myself, with the ego stripped off the lens. Every lie on a loop. Every manipulation, every half-truth, every excuse I'd ever built for leaving, running, walking out on people the second it got hard. It peeled off the story I'd wrapped around my own life — the gritty survivor, the tragic outlaw — and laid bare the machinery underneath: a coward wrapped in charm, a man who used words to keep every living soul at a safe, untouchable distance.
 
-It's a three-hour run from Mexicali to Peñasco, straight across the top of the Gulf, and Rose made it the way Rose made everything — alone, no fuss, a woman who'd done eight years in an Arizona federal prison and gotten deported the day she walked out and didn't have a soft edge left anywhere on her. She stayed half a day. Sat with her daughter and her granddaughter, ate something, looked America over the way grandmothers do to make sure the kid was being kept right. And then, because she didn't like to drive that road in the dark, she pointed the car back north before the afternoon was gone.
+I tried to look away. You can't. The visions are on the inside of your skull. The floor folded under, the lights snapped off, and the dead hum went quiet into the heavy stillness of a suburban afternoon.  It felt like three lifetimes had passed.  I didn't ask for any of this and had no way of explaining why I was where I was.  But the medicine wasn't done.  It didn't have any mercy on me.  I thought I could handle anything.  That was my first mistake.  I always thought I could handle anything.  And then I learned, the hard way, that I couldn't.
 
-She was coming around a curve somewhere out in that empty country when the sun caught her. You know that stretch of late light where the whole windshield goes to white and the road just *vanishes* — and she was already in the turn, already committed, and by the time the world came back there wasn't any road under her. The car went off and found a tree.
+And then I was five years old.  This one absoluetly killed me.  It took me hours to get over.  I sobbed for hours.  To this day I have no idea how it's even possible, how the medicine got me back in time to see it.  Maybe it was a trauma vision.  Maybe it was a premonition.  I don't know.  But I was there.  I saw it.  And it's burned into my mind forever.  
 
-It punctured her lung. Broke both her legs and an arm. When the call came through it came in the shape all the worst calls come in — not the details, just the weight of it, Glenda's face going to a color I'd never seen on her — and for a stretch of hours nobody could tell us whether the woman was going to live. The woman who'd looked me dead in the eye and asked me to keep her daughter sober. Broken to pieces on the side of a road she'd driven a thousand times, because the sun came around a curve at the wrong second.
+I was in the driveway behind my childhood house, and beside me was my cousin David. My mother's brother Dudley had exactly one boy. Just the one. And there he stood, five years old, looking up at the heavy wooden panels of the garage door. The medicine didn't only show me the memory — it put me back in the small body I'd had then, the hot pavement coming up through my sneakers, that dumb innocent pride swelling in my chest as I went to show him the magic of the thing. *Look what the button does.*
 
----
+I didn't mean to kill him. We were five. But the door came down, and David did not get out from under it.  I wasn't there when it happened for real.  In real life, I was somewhere else when it happened.  But in the vision, I was there.  And it was my fault.  I pressed the button.  
 
-We moved to Mexicali.
+The medicine made me stand there and watch the afternoon that tore two families clean in half. Made me look at my uncle Dudley — a man whose only son got crushed out of the world on a nothing Tuesday — while my father, standing right there in the same wreckage, got to keep his boy. They lost theirs. We kept ours.  My father in all his rage tore that garage door down with his own two hands.  My mother was never the same.  I never spoke of it again sober.
 
-There wasn't a conversation about it, not really. You don't sit your family down and weigh the options when Rose is in a hospital bed with a tube in her chest. You pack the car. We folded up the little Peñasco life — the beach, America's school, the scrape-by website hustle, the closest thing to peace I'd had since I was a boy — and we hauled it three hours inland to Rose's house, and we moved in to take care of her.
+Then the driveway was gone and I was in a hall of mirrors, my own face in every one of them, and the guilt wasn't suffocating, it was *total* — forty years of survivor's guilt that had been rotting in my cellar, and the cold arithmetic of it: *I lived. The universe took David and spared me.* And what had I done with the life I got to keep? Turned it into a playground of liquor and dope and cheap Vegas cons. Taken the breath David never got to take and spent it lying to strangers on a phone. I sat in the dark of that *maloca* so deeply, bodily ashamed to be alive, sick with sorrow for my uncle and my family and the ghost of a five-year-old who'd traded places with a fraud.
 
-We were there about four months.
-
-And here is the thing I've turned over a hundred times since. Every other move in this whole book had been *mine* — my warrant, my next angle, my geographic cure, me running from the leaving before the leaving could be done to me. This one wasn't. For the first time in my adult life I picked a family up and carried it somewhere not to save my own skin but to go wipe a broken woman's chin and help her to the toilet and sit with her through the long bright Mexicali afternoons while she healed. Glenda did the real work of it, the daughter's work, the changing and the nursing. I did the rest. And the whole time I was sleeping under the roof of the one person on earth who'd ever asked me for a single thing — *keep her sober* — and drinking my two-beers-and-stop out of a steel cup in her kitchen so her granddaughter wouldn't see. A man can be doing a good and decent thing with his hands and failing somebody quietly the whole time he does it. I was. I'd tell you I didn't see it that way then, but I think I did. I think I always did. I just had the dial-lie loud enough to drink over.
+Four hours in that grinder. When Mateo finally lit the candles I was hyperventilating, soaked, clawing at the foam — and I hadn't brought up a drop. The medicine had found the bedrock of my shame and started taking me apart, piece by piece.
 
 ---
 
-It was in that house, those four months, that I finally built the thing.
+## The Second Morning
 
-I have to back up to tell it right, because the building of it goes back years. I'd been messing with AI since the garage in Michigan, since 2022, since back when Glenda used to roll her eyes at a new world-changing idea every single month and watch me drop it by the next. I genuinely had been coding apps with the models before *coding apps with the models* was a thing anyone had a cute name for — and it was ugly work. I'd sit there in the OpenAI Playground describing what I wanted in plain English, getting back a slab of code, pasting it into my editor where Copilot and Tabnine would autocomplete the wiring, and if the thing ran, I kept it. I'd learned some real code along the way. Not enough. Never enough to stand up a whole functioning B2B application by myself, not even close.
+It took most of the next day to get my feet back under me, and even then they weren't all the way under. We sat out on the tile with our backs against the guest room wall where the shade held till noon, two plates of white rice going cold between us, the party already warming up on the other side of the door.
 
-Then vibe coding came around, the way it came around for everybody all at once that year, and the tools got good enough to close the gap my own skull couldn't. And I built a real one. Start to finish. Actually finished the damn thing, which if you knew me you'd understand is the rarest sentence in this book.
+She asked me what I got. And I didn't tell her about the Vegas floor first, the way I've told it to you. I went straight to the driveway, because it was the only thing in me that had any room left around it.
 
-It was called Brewmetrics, and the idea was genuinely good. I'll die on that hill.
+I said his name out loud, which by my own count I had done exactly twice in about thirty-five years. Once drunk at two in the morning to two women who deserved a great deal better than my confession, and once to my sister Carrie, who answered it with something I wasn't man enough to hear. Both of those have their own story and I'll get to them. Sober, to a person sitting in front of me, this was the first time.
 
-A web platform for craft breweries. It gave them a backend to manage their recipes and their batches, and every batch spat out its own unique QR code that the brewery could print directly onto a coaster. A patron picks up their pint, scans the coaster, and gets pulled into the whole thing — the story behind that beer, the grain bill, the hop profile, why the brewmaster made the calls he made. Then it walked them through a guided tasting. Taught a regular drinker how to evaluate a beer like a professional. Asked them structured questions about the flavor, the mouthfeel, the aroma, and explained why each question mattered to the man who'd brewed it. And then it took all those answers, from every patron, and compiled and scored and published them — so for the first time a brewery had real, public, per-batch consumer data on every single thing they poured.
+David, I said. My cousin David.
 
-The breweries lost their minds over it. I signed up forty-three of them at forty-nine bucks a month in the first month, and I hadn't even launched yet. I made the marketing videos with AI, and I'll tell you they were *good* — slick, hungry, the kind of thing that makes a brewmaster feel seen. Forty-three accounts. Recurring. Pre-launch.
+She didn't say anything. She waited, which is not a thing most people know how to do.
 
-I thought I'd made it. God help me, I thought it again. Same exact thought I'd had on that beach about Zaul's machine right before the man walked off the edge of the earth and took it with him. *I've built a thing that lasts.* You'd think a man learns. You'd think.
+So I told her. The garage door. The button. Five years old. Two families cut in half on a Tuesday afternoon, and how the medicine had put me back in that little body and made me stand there and press it, and how the thing I could not get out from under was not the door, it was the arithmetic. They lost theirs. We kept ours. And what I'd done with the one they let me keep.
 
----
+You weren't even there, she said.
 
-Here's the part I don't love saying out loud.
+I know.
 
-My whole workflow was what they'd now politely call vibe coding, just uglier and lonelier — describe what I wanted to the model, take the block of code it handed back, paste it in, let the autocomplete finish the sentence, and if it ran clean I shipped it. I did not deeply understand half of what was being generated. I want to be plain about that. It worked. The tests passed. The features did the thing they were supposed to do when I clicked the buttons. And that was good enough for me, because it had always been good enough for me — *looks right, runs clean, ship it* is not just how I built that app. It is how I built every single thing I have ever built, including the man typing this.
+You were somewhere else. Your mom told you after.
 
-Then came day three after launch.
+I know that, I said. I know it the way you know the sun's coming up. It didn't have one thing to do with what I was standing in last night.
 
-One of my breweries — a popular taproom up in Arizona — decided to throw a launch party for the app. Printed the QR coasters, hyped the whole thing on their socials, packed the house wall to wall. I found out it was happening when my phone started buzzing on the kitchen counter in Rose's house.
+She turned her rice over with the fork and didn't eat any of it.
 
-Not with congratulations. With error alerts.
+Then she said, what else.
 
-Too many people scanning too many codes at the same second. The app buckled almost the instant the crowd hit it. Submissions started timing out. The database started choking. And then it just — went down. All the way down. Not for that one brewery. For all forty-three of them at once.
+I told her about the floor then. The cubicles running out to nowhere, the fluorescent buzz, my own voice going out over the top of it all, greased, scrubbed of anything human. The pitch. I told her the medicine had held it up in front of me for what felt like an hour and made me listen to it.
 
-I spent the next six hours in a full-body panic trying to drag it back online, and that's where the real horror started, because the real horror wasn't the outage. It was what I saw when I finally went into the code to find the wound. Code the model had generated. Code the autocomplete had finished. Code I had accepted and shipped because it looked right and ran clean — and reading back through it at three in the morning in my girlfriend's mother's house, I understood the rot went so much deeper than a traffic spike.
+And she said, I know that voice.
 
-The authorization logic was held together with duct tape. The user sessions were barely implemented. The cloud storage I'd essentially hardcoded for the little volume I'd tested with, never once thinking about what happens when two hundred drunk people at a taproom all start submitting tasting notes at the same time while arguing about whether a hazy IPA has *notes of citrus*. And the security — I don't even want to put this in a book — the thing was so wide open that anybody with a browser console and ten minutes of curiosity could've walked straight into the brewery data, the customer submissions, all of it. Front door off the hinges. Nothing underneath.
+I looked over at her.
 
-I didn't have a crashed app. I had a liability.
+I know that voice, she said. I was on the other end of it for three years.
 
-I spent the next week writing the most humbling emails of my life to forty-three brewery owners who had handed me their money and their customers' information on the strength of a slick video and a smooth-talking gringo, and trusted that there was something solid behind it. There wasn't. There was a beautiful front end and a hollow behind it, and the first real weight that leaned on it went straight through.
+Neither of us said anything for a while after that. That's the thing about doing this with somebody who has actually met you. There's no place to set the story down where they can't reach it.
 
----
+So then I asked her. What about you. What'd you get, the first two.
 
-I've thought a lot, since, about why that one stuck the knife in deeper than losing the call center did. Zaul vanishing was a thing that happened *to* me — a man disappeared, the machine died, the wheels came off the way wheels do. But Brewmetrics I built with my own hands. And when I finally sat in the wreck of it and looked at what I'd actually made — the gorgeous skin over the nothing, the thing that worked perfectly right up until something real asked something real of it — I wasn't looking at an app anymore.
+Nothing, she said. Just sick.
 
-The model writes code the way a first-year architecture student designs a building. The rendering is beautiful. The light comes through the windows just so. You just can't live in it yet, because nobody's drawn the part that holds the roof up, and you don't find that out until the day it's full of people.
+Both nights?
 
-That was the app. It was also, every word of it, me. A beautiful rendering with no idea what was holding it up. *Looks right, runs clean, ship it.* My sobriety was vibe-coded. My whole *I've got it beat* was a front end over a basement I'd never once gone down into. And every few months something real would lean on it — a man vanishing, a mother through a windshield, a launch party, a curve full of sun — and it would go straight to the floor, all forty-three of me at once, and I would sit in the wreckage at three in the morning genuinely shocked, every time, that the thing I'd never built right hadn't held.
+Just sick, she said, and got up to go inside, and then didn't. She stood there with the plate in her hand looking out at the wall.
 
-We were still in Mexicali when the dust of it settled. Rose was mending. The websites were dead, the app was dead, the residual was long dead. And I did the only thing the man I still was knew how to do with a fresh pile of ruin — I started looking for the next thing to ship, grinning, certain, the dial right there in my hand where it had always been, dead wrong about absolutely everything, and pointed, though I couldn't have told you it yet, straight back to the states.
+Here's the thing about Glenda. She'd been sitting three feet from me on that patio through the whole purgatory after the first ceremony, gray-faced and quiet, and I'd read the quiet as wrung out. It wasn't. She'd had a thing in her hands since night one and she'd carried it a day and a half without setting it down where I could see it.
+
+She sat back down.
+
+The first night was just the body, she said. Same as you. I threw up until there wasn't anything left and then I threw up some more. That's all it was. But at the end, when everybody went quiet and he was still singing — I heard a door open.
+
+A door.
+
+In the room, she said. Behind me. And I know there's no door behind me, I know that mat's against a concrete wall, I helped carry the mats. But I heard it open. I sat up and looked and there's nothing there, just the dark, and I lay back down and I told myself it's the medicine, it's a room full of sick people, it's nothing.
+
+And the second night?
+
+She took a long time with that one.
+
+The second night it wasn't a door, she said. It was keys.
+
+Keys.
+
+Him coming in, she said. That's the sound. He'd drop his keys on the table by the door. And you'd know — before he said one word, before you ever saw his face, you'd know from the keys what kind of night it was going to be. Three years I lived by that sound. I could tell you what was coming from across the apartment.
+
+I didn't hear a thing, I said.
+
+You were gone, she said. You were on your telemarketing floor. I was right there.
+
+She said it came up out of the dark and stood over her mat and she wouldn't look at it. She said the medicine kept putting the hallway in front of her — that hallway, that light, that door — and she kept turning her face away from it like a kid at a scary part, and when it wouldn't quit she got up on her hands and knees and made herself throw up on purpose. Stuck it out. Forced the purge to get out of the vision. She'd found a trapdoor and she took it, and she lay there afterward shaking with her face in the plastic, and it backed off.
+
+Why didn't you tell me, I said.
+
+She gave me a look I've thought about ever since.
+
+Because you were on the floor about a garage door, she said. And because if I say it out loud out here, it's out here.
+
+Then she said the truest thing either of us said in those two weeks.
+
+I didn't pay that man to put me back in that apartment. I came down here to stop drinking.
+
+And I said, me too.
+
+Yeah, she said. Well.
+
+She sat there a minute picking at the rice she wasn't going to eat.
+
+It's not done, she said. That's what I keep — I know how this sounds. It's not done with me. It's just standing there. It's waiting for me to get tired enough to quit fighting it.
+
+Then don't go tonight, I said. We'll sit this one out. We'll go back in Thursday.
+
+She almost laughed at that. That flat one-note thing she does through her nose when a man says something stupid with his whole chest.
+
+Sit it out, she said. And then what. Do it all over? Do the week again? Not eat again? She looked at me. I've already been in there twice. Quitting now just means I got sick for nothing.
+
+That was our whole conversation about it. Two people running on rice and water, both of us worn down past the place where you have any sense, deciding to keep walking into the room. She'd told me a man was standing over her mat in the dark and I'd said one weak sentence about staying home, and then we washed the plates and lay down in the heat and waited for the sun to go so we could go get poisoned again.
+
+I have thought about that morning more than any other morning of those two weeks. Because she called it. Three days early, sitting on the tile with a plate of cold rice, she told me exactly what was coming for her and I heard it and I did not do one useful thing about it.

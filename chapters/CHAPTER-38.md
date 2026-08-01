@@ -1,29 +1,41 @@
 # Chapter 38
 
-It was another two weeks before Omar surfaced.
+Another month went in the books, and they finally got the motor on the feed cart running again. I never got the keys.  The feed would be delivered now by someone else while I continued feeding and mucking the stalls by hand — and here's the strange thing I have to tell you, because it's true and because nothing about that mountain makes sense unless I tell you the true parts: I'd come to like it.
 
-I'd about given up on him coming at all — figured I was just another body on a bunk to him now, another strung-out story he'd heard a thousand versions of. Then on a Wednesday a staffer told me Omar wanted me in his office, and I walked over there rehearsing my pitch about the apartment, about a few weeks to get on my feet, about how I was going to make it right.
+I looked forward to it. The barn was the one corner of that whole operation that had nothing to do with my capture. Out there I wasn't the gringo who sold the dope and ate the beatings. I was just a man feeding animals, making something's life a little more livable, and there's a purpose in that a person can hold onto when he's got nothing else to hold. The horses knew me. I'd pet their noses and they'd lean into it.
 
-I opened the door and damn near fell the fuck over.
+And Clayita loved the barn as much as I did. We'd play out there. I'd tie a piece of straw onto a length of baling wire and drag it across the dirt and she'd go tearing after it like it was the most important thing in the world. She'd jump up onto my shoulder and get as close as she dared to the horses while I worked their noses, watching. She kept her distance from the pigs — smart cat — and she'd chase the chickens in pointless happy circles. She was a joy to watch. She was all I had, and the barn was where I got to just watch her be a cat instead of a prisoner's only friend.
 
-Glenda was sitting in a chair directly across from him.
+---
 
-Glenda. In a chair. Breathing. Whole. Looking right at me.
+There was a man came around twice a week named Eric.
 
-She came up out of that seat and we crashed into each other and I cried like a baby — again, the second time in a month I'd wept in this building, and both times it was her doing it to me. I had her in my arms and my brain could not make the pieces fit. I'd buried this woman. I'd grieved her in a ditch in the desert with men pissing ten feet from my head. I'd stood in front of an empty call center and laid her in the ground in my mind and made my peace with it. And here she was, solid and warm and crying into my neck, and not a single thing in my head knew what to do with that.
+He bought weed off me, regular as clockwork, and he spoke English, and on a mountain where I couldn't follow a word being said around me that was no small thing. He'd been deported recently — for, you guessed it, a DUI. I didn't say it out loud to him, but it landed close to home. There was a warrant with my own name on it back in Ohio for the exact same thing, and the only daylight between Eric's situation and mine was which side of a line each of us had gotten caught on.
 
-You're *dead,* I said into her hair, half laughing, half not, because I didn't have any better word for what I was looking at. Where did you go? How — what happened? How did you get out?
+He was a nice guy. I didn't tell him at first that I was being held up there against my will — I let him believe what was easiest, that I'd come down with my girl and we'd just gotten caught up in all this shit somehow, the way people do. He didn't ask a lot of questions about it, and I was grateful for that. Mostly we talked about the States. What we missed. The food, the freeways, the dumb ordinary stuff you don't know you love until it's a border and a lifetime away.
 
-The questions came out of me in a pile, tripping over each other, none of them finishing. She just grabbed me tighter and said the only thing she said for a while.
+Then one day he asked me what I made of us maybe going to war with Iran.
 
-*I'm sorry. I'm so sorry.*
+I told him I didn't know the first thing about it.
 
-And right there, fast as the joy had come, something else came up behind it — because *sorry* is a word you say when you did a thing, and a dead woman doesn't do a thing to be sorry for.
+He looked at me kind of shocked. *Oh — you don't watch the news?*
 
-What the fuck, I said, and I pulled back to look at her. You just *left* me up there? You were here this whole time? Your mom, your sister — I reached out to them, more than once, and they told me they didn't know where you were. Nobody knew where you were. I thought you were *dead,* Glenda. I walked three days through the desert thinking you were in the ground. I grieved you. Do you understand that? And — Christ — did you know Zaul's here? He's *here,* he's been here the whole —
+I told him I didn't watch anything. No news, no internet, nothing. And saying it out loud like that, flat, to a man who'd just walked up the hill from a world that still had televisions in it, I heard for a second exactly how far outside of everything I'd fallen. There was a whole planet out there carrying on with its wars and its headlines, and I had no more access to it than one of the chickens.
 
-*Sit down, baby.*
+---
 
-She took both my hands and pulled me down into the chair beside her, and she looked at me with those eyes I'd buried and never thought I'd see open again.
+Now, by then, they were letting Glenda use the laptop.
 
-*Let me explain what happened.*
+She could get on the internet, long as Omar was standing over her shoulder watching every move. No Facebook. No email. Those doors stayed locked. She could surf the web a little, check the news, and that was about the size of it. Omar would log her in with the password and then log her back out the second she was done. That was the rule.
+
+But Omar was getting lazy. After a while he stopped taking it back and just let her hang onto the thing — figuring, I'm sure, that a laptop with no internet password was a dead brick, no good to anybody. And he wasn't wrong about that. It was useless. Glenda convinced him she wanted to use it to journal offline. Some kind of self therapy.  I asked for the same thing and I was told no. They handed me a pen and a piece of cardboard instead and called it even.
+
+But the laptop started living with us. It sat on top of the mini fridge.
+
+I don't think I ever mentioned we had a mini fridge. We did. What for, I couldn't tell you — we had nothing on God's earth to put in it, so it stayed unplugged in the corner, a little white box doing nothing but holding up a laptop. And that's all the laptop was doing too, far as Omar knew. Nothing. Sitting there dead on a dead fridge.
+
+Except it wasn't dead. Not all the way.
+
+Omar leaving that machine in our hands was a bigger deal than he ever knew — bigger than I knew yet myself. Because that laptop, sitting quiet on that empty fridge, was going to be the thread that finally ran back down off the mountain and touched the outside world.
+
+It was going to take Eric to do it. But it started right there, with a lazy man and a brick he thought was worthless.

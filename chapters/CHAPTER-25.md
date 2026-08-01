@@ -1,205 +1,123 @@
-# Chapter 25
+# Chapter 25 — Eleanor
 
-The first two days up there were quiet, and I want to be careful how I say that, because quiet on that mountain was not the same animal as peace. It was the quiet of a room you've been locked in before you've found the door. Day one and day two, nothing happened. Nobody came for us. Nobody asked us for anything. We slept in the bed and ran the air fryer to make beans and rice.  It's what was given to us. And we sat in the black-glass dark of that bus and started, slowly, to get our arms around exactly what kind of thing we had driven ourselves into.
+There's a sound I've never been able to get out of my head, and it isn't the garage door.
 
-We hadn't started helping with the selling yet. That was coming — I knew it was coming the way you know weather is coming, a pressure in the air before there's a cloud in the sky — but it hadn't come. So I did the only thing I have ever known how to do when the ground is going out from under me. I built something.
+It's a car stopping. Not a wreck. Just somebody standing on the brakes in the middle of a residential street where nobody ever has to — that long flat skid on hot asphalt, and the little chirp at the tail end of it, and the way the whole body of the car rocks forward and settles back and sits there.
 
-Day two I spent on the laptop. I set up the whole thing — websites, SEO, a little agency I was going to run for small businesses back in the States, the same hustle I'd talked myself into on the way down from San Diego. I built my own site to sell it all off of. I still had a few credits left in my Porkbun account, enough to buy a domain, and that domain became the plan. A real plan, with a real name you could type into a browser. It would have made you proud if you didn't know where I was sitting when I made it.
-
-But here is the truth underneath the plan, the part I understood even as I was registering the domain: I had to show them something. I had to be able to turn that screen around and point at it and say *look, this is what I'm doing, this is going to make money.* Because the other option, the one waiting on the far side of a useless laptop, was getting marched out to the side of the bus to sell drugs in the dirt for half a day like everybody else up there. The website wasn't a business. The website was a stay of execution.
+That's my grandmother arriving.
 
 ---
 
-Then the boss showed up.
+Let me put the day down first, because I've told you about the driveway and I've told you what the medicine did with it, but I have never told you what happened after, and after is where Eleanor comes in.
 
-I'd put him at mid-forties, and he was dressed to the nines, dressed like the rest of that mountain didn't exist. A cowboy hat. A belt buckle crusted with rhinestones. A pressed dress shirt. And the boots — snakeskin, the kind that cost thousands of dollars, polished up so bright you could find your own reflection down in the toe of them. Everything about him said money in a place where nobody else had any. He looked like the answer to a question none of the rest of us were allowed to ask.
+They put me in a car and they took me to her.
 
-Omar stepped up into the bus. Glenda was still in bed. The first morning, when Omar had poked his head in, it had been to bring us out to a breakfast we ate at a picnic table — eggs scrambled up with hotdogs and peppers and onions, a stack of tortillas on the side. It wasn't bad. I'll say that plainly because it was the last decent thing that happened to me up there for a long time, and it deserves to be on the record. It wasn't bad.
+That's the whole arrangement of my childhood in one sentence. Five years old, two families coming apart in a single afternoon, my uncle Dudley with no son anymore, my father standing in the same wreckage still holding his, my mother already starting the long change she never came back from — and what the adults did with the boy was hand him off to the one house that would absorb him without asking anything.
 
-This was not a call for breakfast.
-
-He spoke in Spanish, and Glenda relayed it from the bed, flat: he wants us outside. And God help me, I thought *breakfast.* I actually thought it. That's how a man's mind works when it is trying with everything it has not to know what it already knows.
-
-Omar had set me up with some clothes — too short and too wide for me both at once, but clean, and I was grateful for clean. I had on a pair of black sweatpants I'd rolled up over my knees so you couldn't tell how short they were for me. I wore a kid's high school band t-shirt, in Spanish, off some heavy kid by the cut of it. So picture that. A forty-something American man steps out of a gutted bus in the Mexican mountains in a fat teenager's band shirt and rolled-up sweats to meet the people who own him, and the thing he is feeling, the loudest thing, is embarrassed. Embarrassed to be seen like that by my new neighbors. The mind protects what it can, I guess, and that morning what it could still afford to protect was my vanity, which should have been lost at that point anyways.
-
-I stepped down and got my first real look at him, and at his crew. Every one of them had a firearm — on the hip, or shoved down in the waistband, the way men carry a gun when carrying it is the least interesting thing about them. Three of his crew. The boss. And a kid, fifteen, who I'd learn was his son and who spoke English and was there to do the translating.
+Her house. My father's mother. That's where I got sent and that's where I got kept, and that is the beginning of a pattern I have not managed to break in forty-some years: when the thing gets bad enough, somebody puts me in a vehicle and takes me somewhere else. I've been running that play my entire life. I didn't invent it. It was done *to* me first, kindly, by people with nothing better available, and I have been doing it to myself ever since.
 
 ---
 
-Omar pointed at a couple of lawn chairs that had been unfolded and set out in front of the bus. He said it first in Spanish and then in his broken English, looking right at me. *Sit.*
+But before they took me anywhere, everybody was outside.
 
-I figured, all right. This must be orientation. And it was. Something like that.
+That's the picture I've got of that day and it's the only one that ever comes back whole. Not the driveway — I wasn't there when it happened, I've said that and I'll keep saying it because it's true and because the medicine lied to me about it and I don't intend to help it. What I've got is the after. Every soul in the family and half the neighborhood standing out in the open in the middle of a weekday. Nobody doing anything. Nobody working, nobody going anywhere, no reason for any of them to be out there. Just standing on the grass being outside, which is what a street does when the worst thing has happened on it and none of them know where to put their hands.
 
-The boss started talking, fast, all in Spanish, and I couldn't follow a word of it, so I did what I'd been doing for a year by then — I watched Glenda's face to read the temperature. She was sitting right next to me and she was stone. Nothing moving. That told me more than the words would have. Then she turned and put it in English for me, low.
+And Eleanor came around that corner and saw the crowd.
 
-He wants us to pay for the drugs. And the rent on the bus. And he wants to know how we plan to do it.
+She locked it up. Right in the middle of the road. She didn't pull to the curb and she didn't park — she just stopped the car where it was, sideways in the street, because she had come around the corner and seen thirty people standing in her son's yard on a Tuesday and she had done the arithmetic every grandmother on this earth does in about a quarter of a second.
 
-Right then Omar reached over and set the laptop in my lap. And I want to tell you what that felt like, because it felt, for one stupid warm second, like a hand on my shoulder. Like Omar was on my side. Like all I had to do was open the thing up and show the man my website and my plan and he'd nod and we'd all understand each other. That's how good the hook was. They had me thanking the man who was reeling me in.
+She thought it was me.
 
-The boss spoke again, and this time the son came over to me. Easy, almost polite about it.
+She sat in a stopped car in the middle of the road and she believed, for however long that was — ten seconds, thirty, the length of a walk across a lawn — that her grandson was dead.
 
-You have family in the States?
+And when it turned out I wasn't, she said so.
 
-Yes, I said. Of course. But we're estranged. I don't really talk to anybody.
+Out loud. That she'd thought it was me. That she was so relieved it wasn't.
 
-They can send you money? He didn't say it like a fact. He said it like a question, lifting it up at the end, leaving room.
-
-No, I said. I burned that bridge a long time ago. If I hadn't, we wouldn't be sitting here.
-
-You can try, though. No? He let that hang, and then he gave me the number. You need to come up with ten thousand today.
-
-Pesos? I asked.
-
-*Sí.* Pesos.
-
-Ten thousand pesos. About five hundred American dollars. Which, written down, is nothing — five hundred dollars is a car payment, a bad night at a casino, a number I'd thrown at worse problems than this without blinking back when I had it to throw. But I didn't have five dollars up on that mountain, let alone five hundred, and I sure as hell didn't have it *today.*
-
-There's no way today, I told the son, and I watched him carry it back to his father in Spanish. But give me a week. I just put this together — I turned the laptop a few degrees, like the screen was going to vouch for me — I built a whole business, I've got the domain, I'm starting to call on companies today. Give me a week and I'll start bringing you money.
+I don't know whether she said it that day or that week or a hundred separate times across the years after, and I've quit trying to sort it out, because it doesn't matter. It got said where I could hear it and I have never once forgotten it and I never will.
 
 ---
 
-The son came back and took the laptop off my lap and carried it to his father. The boss held it up and looked at the screen the way you'd look at something written in a language you don't read, because it was — it was all in English, every word of it. He studied it a second. Then he handed it back to the kid.
+Now I want you to sit in that with me, because I've been sitting in it since 1985 or whenever the hell it was.
 
-And that's when it started.
+The woman who loved me more than any human being ever has, before or since, stood in a road on the worst day this family ever had and was *glad.*
 
-He lifted one of those thousand-dollar boots and kicked me square in the chest with it. Knocked me clean over onto my back, off the lawn chair, into the dirt.
+Glad it was the other one. Glad it was Dudley's only boy and not her son's only boy. Glad the door came down on the child who wasn't hers.
 
-Nobody laughed. That's the part I can't get past, even now. Up on that mountain a man could get a dog set on him for sport and there'd be grown men howling — but not this. This was business, and business was quiet. Nobody made a sound. The first place my eyes went, flat on my back in the dirt, was to Glenda, and Glenda was looking straight ahead at nothing, no reaction on her at all, like a kicked man was just weather passing through. I was frozen. I lay there. He was talking again, Spanish, harder now, an edge under it.
+And she said it out where a five-year-old could hear it, because she was Eleanor and the whole neighborhood called her *Yell some more* and that woman never once in her life said a thing she didn't mean or held back a thing she did. She wasn't being cruel. She wasn't being anything. She was standing in a street with her heart coming back down out of her throat and she told the truth about it, and the truth was that she loved me so completely and so without one single condition on it that another family's dead child came out on the good side of her ledger.
 
-Get up, the son said.
+*They lost theirs. We kept ours.*
 
-Omar stepped over, unfolded my lawn chair, stood it back up where it had been. *Sit,* he said.
+I've written that sentence in this book already and I let you believe it was mine.
 
-I sat back down. Shaken all the way through now. Whatever I'd been telling myself for two quiet days, the boot had said the truer thing.
+It isn't. It never was. I've been carrying it since I was five years old and I did not come up with one word of it. It's hers. The whole arithmetic that runs underneath my entire life — the trade, the swap, the idea that a bill got paid by somebody else and I've been living on the credit ever since — was handed to me in the road by a woman who was only trying to say how much she loved me.
 
-The boss started in again, and the son turned to me.
+That's the thing nobody tells you about being loved that hard. It weighs something. Somebody can hand you the heaviest thing you will ever carry and be doing you a kindness at the time.
 
-You have Facebook?
-
-He was holding the laptop, eyes already down on the screen, his fingers moving — and I understood in one cold drop that he wasn't asking. He was checking. All he had to do was type the address in and my whole life would open up in front of him, because I was already logged in. Every account I had was logged in on that machine. It was the laptop I used now and then at Glenda's mom's house — I'd authenticate everything on it and work off it when my own laptop was tied up grinding through some deep task while I was building Brewmetrics. So there it all sat. Facebook. My email. All of it open, all of it me.
-
-So I didn't lie. There was no lie left to tell.
-
-Yes, I said. I have Facebook.
-
-And just like I knew he would be, he was already in it. Already into my messages, reading, his eyes tracking line to line. I could tell the exact second he hit something. My blood went to ice water.
-
-Brandy, he said. Who is Brandy. Family?
-
-Yes, I said, too fast. My sister. She already sent me money — she's not rich, it was everything she had. She won't send any more, not this soon. Just let me work and earn it. Please. We're sorry.
-
-Ask, he said. He handed the laptop back down to me and came around and stood at my shoulder to watch me do it.
-
-I told him the truth as a way of bargaining it down. Maybe two, three hundred I could ask for. Not five. She wouldn't even answer five — I've already asked her too much.
-
-The son relayed it. The boss said something short.
-
-Okay, the kid said. Three hundred. You ask.
-
-I'm going to have to come up with a story she'll believe, I said. Give me one second to think.
-
-He passed that back too. The boss nodded — but nobody moved. The son stayed planted at my shoulder, reading over it. The boss and his crew fell into talking among themselves, and I had no way of knowing if it was about me or about some other piece of their day, whether I was the subject or just a chore halfway done. Glenda sat there silent, eyes down in the dirt.
+I have never blamed her. I want that on the page in plain words, because I know how the road scene reads and I don't want anybody making her the villain of my life. She isn't. She's the best thing in it. She was the only place I ever felt entirely safe and I would not trade one weekend of it to get that sentence back out of my head.
 
 ---
 
-I was a dead man. That's how it sat in me right then, plain as a fact you read off a sign.
+She got about six more years with me and I got the best of everything I've ever had.
 
-Because I knew Brandy. I knew there wasn't a story alive that was going to shake another three hundred dollars loose from a well I'd already run dry. And I couldn't tell her the true thing — couldn't type *I've been taken by the cartel,* because the ugly fact of it was we hadn't been taken. Not really. Not yet. We'd driven up that mountain on our own accord, on our own bad decisions, and the only reason there was even a conversation about paying it back instead of a hole in the ground was that they were generous enough to let there be one. I'd walked into this. Nobody dragged me.  Plus, the son was standing right behind me.  I couldn't possibly say, we are kidnapped, now could I.
+I've written the weekends elsewhere — the every-other-Friday, the Ponderosa, the Long John Silver's, the toy every single time, the rented game and then the cards shuffling in the kitchen where an eight-year-old could see her being alone until he came and sat down. Mario in turns, her whole upper half leaning into the jumps. Hulk Hogan on a bootleg tape with the tracking lines rolling. *I wouldn't kick him out of my bed.* All of it. I gave that to you already and I'm not going to run it twice.
 
-And then I had it.
+What I'll add here is only this. She was loud in a way that I have never once seen a woman be loud since. Not mean — loud. She'd come off that porch at a grown man across two front yards about a dog, a mailbox, a lawn mower at seven in the morning, a kid cutting the corner of her grass on a bicycle. The neighborhood named her for it and she liked the name. She was the most present human being in any room she was in, and she was never confused about what she thought, and there was not one moment in my whole childhood when I had to guess how she felt about me.
 
-It wasn't even a lie, not really. It was a true thing told out of its proper time. Nobody back home knew I'd come back into Mexico — every last one of them thought I was still in San Diego, homeless, scraping by. And the truth is I'd reached for Brandy more than once across that stretch, leaned on her and Scott for one more week of staying alive, every time on the holy promise that this was the last time. So I built it out of something that had actually happened to me, just weeks back, on a beach: robbed in my sleep, everything taken, down to nothing, and a guy with a room who'd help me out if I could just cover the rent. I had-it-all-figured-out. The kind of message that sounds like a man climbing, not a man drowning.
+Do you know what that's worth to a kid who otherwise spent every waking hour reading a room to figure out what was coming?
 
-The boy stood behind me and read every word as I typed it.
-
-This part actually happened to me, I told him. Just a few weeks ago. Maybe she sends something.
-
-I hit send.
-
-It's early, I said. She probably won't answer till later in the day.
-
-He relayed that, and the boss turned and started speaking to Glenda. The kid carried the laptop over and set it on her lap, and they went back and forth in Spanish I couldn't touch, and then he picked it up again and checked my messages — nothing yet — and handed the whole thing to Omar. More talk I couldn't follow. Then the son looked at me.
-
-They'll be back in an hour to check, he said. Keep checking.
-
-And he gave me a look I didn't expect. Almost human. A look like, for my own sake, he hoped to God she'd send it.
-
-Then they left.
+That's the whole thing. That's why the medicine reached back forty years and put me in that kitchen. In that house I did not have to work. I have worked every room I have been in since I was eleven years old — charmed it, played it, pitched it, run the angles on it, watched the door — and there is exactly one house on this earth where I never had to do a single bit of that, and it stopped existing in the middle of my sixth-grade year.
 
 ---
 
-I asked Omar if I could keep the laptop a minute.
+They came and got me out of class.
 
-Omar's English was half there at best. He'd nod like he understood you and most of the time I could tell he didn't. So I went through Glenda. Tell him I want to send messages out to these businesses, I said, in case my sister doesn't come through. It's the only chance we've got to survive this thing.
+My father was standing in the office.
 
-She relayed it, and the laptop was back on my lap.
+And here's the most honest thing I can tell you about who I already was at eleven: my first thought was that I was in trouble.
 
-He stood over my shoulder maybe five minutes while I pulled up Google Maps and started scraping websites and email addresses off it, looking exactly like a man doing the work he'd promised to do. Then somebody across the camp called out to him, and his head came up, and the two of them got to laughing and jawing back and forth like a couple of old buddies arguing over a soccer match — and right then, with his eyes off the screen, Brandy answered.
+Not *something's happened.* Not *somebody's hurt.* I came down that hallway running the tape — going through everything I had going, trying to work out which one they'd finally caught, because I always had four or five things running that a boy could get caught for and I lived every single day of my childhood one phone call away from the whole thing coming down on me. That was my baseline. Eleven years old and already living like a man with warrants.
 
-I opened it fast.
+Then he hugged me.
 
-*Mom's sending Christmas money early,* she said. *$500. Same account still good? Confirm and I'll send it right now.*
+He never hugged me. That's how I knew.
 
-Five hundred dollars. Sitting right there in front of me. And Omar already turning back my way.
-
-I deleted the message. Gone, before he took a step. And I checked the time.
-
-Thirty-five minutes until the bus.
+A car crash. She was gone. That's all there was to it and that's all there was of it.
 
 ---
 
-There was a bus that ran out of that mountain twice a day, and the first run was thirty-five minutes off. I'd seen the stop our second day there, on the only walk we'd ever taken off the property — five minutes down to a little store, and past it a town that, the once we saw it, was busy, packed with people. Glenda had asked the cashier the times the bus ran. I didn't think anything of it then. I know now she was already mapping our way out. She'd read this whole thing right from the start — she knew it was never going to end clean — while I was still up there telling myself we were fine, that I'd just cook up another plan and plans were what I did.
+I didn't understand it.
 
-Well. Now I had one.
+People expect a scene here. There isn't one. I didn't fall down and I didn't cry in that office and I don't believe I cried at the funeral either. I got in the car. It didn't take. It was information and it sat there being information and it did not connect to anything.
 
-Because even if I handed them that three hundred, I knew in my gut it bought me nothing. There'd just be another hour, another week, another knock — *you got our money?* — and me trying to squeeze sales out of websites and SEO I wasn't even feeling anymore, for a debt that grew faster than any honest dollar could chase it. The money wasn't a way out. The bus was.
+And then I sat in that house.
 
-Here's the shape of it, and I'll lay it out plain because there's no clean way to: we'd talk Omar into giving us money for a couple of beers to settle our nerves. Omar was sweet on Glenda — anybody could see it — and Glenda could talk that man into most things. We'd get the beer money off him, time it to the minute, and instead of the store we'd be on that bus to Rosarito. Get to a bank, pull the money, grab a cab, and run.
+Same house. Same kitchen. Same table, same chairs, same low yellow light that doesn't reach the corners. And I waited for her to walk in.
 
-What I didn't say out loud, even to her, was the rest of it. That once we were out, I was done. I'd put her on a bus back to Mexicali until things cooled, and I was going back to the States, and I was never crossing into Mexico again. I'd had my fill — of the mountain, of the running, of the whole life. It was my own fault I was standing in it; I never lose sight of that, my own two feet walked me up every step of that hill. But I also knew Glenda had dug this particular grave deep before I ever got down from San Diego — the weed in the purse, then selling the weed and the coke, then doing more of the coke than she ever sold. I went in blind. She went in with her eyes open. I wasn't innocent. I'll never once claim I was innocent. But I couldn't keep doing it with her.
+I mean that plainly and I'm not dressing it up. I sat at my grandmother's table after my grandmother was dead and I expected her to come through that door any minute. Any minute now. She's going to come in loud about something. It's a mistake. Somebody got it wrong, somebody said it wrong, and any second she's going to come through there and straighten the whole thing out because that is precisely the kind of thing Eleanor would come through a door and straighten out.
 
-I didn't tell her any of that. I told her the parts of the plan that mattered.
+I don't know how many times I did that. More than once. Enough that I can still feel exactly what it was like to sit in that chair looking at a door.
 
----
+She never did.
 
-I asked him myself.
+And nobody sat me down. There was no counselor and no conversation and no grief anything, not in that family, not in those years. The way it worked in our house is the way it always worked — the thing happens, the ledger closes, everybody goes in to dinner. I never said one word about it to another living person. Not to my father, not to my sisters, not to a girlfriend, not to a wife, not to a single soul in forty years.
 
-*¿Cerveza?* I said. *Por favor?* With the dumbest, friendliest, half-shit-eating grin I could put on a face.
-
-*¿Monday?* he said back, not getting it.
-
-I looked to Glenda and let her carry it the rest of the way — my nerves were shot, could he do us a kindness, a couple of beers, we'd go down and get them ourselves, I'd leave the laptop right here with him so he could watch for my sister to write back.
-
-It was a five-minute walk. We'd done it before. There was no earthly reason for Omar to think two people who'd come up that mountain willingly and owed a debt they were scared to death of would just walk off it. And the one card I had he didn't know I was holding: my sister had already answered. He had no idea the money was real. I waited to even ask until we were maybe fifteen minutes out from the bus — it all had to land in the right order, and every single piece of it hung on Omar saying yes.
-
-It was a wild risk and I knew it. I had no idea how those buses even worked. Were they run by the cartel? I'd have bet on it. But we were still nobodies up there, still new, still unknown — and that was the only thing we had going for us.
-
-Omar said yes. Didn't think twice about it.
-
-He was a drunk and a junkie and, near as I could tell in the short time I'd had to watch him, not a smart man. A low rung on that ladder, a guy who didn't get much respect from anybody and seemed to know it. Easy to move. And this once, God help him, I moved him.
-
-We were far enough down the path and out of earshot before I dropped the whole of it on Glenda. She didn't blink. She was already in. Take the bus, run to the bank, pull the money, find a cab, get gone as fast as a cab can go.
-
-Five minutes to departure.
+Not until a man I couldn't speak one word to sang over me in a concrete room in Sinaloa, and the door came off the cellar, and my grandmother walked into that kitchen the way I'd been waiting for her to since I was eleven years old.
 
 ---
 
-We came up on the store and the bus was already sitting there.
+She said one hard thing to me in her whole life.
 
-Glenda took the beer money straight past the cooler and over to the bus — fifty pesos a head, which left us exactly twenty to our name — and we stepped up into a crowd of people loading on, and not one of them looked at us twice. We dropped into a seat in the back. Slouched down low. And then we waited for it: for the door to fill up with cartel, for a hand to close on my collar and drag us back up that hill.
+She caught me cheating at cards at that table and she told me there was one thing in this world she could not stand and that was a cheater, and I have never in my life felt smaller than I did in that chair.
 
-I couldn't let my head go there. If I let it go there I was going to come apart.
+Then she died before I could be anything else in front of her.
 
-Lay your head in my lap, Glenda said. Act like you're sleeping.
+That's the piece I can't put down. It isn't the crash and it isn't the road and it isn't even the relief. It's that the last full accounting that woman ever took of me had *cheat* in it, and the ledger closed, and I have spent thirty-five years running exactly the kind of life that would prove her right. Telemarketing floors. Marks on a phone. A dead man's name on a lead sheet. Cut vodka. A steel cup with a beer in it so an eleven-year-old girl would think it was coffee. Every single one of those is that boy at that card table, still palming one, still hoping.
 
-So I did. I was the one who stood out — the tall gringo in a fat kid's band shirt — not her. She looked like exactly what everybody else on that bus was, a local riding into town to handle something. My heart was going so hard I could feel it knocking against the seat. *No way this works. Why is it taking so long. Why isn't this bus moving.*
+I'd give about anything for one afternoon at that table now. Not to explain myself — I don't have an explanation, I've got a book. Just to sit down across from her and shuffle and let her see the whole thing and take the tongue-lashing I've got coming, because Eleanor was the only person who ever lived who could have given it to me straight and I'd have taken it from her and gotten up better.
 
-And then — what felt like an hour and couldn't have been three minutes — the bus moved.
+But she came around a corner in a car one afternoon and she stopped in the middle of the road because she thought it was me, and about six years later it was a car that got her instead, and that's the arithmetic. That's the whole thing. That's how it actually goes.
 
-I could breathe.
+She got glad it wasn't me, and then she was the one who went.
 
-I lay there with my eyes shut and I prayed. Not to God. Not to anybody with a name. Just out into whatever might be listening, if anything was. *Please. Let us make it to Rosarito.*
-
-It was two and a half hours of slow bus, twisting and grinding down through the mountainsides, stopping twice to let people off in the kind of country where I couldn't imagine what a soul would be doing out there. Drugs, maybe. I didn't know and I didn't care. I kept my head down in her lap the whole way and I did not lift it.
-
-And then we were in Rosarito.
+And I've been out here forty years spending a life two different people paid for.

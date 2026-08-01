@@ -1,59 +1,109 @@
-# Chapter 24
+# Chapter 24 — The Fists
 
-I didn't have a couple of days to lie around and figure it out. That kind of time is a luxury, and luxury had never been a fixture of my life. I needed a solution by yesterday.
+By the fourth night the retreat had near struck us both mute — running on a deep caloric deficit and no real sleep, the very thought of liquor turning my battered stomach over. I went in braced for another war, waiting for the medicine to haul me back into the frozen Alaskan dark or down into some new ring of hell.
 
-The trouble was that Glenda had already found one, and it was the worst one there was.
+It didn't. For me the fourth night went strange and quiet. The medicine came over me like a heavy blanket and never dug once — just pressed me flat to the mat, paralyzed, breathing shallow into the humid black.
 
-She wasn't just selling weed. She was selling coke too — and coke, it turned out, was the real engine in Rosarito. By American standards the price was a joke; by Mexican standards it was a small fortune. Five hundred pesos a gram, thirty, thirty-five dollars, each one wrapped tight in its own little baggie and burned shut with a green seal — the plastic melted closed with a lighter so there was no opening it, no pinching off a line or two and twisting it back up. If they caught you skimming, you didn't get fired. You got killed. That was the whole of the personnel policy. With the coke you carried fifteen: ten grams that belonged to the cartel and five that were yours to move or keep.
+And then it set me down in my grandmother's kitchen.
 
-She'd been doing this the entire time I was clawing my way down from San Diego, and she had not told me. And here's the part that turned my stomach to water — she wasn't selling her five. She was doing them. Doing her five, and then doing her way into the cartel's ten. By the time I understood what I'd walked twenty-three miles into, we weren't holding product. We were holding a debt.
+I want to be careful here, because this is the only good thing the medicine ever gave me and I've never known what to do with it.
 
-About three thousand pesos in the hole, to be exact. A hundred and fifty American dollars. Write it on paper and it's nothing — a decent dinner, a tank of gas. But standing in that apartment with no working phone, no laptop, no job, and not one well left to lower a bucket into, a hundred and fifty dollars owed to the cartel might as well have been a million. It was a number with teeth.
+It was the light I got first. That low yellow kitchen light over a table, the kind that doesn't reach the corners of a room, and the linoleum, and the smell of a house where somebody smoked in the sixties and seventies and the walls never entirely let it go. And under all of it, the sound. That soft riffling snap of a deck of cards being shuffled by a woman who has shuffled a hundred thousand of them.
 
-I'd love to tell you I was furious when it all came out. Furious is the clean word, the one that lets me keep a little dignity. The true word is terrified. I was scared to death, because by then I knew exactly whose money we'd put up our noses.
+My father's mother. Eleanor.
+
+The whole neighborhood called her Yell some more. That's not something I'm making pretty for a book — that was the name, said to her face, and she took it as a compliment, because Eleanor was not a woman who ever left a person guessing where she stood. She'd stand out on that porch and let a grown man have it across two front yards over a dog, a mailbox, a kid on a bike, a lawn mower running at seven in the morning. Yell some more. She earned it and she liked it.
+
+I went there every other weekend. My father's weekend. He had a life he was still out living — I've written elsewhere in this book what that cost me and I'm not going to relitigate the man here — and so the arrangement was that his weekend with his son was a weekend at his mother's house.
+
+Now here's the thing I need you to understand, and it's the whole reason the medicine reached back forty years and picked that kitchen out of everything I own.
+
+I never once felt passed off.
+
+Not one time. Not a single Friday in all those years did that eight-year-old boy stand in her doorway and understand that he had been handed down the line because somebody upstream had better things going. I didn't feel it because she didn't allow it to exist in that house. Those are the greatest weekends I can remember. All of them. I've been to Vegas on other people's money and I've stood on a mountain in Alaska and I'm telling you the truth: the best I have ever felt in this life was Friday night at my grandmother's.
+
+We went to Ponderosa. We went to Long John Silver's. And I got a toy — every time, without exception, without me asking, some little piece of plastic junk out of a bin, and forty years later I could not name you one of them and I could not forget one of them either.
+
+Then we'd go rent a video game.
+
+And this is the part the medicine held me down and made me watch, and I didn't understand why until the sun was coming up.
+
+She'd rent me the game. Then we'd get back to the house and I'd go get it going, and after a while I'd hear it start up in the kitchen — that riffle and snap. Cards. She'd be sitting at that table by herself, laying out a hand, shuffling, cutting, shuffling again, not saying one word to me. She loved cards. She loved every board game ever put in a box. And she would sit there alone in that yellow light where an eight-year-old boy could see her from the other room, shuffling and shuffling, waiting me out.
+
+That was the whole play. She never once said come here. She just made sure I could see her.
+
+And I always came. Every single time. I'd set the controller down and go sit at that table and play cards with my grandmother for two hours.
+
+I felt good about that for most of my life. That's the version I always told — my grandma loved cards, I'd go play with her. Down there on that mat the medicine took the story out of my hands and turned it around and showed me the back of it, and the back of it is this: **she had to guilt an eight-year-old into sitting with her.** A woman that big, that loud, that loved — and the only move she had for getting a child's attention was to sit alone in a kitchen where he could see her being alone.
+
+I wish I hadn't made her go that far. That's not a nice thing to find out at forty-something on a concrete floor in Mexico. She should have had to say my name once. She shouldn't have had to sit in that light and wait.
+
+But we played. God, we played. And when the cards were done she'd come in and take her turn on the Mario, and I mean her *turn* — she didn't sit on the couch behind me and watch her grandson play a video game like some sweet old woman in a commercial. She played. She was in it. She'd lean the whole top half of her body into a jump like the controller was steering her, tilting sideways when he went sideways, her shoulders coming up around her ears at a bad pit, hollering at that little man on the screen and loving every second she was alive. Then she'd die and hand it over and watch me like it mattered.
+
+She got me into wrestling. She was an absolute fanatic — Hulk Hogan, the whole circus. She had a guy in the neighborhood who got her bootleg tapes, and the way she said it was *this colored fella I know,* which is what a woman of her time and place said and thought nothing of, and I'm leaving it on the page the way it came out of her mouth. That's how I saw the first WrestleMania — a copy of a copy, tracking lines rolling up the screen, the two of us on that couch on a Saturday.
+
+And one Sunday when Ginger came to get me — my father's second wife, the woman who all but raised me, who is owed a couple of chapters of her own in this book and is going to get at least one — my grandmother said, apropos of Hulk Hogan and in front of God and everybody:
+
+I wouldn't kick him out of my bed.
+
+*Eleanor!*
+
+I was eight. I knew exactly what it meant. I remember standing there with my bag in my hand knowing precisely what my grandmother had just said about a man in yellow trunks, and I remember what I did with it, which is the same thing I did with everything: I put it away and I went out to the car. It wasn't a big deal. Nothing was ever a big deal. It's just funny now, and it wasn't funny then, and I've been doing that arithmetic wrong my entire life.
+
+And then the medicine put the last one in front of me and I understood what the whole night had been walking toward.
+
+She caught me cheating at cards.
+
+I don't know what I did. Palmed something, peeked, took one back. I was a little boy and it wasn't clever. What I remember is her face changing, and her voice coming down on me, and the exact words, near enough:
+
+There is one thing in this world I cannot stand, and that is a cheater.
+
+That's all. She didn't hit me. She didn't tell my father. She said that and she looked at me and I have never in my life been so small. I wanted the linoleum to open up. Whatever a person means when they say *I felt two inches tall* — I was two inches tall in that chair, in that light, in the one house on this earth where I had never done a single thing wrong.
+
+And I lay there on a foam mat in a concrete room in Sinaloa forty years later, forty years into a life spent on a telemarketing floor with a voice like grease, running plays on strangers, running plays on my own family, cheating every game I was ever dealt into — the daughter, the money, the borders, the woman lying three feet from me — and my grandmother came all that way to sit at a card table and tell me the one thing in this world she cannot stand.
+
+The medicine hadn't given me anything sweet at all. I'd just been too glad to see her to notice the knife going in.
+
+And there's a reason it was that house, and a reason the medicine picked that house out of a whole life to hand back to me on the one night it wasn't after my throat.
+
+That was the house they sent me to after David.
+
+There's more to that than I can get into standing here in the dark with a bucket by my head, and there's more to Eleanor than one good kitchen, and both of those have their own chapter coming. What matters on this mat is the arithmetic, and where I got it, and the fact that I did not come up with it myself.
+
+Because that woman said one hard thing to me in her entire life. She said she couldn't stand a cheater. And then she was killed in a car when I was in the sixth grade, and I never got one single day to stand in front of her and be anything other than the boy she'd caught.
+
+I've spent the rest of it proving her right. Telemarketing floors. Marks on a phone. Cut vodka in a steel cup. A woman lying three feet from me in the dark who thinks I'm holding a coffee.
+
+I got dropped off at that house every other weekend and one grown woman on this earth took a passed-along kid and made him feel like the whole point of the weekend. She died when I was eleven. And the next person in this world to look across a room and notice a man sitting there with nothing to say and no way to say it was an eleven-year-old girl in Sinaloa who wasn't even mine.
+
+That was where I was when Glenda started screaming.
 
 ---
 
-And then, because something somewhere was apparently keeping a list, my phone quit.
+Because the fourth night, it came for Glenda.
 
-Just up and died inside that first week — the one device I had left, the map and the lifeline both, gone, like the thing had been cursed. Glenda had already pawned hers for fifteen hundred pesos, and that pawn was the only reason we were eating. So there we were: two people deep in a cartel's pocket, broke and half-blind, pinning the last of everything on a laptop Glenda's sister had promised to bring or ship down so I could make a dollar the only way I had left in me.
+You can always hear the others in that room — a *maloca* is a chorus of everybody's worst buried thing coming up at once. Usually it's dry heaves and low groans. Glenda's cut through all of it like a siren. It started as fast, terrified hyperventilation a few feet to my side, then the scrape of her mat dragging on concrete as she scrambled backward from something standing right in front of her. And then she sobbed — not the grieving wail I'd let out the night before but a jagged, guttural sound of pure terror, an animal in a trap. I wanted to reach her, to tell her she was only in a concrete room in Sinaloa, that she was safe. The medicine held me pinned. All I could do was lie there and listen to the woman I loved live through a horror I couldn't see. Mateo's *chacapa* went louder and faster, his *icaros* dropping from melody into a hard rhythmic chant, throwing a net under her, trying to catch her before she went all the way down.
 
-All of it inside my first week there. One week before rent. And every single day, Omar came by.
+And I want it written down where I can't get around it: while that was happening to her, I had been forty years back in a warm kitchen with a woman who loved me, eating up every minute of it right to the end of it. Four hours of Ponderosa and Hulk Hogan and a deck of cards, and a road, and a sixth-grade hallway. The medicine gave me the single best night of my life and it gave it to me at the exact hour the woman beside me was down in the worst of hers, and it laid me out flat so I couldn't lift a hand either way. If there's a joke in this whole book, that's the one I've never gotten to the bottom of.
 
-Omar was the man who dropped the drugs off and picked the money up, the cartel's route man, the face of the whole arrangement. He'd swing through daily to see whether we'd moved the product and whether we had his money, and every day we'd lie to him — or Glenda would, in the fast Spanish I couldn't follow — *not sold yet, slow week, almost there* — and pray to a God I had no standing with that he wouldn't ask to see the product. Because the product was gone. There was nothing left to show him.
+She told me the shape of it the next morning, the two of us on the edge of the guest bed with the Sinaloa sun bleaching the sky, wrung out and hollow and gentle with each other the way you only get after surviving something unspeakable. Her eyes were near swollen shut. Her hands shook in her lap.
 
-Glenda had a full-blown coke habit by now, and I'll tell on myself too: we were drinking like the world was ending, which from where we sat it was. The cheapest liquor you ever heard of, twenty-seven pesos a liter — a little over a dollar to put the both of us flat on the floor. And every night I'd swear to her, swear on whatever was left to swear on, that we would not touch another bump. Then the drink would come up over us, and sober rules drown easy in cheap liquor, and the seal would crack on one more baggie. We'd sell a few and do one. Sell a few and do one. The hole got deeper every night we were supposedly climbing out of it, until there was no bottom left to it at all. The laptop finally arrived days before rent was due. By then it didn't matter. We were already gone. We just hadn't been told where yet.
+I told you, she said.
 
----
+You did.
 
-Omar, we decided, was going to be our salvation.
+It waited, she said. It stood there three nights and it waited until I didn't have anything left to hold the door with, and then it just walked in. There was no keys this time. It was already inside.
 
-Glenda came clean to him. Laid it out — that we'd gotten in too deep on the coke and the weed and couldn't make it right, not now, not all at once. And he wasn't angry. That should have frightened me worse than anything on earth, and it didn't: a cartel man told you'd eaten his product, and smiling about it. Because Omar had a solution. Omar always had a solution. That was the entire job, and I was too far gone to see the shape of it.
+Hers had nothing to do with a bottle either.
 
-Ditch the apartment, he said. Come live down the road. He had a place we could stay for free — free, with internet, where I could sit down with that laptop and work. Give it a month and we'd be back on our feet, and then we could move on to something better if we wanted, or stay on and pay a flat two thousand pesos a month, a hundred and twenty-five dollars, to keep the roof. He didn't say much about the place itself. Only that it was a little community right outside Rosarito. And I didn't ask the questions a sober man asks, because I had no money, a cartel debt, and a rent I couldn't cover, and a free roof with internet on it was the only door in the room.
+Hers was America's father. The medicine had dragged her back into the rooms she'd spent three years drinking to forget — the man who gave America half her blood and then gave her mother the back of his hand, over and over, in the years before Glenda found the nerve to get out from under him. It didn't show her the memory; it made her *relive* it — the weight of his fists, the suffocating helplessness of a room with a man twice her size who wanted to break her. Three years of vodka and boxed wine had packed it down, and the medicine fired every nerve of it back to life in the pitch dark.
 
-So we bit the worm. And Omar, patient as the grave, set the hook.
+And under the fists, the deeper wound: the guilt that her girl was growing up with no father at all. She'd left a monster to save her child and in the leaving had torn a hole in America's world where a man should be. That's what came up out of Glenda into a plastic bucket in the dark. Not the drink. The fists, the terror, and the long guilt of a mother raising a fatherless girl.
 
----
+She asked me what I got.
 
-The place turned out to be an hour and a half, maybe two, outside Rosarito — up off the coast and back into the mountains, down roads that stopped meaning anything the farther in we went.
+Nothing, I said. It just held me down.
 
-It was a small camp. Ten, maybe eleven mini-buses scattered across the dirt — *Calafias*, they call them down there, the old route buses — except every one of these had been stripped to the bone. Anything worth a peso torn out and sold. The windows painted over solid black. The guts pulled clean. Somebody had framed a little box in the back of each one out of a single sheet of drywall and set a toilet inside it, but there wasn't water running anywhere on that mountain. You flushed by tipping a bucket down after yourself and trusting it to go wherever it went. A full-sized bed and an air fryer. I need you to understand that was the entire inventory of our new home — the sum total of everything our eyes landed on walking in. A bed, an air fryer, a dry toilet behind a wall, and black-painted glass holding the daylight out.
+Which was a lie, and she was too wrung out to hear that it was one. I have never told her about that kitchen. I couldn't think of any way to sit on the edge of a bed across from a woman with her eyes swollen shut from reliving a man's fists and say, I spent the night eating fish and playing cards with my grandma. There wasn't a shape to put that in. So I put it where I put everything and it stayed there for years, and it's here now, and that's the only apology I've got for it.
 
-We had no idea what we were walking into. And I've asked myself a hundred times since whether we'd have turned the car around if we had, and the honest answer is I don't think it would have changed one thing. People with nothing don't get to be choosy about the cage.
-
-The internet lived in a big yellow two-story house at the center of it all, the signal bled out from there to the buses. That house had a rooftop, and on the rooftop were men with guns who walked it end to end, day and night, never not up there. We pulled one bar of it down in our bus. One bar. Not enough to run a dialer, not enough to run the work I'd told myself I'd come up here to do. So that door — the one I'd talked myself into believing was the whole point — was shut before I ever sat down in front of it.
-
-Which left the other way to pay for the roof, the way they'd had in mind for us the whole time. We'd sell. Take shifts with Omar until my impossible little internet job materialized, which every one of us knew it never would. And it wasn't only weed and coke anymore. Now it was meth.
-
-Meth was the one I had always kept on the far side of a line I never once crossed. Whatever I'd done to myself across the years — and I'd done plenty, I'd done damn near all of it — meth was out of bounds, the single drug I'd sworn off and stayed off my whole life. And now here I stood, counting it into little bags to hand to strangers in the dark. Two grams for a hundred pesos, enough, they told me, to keep a man up three or four days straight. It was our best seller by a wide margin. Everything got counted before a shift and counted after, down to the gram. Touching any of it yourself was forbidden — they'd kill you for a skimmed line, remember. But the liquor was a free-for-all, encouraged even, and there was a little corner store down by a bus stop where a bus came and went twice a day. The one thread tying that mountain to the rest of the world.
-
----
-
-We settled in the only way you settle into a thing like that, which is badly, and anyway.
-
-I told myself I would build something. Anything I could sell down a wire — I landed on websites and SEO for small businesses back in the States, work I figured I could maybe do off the laptop with a free TextNow number dialing out over that one sad bar of signal. It would drop calls. It might not work at all. But it was a plan, and having a plan has always been the one drug I can't quit, the bump I will always take.
-
-That was for tomorrow, though. Tonight was the first night, and the first night we'd drink on Omar's tab and get comfortable, get friendly, get told how good it was all going to be.
-
-I had no idea what was already coming down the line at me. None at all. I'd been to a lot of bottoms by then and called every one of them *the* bottom, and I'd been wrong every single time. But I'll say this one plainly and let it stand as the truest sentence in this whole book: what was waiting for me up on that mountain was the worst thing that has ever happened to me, or that I pray to God will ever happen to me. I cannot imagine a worse one. There were stretches up there where death would have been the kinder draw — and I knew it, and I meant it.
+We sat there in the dawn, two people who'd come down to Mexico to cure a drinking problem, and the medicine had reached into each of us, gone right past the alcohol, and pulled up our deepest failures instead — the crushed boy and the lost daughter out of me, the live wound out of her — and held them to the light and said: *This. This is what's actually down here. Not the thing you came to show me.*

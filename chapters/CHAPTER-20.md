@@ -1,75 +1,63 @@
-# Chapter 20
+# Chapter 20 — La Medicina
 
-We'd sworn to each other on the way out of Sinaloa that the second we crossed back into country where a man could drink in the daylight, we would. But there is a long gap between swearing a thing and doing it, and the gap that particular day was named Rose. It was her car and her hands on the wheel — she'd driven us the thousand miles down and she drove us the thousand back, Glenda up front, America and me in the back — and you do not drink in front of Rose. Not a drop. I'd looked that woman dead in the eye and promised her I'd keep her daughter sober, and a promise like that doesn't care that you've already broken it in private; it just means you break it where she can't see. So the thirst we'd sworn we'd feed the moment we crossed the line rode the whole way home with us instead, leashed and patient in my chest, a sixth passenger.
+What they put in front of us was older than the lie in my cup and older than the booze underneath it — older, maybe, than Sinaloa itself.
 
-We made it back to Peñasco. Rose stayed long enough to help haul the bags in, and then she turned the car around, pointed it back up toward Mexicali, and left us to our lives. And that first evening, with her taillights gone and the apartment ours again, we had a couple of beers — poured into the Yetis, naturally, the same steel cups, the same old trick, because America was home now and the girl had a hard line in her about that kind of thing, some private rule she'd drawn for herself watching grown-ups her whole short life, and I'd be damned if she'd watch me drink. A couple, in a tumbler that turns a beer into a nothing, and then we set them down.
+Ayahuasca. *La medicina.* The family knew of a *curandero* who ran ceremonies out of a concrete-and-tin compound on the dust-choked edge of town. The whole thing got arranged over my head at that long table in a language I didn't have — three or four nights of it, by my count, and it reached me the way everything reached me down there, secondhand and cut down to the bone in Glenda's English. The pitch — if a sacrament can have a pitch — was that this was the thing that finally cleaned a man out for good. That it reached down past whatever you'd been numbing, got a grip on the thing itself, and pulled it up by the root. That a man who sat with it honest could walk away from the bottle, the pipe, the needle, the whole unbearable load, and never want any of it again.
 
-And here is the part that should have scared me and didn't: it stayed small.
+Two weeks. A dieta, then five ceremonies, every two or three nights. And Glenda and I — who had just spent half a year proving to each other that we could not be trusted with a single sweating can of Tecate — signed on for the one express purpose of killing the thirst.
 
-For a few weeks after Sinaloa it just stayed small — a couple out of the Yetis in the evening, never more, and then bed like people who had somewhere to be. We still smoked our weed; that was the one neither of us ever could put all the way down, and down there nobody cared — but never in front of the girl, never where she'd see. So we drank out of the steel cups and smoked out of her sight and kept the whole business to a murmur, and for a little while there I had myself convinced all over again.
-
-You have to understand what I let myself pretend the medicine had done. Two weeks before, in that concrete room, I'd had it proven to me down to the bone that the grief was never the thing the drink stood on — that you could haul every buried horror up into the light and the wanting would still be there in the morning, patient, its own animal, asking the same thing it always asks. I came north knowing that. I'd said it out loud.
-
-And then the drinking stayed light for a few weeks, and I picked the old lie right back up like I'd never set it down.
-
-Because seeing a truth and living by it are two different countries, and I have always carried a passport to the easy one. So I built myself a new story out of the old lumber. The beach had handed me a dial — I'd been running that one since Peñasco — and now I let myself add that the medicine had gone down and scrubbed out the basement the dial sat in. Two miracles, stacked. Look at everything I'd healed; of course the drinking was light. Never mind that I had just learned, with my whole heaving body, that it does not work that way. The plain truth was that I was wrung flat from the purge and the dial-lie was still holding and that was the entire reason — but a man like me does not leave a perfectly good story lying around unused. I drank on it.
-
-And the weeks told the story right back to me. Uneventful. I don't have a single bad thing to report out of them, and that is rare enough in this book that you ought to mark it the way I have. We were happy. Plainly, quietly happy.
+That is not remotely what either of us got.
 
 ---
 
-America was the best of it.
+The Dieta
 
-That girl was doing *great.* She'd settled into the school in Peñasco like she'd been born to it, came home with names I didn't know — new friends, a whole little life of her own taking shape that had nothing to do with me or her mother or any of the wreckage we hauled around behind us. She'd light up at the dinner table telling Glenda about some other eleven-year-old's drama in a fast tangle of Spanish I couldn't follow, and Glenda would laugh, and I'd sit there at the end of the table not understanding one word and feeling, God help me, like a father. Still a high five and not a hug. But she'd started saving things up to tell me. A kid only does that for somebody she's decided to keep.
+You don't just walk in off the street and drink the brew. A full week before you ever see the inside of that compound they start taking a wire brush to your biology. No salt. No sugar. No pork. No red meat. No dairy. No caffeine. No sex. And — most terrifying of all to two people whose blood ran about eighty proof — no liquor.
 
-The money was still landing, too. That's the thing I need you to hold onto, because of where this goes. The Mexicali money — the call center inside Zaul's rehab, a floor of sober English-speakers I'd built and trained and walked away from, setting appointments for that solar company back in South Carolina — that money came in every week like it was nailed to the calendar. Never a nickel short. I'd built a machine one time in my life that ran without me standing over it, and it ran. Five grand and better a month coming in for work I'd finished months ago, while I sat on a beach and watched a kid who wasn't mine grow into somebody.
+For seven days we lived on boiled green plantains and white rice. The caffeine withdrawal split my skull, but the hunger became a living thing. The real cruelty was where we were doing it. Outside our bedroom door, the holiday roared—uncles roasting whole pigs, the smell of charred fat slipping under the door while my gut cramped. The *t-sss* of Pacifico cans cracking every few minutes ticked off our suffering like a metronome. We sat in a guest room sweating through our shirts, eating wet cardboard, pretending it was holy.
 
-I thought I'd finally done it. I thought I'd built a thing that lasts.
+America knew something was going on with us. She'd been told it was medicine, which was true enough for down there and got her exactly nowhere. Third day she came in from the store and set a cold Coke in front of me at the table, sweating in the heat, and stood there waiting, and I had to tell her no. I couldn't tell her why in any way that would land. She took the bottle back off the table and left the room insulted in the total way an eleven-year-old is insulted. Next afternoon she came back with a plate of white rice she'd cooked herself — no salt, no butter, nothing on it, plain as paper — and put it down in front of me and stood there with her arms crossed until I ate all of it.
 
----
+But we held. That was the hard part, harder than the hunger. For the first time we put the Yeti away completely — no more keeping it to a dull roar, no more one-or-two to keep the engine turning over. The dieta wanted absolute zero, and we gave it absolute zero, because we were staring down a medicine that demanded we come clean and we wanted, desperately, to come clean. We didn't cheat. And with the daily buffer gone, the drink wasn't softening anything anymore. Every nerve I owned was suddenly bare to the air. The anxiety didn't spike so much as it poured into my chest and set there like wet cement.
 
-Now I have to tell you about Zaul, and I have to tell it to you the only way it ever got told to me, which is to say with a hole in the middle of it that never got filled in.
-
-Zaul had gotten flashy. The man ran a rehab, and the call center I'd stood up inside it was printing money for everybody it touched, and somewhere in there the success had crawled up into Zaul and changed the way he carried it. Gold — heavy gold, the kind you wear to be seen wearing. A brand-new BMW that did not belong on those roads, parked outside a Mexicali rehab like a dare. I didn't see it as a warning at the time. I saw a man eating good off a good idea and I was glad for him, because his good idea was my good idea and his good money was feeding my family. A man getting loud about his money — down there, that is a particular kind of loud. I know that now. I didn't think about it once back then.
-
-And then one week the money didn't come.
-
-No warning. No bad sign the week before. The deposit just wasn't there, and the calls didn't get answered, and then the calls didn't even ring, and by the time the truth of it worked its way down the line to me on that beach it came in the flat, final shape that news takes when it's already over: Zaul was gone. Vanished. Walked out of his own life in a single night and did not come back to any of it — not the rehab, not the car, not the gold, not the phone, not one human being who knew his name.
-
-You don't ask follow-up questions about a vanished man in Mexico. You learn that fast, the way you learn not to put your hand on a hot stove twice. A flashy, cash-heavy man with new gold and a new German car does not quietly disappear in Baja for happy reasons, and everybody I could've asked already knew the only answers worth guessing — a robbery, a kidnapping, somebody who'd noticed all that shine and decided to come collect it. People said *cartel* the way you'd say *weather*, plain and without drama, a thing that simply happens in that country to men who get loud about money. Nobody said the word *dead.* Nobody had to. We all just quietly moved him into the past tense and left it there, because the alternative was to go pulling on a thread that, down there, has been known to pull back.
-
-I never saw Zaul again that whole stretch. The man I'd done the deal of my life with over a phone, the partner I'd built the machine with — I'd flown all the way to Mexico to work with him. The full circle of what he turned out to be was a long way off yet, in a place I couldn't have stood to imagine. All I had, that week on that beach, was a dead phone line and a family looking at me.
+By sundown on the seventh day — the night of the first ceremony — I was a hollowed-out shell. Starved. Worn down to nothing by the sheer weight of being dry in a house full of drinkers. My blood a cold soup of pure, unmedicated dread.
 
 ---
 
-Because the machine died with the man. Of course it did. There was no call center without Zaul to house it, no residual without the floor he ran, no five grand a month landing on the calendar ever again. The whole beautiful self-running thing I'd been so proud of building — it had never been a machine at all. It had been one man, and the man was gone, and the wheels came off all at once, the way they always do the second I let myself believe a good thing might hold.
+Ceremony One: The Meat Grinder
 
-And there I was. The sole earner of a household of three in a country I had no legal right to stand in, with no passport to get me out of it and two warrants waiting on me if I tried, holding a rent I could no longer cover and a kid who was finally, finally doing great. I'd quit the timeshare floor months back. I had no job, no income, no papers, no Spanish to speak of, and no road home that didn't run straight through a cage.
+The compound sat a mile off the paved road, down a rutted dirt track the car's suspension cursed the whole way, the dust hanging in the headlights thick as snow. A concrete wall topped with broken glass. A heavy wooden gate, pulled open by a young man who didn't speak and only waved us in.
 
-I needed to find work, and I needed to find it fast — and that is a particular flavor of fear, looking down the barrel of *fast* when every easy door is bolted to you. I'll spare you the panic of those days. You've felt the shape of it before in this book and you know how my mind runs when the floor goes: I start working angles. I start dialing.
+The *maloca* — the ceremony room — was a square concrete box under a corrugated tin roof, and inside it was an oven, the day's heat trapped up in that metal and pressing back down on us. A few candles. The cherry of the curandero's cigarette.
 
-And the first number I dialed was the one I always dial when the floor goes. Not the first one — the first one's always Niki — but Niki's well had run thin, and so I came, the way I always eventually came, to Brandy.
+His name was Mateo. A small, leathery man with eyes that looked like they'd seen the bottom of the ocean. He said something to me at the gate that first night — a good ten or fifteen seconds of it, quiet, looking right at me the whole way through. Glenda handed me back four words. *He says don't be scared.* I have wondered ever since what the rest of it was. That's how I went into all five of them: taken apart by a man I could not ask a single question of.
+
+He didn't offer a warm word. He didn't ask after our troubles or our hopes. He sat cross-legged at the head of the room smoking *mapacho* — a raw jungle tobacco that smelled like burning tires and wet earth — the smoke hanging in that dead air so thick it stung the eyes and coated the back of the throat.
+
+There were twelve of us. Twelve thin foam mats around the walls, a red plastic bucket beside each one, a roll of cheap toilet paper in every bucket. Glenda and I took ours side by side. When it was time, Mateo put out the candles, and the dark came down absolute — not the kind your eyes adjust to but a heavy, smothering black that pressed on the backs of the eyes.
+
+I heard the pouring first. Thick liquid glugging out of a two-liter Coke bottle into a wooden cup. He called us up one at a time and I crawled to him over the cold concrete until my knees found the edge of his mat. The smell hit before the rim touched my lips, and it smelled like the grave — wet dirt, rotted bark, something deep-down toxic. I held my breath, tipped my head back, and swallowed.
+
+It was the foulest thing I have ever willingly put in my body. Thick, near to oil, a sour bitter mud that coated the tongue and the throat and tasted like the bottom of the oldest tree on earth left to ferment in the sun. I got it down, handed back the cup, crawled to my mat, and waited.
+
+For forty-five minutes, nothing. Just the heat and the dark and eleven strangers breathing. I started to wonder if it was a con, if the brew was weak, if maybe I was just too broke down for it to work.
+
+Then the *icaros* began. Mateo shook a *chacapa* — a bundle of dry leaves, *shhh-shhh-shhh* — and started to sing, high and nasal and haunting, the melody sliding up and down a scale that made no sense to my ear and circled the room off the bare walls and dug straight into the middle of my head.
+
+And the medicine came up in me. It started low at the base of the spine, a hum like heavy machinery kicking on in the cellar of my body. My temperature spiked; I went slick with cold sweat; my heart doubled and slammed at my ribs. I shut my eyes and the dark was gone — jagged neon fractals breathing against the backs of my lids, folding in on themselves in time with the leaves.
+J
+Then the nausea. Not food-poisoning sick, not hangover sick — the body trying to throw out its own skeleton. I got the bucket under my face and I heaved. The medicine. The plantains. The water. And when there was nothing left, the burning acid, and when the acid was gone it kept squeezing — dry heaves until my ribs felt like green wood splitting, until the tears ran down. All around the room the same: twelve people emptying themselves into plastic buckets in the pitch black, the stink of it rising into the *mapacho* smoke, Mateo's voice climbing over the top, the leaves going faster, driving the sickness out, wringing every body in the room dry.
+
+No visions that first night. No ancestors, no healing. Just violence. The medicine didn't lay a hand on my soul; it took a wire brush to my guts and scraped me to the bone. When the sun finally came, I lay on my mat, a trembling husk, staring up at the tin — and understood, with a sick drop, that I had to do this four more times.
 
 ---
 
-I haven't told you about Brandy yet, and she's earned better than to come into this book as a checkbook, so let me do it right.
+The Days Between
 
-Brandy's my sister — one of the three — about six years up on me, and where I am every wrong thing a man can be, Brandy is the steady one. The sensible one. The one who looked at the whole roaring chaos of our family and quietly decided she'd be having none of it, thank you. She was our father's open favorite, and he never made a secret of it — *"Brandy's aces,"* he'd say, *"aces,"* and you did not talk sideways about her in his hearing, not ever, not once. She was the first of us to pull up stakes and move to Charleston, alone, knowing not a living soul there, and the rest of the family more or less followed the trail she cut — that's how the whole South Carolina side of us came to exist at all, off the back of Brandy striking out by herself. And then, just to prove the first time wasn't luck, she did it again — left it all over for Flagstaff, Arizona, all alone, to go to NAU, and that's where she met Scott and built the actual grown-up life the rest of us only ever talked about. Blonde, about five-seven, her own woman down to the bone. The kind of sister you can go five years without laying eyes on and pick right back up like it was yesterday.
+The stretch between ceremonies was a bruised, silent purgatory. If the dieta had made us weak, the first night had made us ghosts. Glenda and I barely spoke; there was nothing to say. We sat on the tiled patio drinking warm water, watching the dust come up off the passing trucks, every fiber in me aching like I'd been worked over with a hose, my throat raw from the acid, my eyes sunk in bruised rings. Inside, the holiday roared on — the laughing, the music, the endless crack of cans — like it was happening on some other planet.
 
-So I called Brandy, and I told her the truth — most of it — and Brandy covered the rent.
+America came out onto the patio at some point that afternoon and looked at the two of us a while. Sunk eyes, gray faces, the shakes in my hands around a cup of warm water. She didn't ask one question. She went back in and came out with two more bottles of water and set them on the tile and sat down on the step with her phone playing a game. She stayed out there with us most of an hour, not saying anything, not needing to be talked to. When she got up to go she put her hand out and I slapped it and she went inside.
 
-She didn't lecture me. That wasn't her way, not that first time. She just asked what I needed and she sent it, the way the steady ones do, the way the people who have their own house in order can afford to do for the people who never will. And I took it, and I told myself it was a bridge — just a bridge, just until I landed the next thing, just until I got the wheels back under us.
+I didn't even want a drink. Not because I was cured. Because the purge had beaten me too flat to stomach the thought of swallowing anything at all.
 
-I didn't know yet that I'd be making that same call again. And again after that. I didn't know there was a number of times even a Brandy will reach in and pull you out before she finally, quietly, stops — that somewhere out ahead of me on this road was the day she wouldn't. That first time, she caught me clean, and I let her, and I was grateful in the cheap, weightless way I was always grateful for a thing that let me off a hook.
-
----
-
-So here's where it all stood, that spring, when I should have been more afraid than I have ever been in my life.
-
-The money was dead. My partner was a ghost. I was a paperless gringo with two warrants and no way home, in a country I'd come to on a one-way ticket, propping up a family on a sister's charity and the last of a delusion. By every measure that means anything, the good run was over. It had ended the night Zaul walked off the edge of the world, and I knew it.
-
-And yet. I want to be honest about the man I still was, even then, because the not-being-afraid is its own kind of confession. Some flat, sunburnt, beach-stupid part of me looked at that whole pile of ruin and still — *still* — believed I had it beat. The dial in my hand. The basement scrubbed clean by the medicine. The wolf at the door was only money, and money I had always, always been able to make appear out of thin air and a telephone. I'd find work. I'd run an angle. The sun would come up over the water like it was doing it on purpose.
-
-I had no idea the road was already bending. That losing the money was not the disaster — that losing the money was only the thing that pried us loose from that beach and set us moving again, north and west, toward a line on the map and a mountain with a lookout on it, where there'd be another set of armed men waiting at the bottom and not two women's names in all of Mexico enough to get me back out.
-
-But that was still down the road. That spring, I just needed a job. And I started looking, fast, the only way I knew how — grinning, certain, and dead wrong about absolutely everything.
+And when the sun started down again, the dread came back into my chest, and it was time to go get poisoned in the dark a second time. Getting in that car felt like walking to the gallows. Glenda sat staring straight ahead, jaw locked, pale. Two people paying a stranger to make them sick — desperate enough to believe that if we just pushed through the horror, the miracle would be waiting on the far side.

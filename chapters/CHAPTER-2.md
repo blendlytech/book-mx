@@ -22,13 +22,13 @@ The night that put me in front of this generous judge was no different. Arrest n
 
 I had no plan for how I'd survive up there. No idea where I'd sleep once my two weeks in the Airbnb ran out. I just knew I had to get out while I still had the nerve.
 
-I'd lived in Anchorage once before, three years of a lifetime ago, about fifteen years back, when I was married with a baby girl I lost to my drinking and the drugs. I gave her up for adoption when she was two. It was the hardest thing I have ever lived through — harder than anything else in this book, harder than anything I'm willing to put on a page. The subject is too heavy to even hold for long. I'll get to her. Not yet. Not right now.
+I'd lived in Anchorage once before, three years of a lifetime ago, about seven years back, when I was married with a baby girl I lost to my drinking and the drugs. I gave her up for adoption when she was two. It was the hardest thing I have ever lived through — harder than anything else in this book, harder than anything I'm willing to put on a page. The subject is too heavy to even hold for long. I'll get to her. Not yet. Not right now.
 
 But I loved Alaska, all that brutal beauty. Looking back, I know I wasn't only running from Vegas. I was crawling back to the scene of my original sin, like if I stood in the same spot long enough the last ten years might rewind and let me do it over.
 
 ---
 
-It started to go wrong on a Tuesday.
+It started to go wrong on a Tuesday. It always starts on a Tuesday.
 
 Alisha saw the writing on the wall — or rather, in my phone. I came back from the bathroom to find her holding it, staring at the wall with that calm, dead, I'm-about-to-burn-it-all-down look only she could pull off. My escape was about to be foiled and I knew it. My plane didn't leave for another four days. I could feel my heart going like a drum.
 
@@ -52,7 +52,7 @@ She'd taken a protective order out against me. I couldn't set foot in my own pla
 
 So what was she up to? Was she upstairs calling them right now? She didn't need a reason. I just needed to leave her alone. I wouldn't drink for four days. I couldn't. As long as I played nice and let her keep the money, she'd most likely let me walk. Or so I told myself.
 
-I'd sleep on the couch and stay out of her way. Rent was paid through the next month, and I'd already moved nine hundred dollars into her account for groceries, gas, whatever. She seemed content. She was a blonde bombshell — stacked, great body — and she'd have no trouble landing a new boyfriend, or at the very least some white boy with a credit card to feed her and her cats.
+I'd sleep on the couch and stay out of her way. Rent was paid through the next month, and I'd already moved nine hundred dollars into her account for groceries, gas, whatever.  That's what I always did.  That was her job, because, well, I couldn't be trusted with it. What she didn't know was what I did with all my commissions I never told her about. But that is all she did, spend the money I earned on food, weed, waxes.  She spent over $700 per month on exotic cat shit for her african savanah cats.  I don't even want to get into that. She didn't go a step further to help out around the house, let's put it that way. So, she seemed content. She was a blonde bombshell — stacked, great body — and she'd have no trouble landing a new boyfriend, or at the very least some white boy with a credit card to feed her and her cats.
 
 ---
 
@@ -60,7 +60,7 @@ One problem: I had one last night with the boys lined up for Thursday. One final
 
 I figured, what the hell. I'd stayed sober Tuesday and Wednesday. I could trust myself for one night. I didn't need to drink to have fun. I could control it. Which quickly became: I can drink, I just won't get out of control. I'll be responsible, I won't take her bait when I get home. It'd be fine.
 
-I had a plan. Drink, have fun, go straight home to bed. No overdoing it, nothing I'd regret.
+I had a plan. Drink, have fun, go straight home to bed. No overdoing it, nothing I'd regret. I once had a boss tell me that you can't solve a drinking problem with a drinking plan. I'll never forget that. 
 
 We had a hell of a last night. Hung at our spot, the Orleans, got drunk, gambled, and nobody got hurt or lost anything but their paychecks. I'd burned through all but a hundred bucks of mine, and payday was midnight Friday — just before my plane left Saturday.
 

@@ -1,67 +1,67 @@
 # Chapter 36
 
-I left Reina's about two hours before the ride was set to leave.
+Before long I was running it on my own — counting my own bags out, turning in my own money, picking up my own rice and beans at the end of it.
 
-The shared ride picked up at a Burger King a little over a mile away, and a mile is nothing, a mile is a walk to the corner — except this mile ran straight through the middle of Rosarito. There was no way around it. To get there I had to cross the highway, and to cross the highway there was exactly one bridge, unless I wanted to go hours out of my way to find another. One bridge. One chokepoint. One stretch of open, lit, public ground where a man they were hunting would have to stand still and exposed for anybody to see.
+The guys in the yellow house got used to seeing my face. Friendly enough, in their way. They called me gringo, always with this little sideways grin, like they knew exactly how insane this whole arrangement had to be from where I was standing and found a quiet kind of comedy in it. And here is the thing nobody tells you about a nightmare: you get used to it. Give a man enough mornings of the same routine and even this — counting cartel dope onto a table under a camera while armed men watch from a roof — even this just becomes a job. That's the part that still unsettles me most, looking back. How fast it became a job.
 
-I got maybe halfway there and my instincts locked my legs up under me.
-
-I stood on that sidewalk and looked at the route ahead — the bridge, the open crossing, the one and only way through — and every animal part of me that had kept me alive this long said *no.* Said they'll have eyes on that bridge. Said you walk across there and you don't walk off the other side. I don't know if it was true. I'll never know if it was true. But after everything, I had learned to trust that voice over my own thinking, and the voice said no way, José.
-
-So I didn't take the ride.
-
-I turned away from the bridge and the Burger King and the thirty dollars Reina's family had scraped together for me, and I walked off into the fields instead, and I pointed myself at Mexicali on foot.
+Glenda was getting more freedoms by then, and our shifts only overlapped a few hours. I took nights — seven in the evening to nine in the morning. She took days, six to eight. The math was simple and on purpose: somebody was always sitting at that desk in front of the bus, selling, around the clock. The mountain never closed.
 
 ---
 
-I hadn't told a soul in Mexicali I was coming. I had friends there — people from our four months, people from the rehab — but I didn't reach out to any of them, because reaching out meant a phone and a phone meant a thread and I was done leaving threads. I'd just appear, or I wouldn't appear at all.
+You learned the law of the place fast, because your life ran on knowing it.
 
-It's about a forty-five-hour walk, Rosarito to Mexicali, if you could walk it in a straight line. You can't. I still had two bags of coke left, so I knew I'd do it the same way I'd done the last one — five or six hours of walking bought with a bump, over and over until there was a city on the other end of it. I figured three days. It took three days.
+The municipal police were bought and paid for, every last one of them. As long as the truck rolling in said *Municipal* on the back, you had nothing to worry about. They'd pull right into the camp in broad daylight, the cops and the higher-ups standing around chatting and laughing like men who'd known each other since grade school, and then they'd get back in the truck and drive off. I watched it happen more times than I could count. It never stopped being crazy to me, watching the law pull in for a friendly visit to a cartel dope camp. Bought. All of it bought.
 
-I went off the roads, out into the desert, shadowing the highway from far enough off that I was just a heat-shimmer to anything passing on it, close enough that I didn't lose my only guide. Through the mountains again. And this time I didn't have a five-gallon jug — I had a little jug of water I'd filled at Reina's before I left, and it was gone by the end of the second day.
-
-The third day was the one that nearly finished me.
+The Army was the one that put the fear in everybody. The marines — the real ones, riding around in trucks with soldiers standing in the back manning gun turrets. You'd see them out on the roads sometimes and it was a sight that loosened your knees. Those men could not be bought, and they knew it and carried themselves like it. Get caught so much as snapping a photo of one as a regular pedestrian and they'd cuff you, beat the snot out of you, and take your phone for the trouble. But up on that mountain you'd always have warning — that's what the lookouts were for, men posted where they could see for miles, and a marine convoy couldn't come up that road without being clocked long before it arrived. The bought men came right in the front. The ones who couldn't be bought you saw coming from a long way off.
 
 ---
 
-The heat came up off that desert like something with intent. And the closer I got to Mexicali the worse it got, the land going flat and white and merciless, no shade, no trees to lean on, nothing but the road off to my right and the sun straight overhead taking everything I had left to give.
+Glenda started disappearing.
 
-The water was long gone. The coke was nearly gone. I hadn't truly slept in the better part of three days, and somewhere in there the line between what was out in front of me and what was only in my head wore through. I started seeing Clayita. Out ahead of me on the cracked ground, trotting along the way she used to trot at my heel in the barn, looking back over her shoulder to make sure I was still coming. I knew she wasn't there. I followed her anyway. A man takes what guide he's given.
+A few hours after her shift she'd be gone, and she'd come back noticeably drunk and walk into the bus and pass out without a word. It was Omar's doing — the liquor, the time away. And to this day I don't know for certain whether he was sleeping with her. But I've got a strong suspicion, and I've had to learn to live in the gap between suspecting and knowing, because that's the only place I'm ever going to get to stand on it.
 
-That was about when I saw the dust.
+She'd gone different on me, and I knew exactly when it had started. The walk to the bank. The walk where I'd told her I was done, that I was leaving, that I'd hand her some money and a direction and disappear back across the line. She was never the same with me after that. I think — I know — she believed I was going to abandon her up there, leave her behind for the cartel to do with as they pleased and never look back. And the reason that one cut so deep, the reason I couldn't argue my way out of it, was that it was true. It was exactly what I'd planned to do.
 
-A plume of it, rising off the dirt road, a vehicle coming, and me out in the open with nowhere on God's flat earth to hide. I went down. There was a wash cut into the desert a little ways off — a dry gully, waist-deep — and I half-ran, half-fell into it and pressed myself flat against the dirt and went still. I'd kept the bamboo stick from outside Reina's container and brought it along for what was supposed to be a one-mile walk to the bus — and now I gripped it in both hands like it could do one thing for me against what I was sure was coming.
+I tried to take it back. I told her I hadn't been in my right mind, that I'd been terrified and lost and saying things a scared man says, that I saw it clear now — that we only had each other up here and we had to be a team or we were finished. I meant it, too. The mountain had burned the leaving right out of me. But she wasn't hearing it, and I couldn't blame her, because why would she believe the man who'd already shown her the door once. She got short with me. Cold. There were stretches where it felt a lot like hate.
 
-The truck slowed.
-
-I heard the engine come down out of speed and I heard the tires crunch off onto the shoulder and stop, close, close enough that I could hear the doors and then the voices. Men. Spanish, easy and unhurried. And every cell in my body went cold and certain: *they found me. After all of it, the bridge I didn't cross and the road I left and the desert I walked into to keep away from exactly this — they found me anyway, and it ends here in a ditch.*
-
-And then the strangest thing happened to me, lying in that gully waiting to die.
-
-I didn't want to.
-
-I want you to understand what that was, because I'd spent that entire mountain, and a good many years before it, half in love with the idea of being put out of my misery. I'd welcomed the gun. I'd told the man from Sinaloa to do it. I'd given myself a twenty percent chance off the back of that bus and felt something close to peace with the eighty. But down in that wash, with men twenty feet away and my whole body screaming for water and the sun trying to cook me out of the dirt, I found out the truth of myself, finally, at the very bottom: I wanted to live. Not the way you want a thing you think you deserve. The way an animal wants it. I dug my fingers into that dirt and I wanted to live so bad it brought tears up out of a man who'd refused to cry through a beating and a gun barrel and the loss of every single thing he'd ever loved.
-
-I heard boots in the gravel. A man walked toward the edge of the wash — I heard him come, heard him stop right up at the lip of it — and I held my breath and I held that stick and I did not move one muscle, and I waited for his shadow to fall across me.
-
-It didn't.
-
-I heard him spit. I heard a long arc of him relieving himself into the brush not ten feet from my head. I heard him call something back over his shoulder, and somebody laughed, and then the boots went back the way they'd come, and the doors shut, and the engine took hold, and the truck pulled off down the road and was gone — and they never knew, not one of them, that the gringo half the coast was hunting was lying in a ditch close enough to spit on while they took a roadside piss and drove away.
-
-I don't know who they were. Cartel, narcos, ranch hands, men running their own errand in their own bad country. I'll never know. The not-knowing is the size of the whole thing — that my life turned on which way a stranger happened not to look, same as it had turned a dozen times before, and I was never once owed the luck of it.
-
-I stayed down in that wash a long time after the sound of them was gone, and I cried it all out into the dirt. For Glenda, who was in the ground. For Clayita, who wasn't really walking out ahead of me. For the man I'd been and the years I'd burned and the daughter who'd never know any of this happened. And then, because the alternative was to die there feeling it, I got up.
+And then she'd sit at that desk and flirt with the men who came to buy from us. I'd watch it through the crack of the bus door — the laughing, the touching, the smiling up at them. All the things she used to do with me, handed out to strangers buying meth in the dark. I was losing her. No — I'd lost her already; I was just watching the proof of it come in nightly. I have been alone plenty of times in my life, alone in jail cells and strange cities and the backs of other people's houses. I never once felt as alone as I did in that bus, four feet from the one person on earth who was in it with me, watching her give everything that used to be mine to anybody but me.
 
 ---
 
-I crested a rise late that third afternoon, half-dead, lips split, the last of everything spent — and there it was.
+There was one thing that saved me. One thing that kept my mind from going all the way over the edge.
 
-Mexicali. Spread out flat and brown and shimmering in the heat, the city I'd been walked into in handcuffs and walked out of in a deportation truck, the city where Glenda first got clean and where a man named Zaul had built the building that all of this, every mile of it, had spun out from. The city was right there. The line was right there.
+A cat.
 
-I don't have a dramatic way to tell you the end of the walk, because there wasn't one. I came down off that rise and I put one foot in front of the other across the last of the flat, and the buildings got bigger, and the road found me, and somewhere in the going the desert just quietly handed me back to the world.
+Clayita. She was just a baby when she first introduced herself to me — and introduced is the right word, because that cat decided I was hers, I didn't get a vote. She was all spunk, and her eyes — I've never seen eyes like that on an animal, before or since. There was something behind them, some real intelligence looking back out at you, taking your measure and deciding you were all right.
 
-But I made it.
+She'd climb up on my chest, turn one slow circle, and plop down right under my chin. Sit a second. Then get up and do the whole thing again an inch higher up my face, and again, until she was laid out over my mouth, purring like a little engine. She followed me everywhere I went. If you saw me selling, she was within arm's reach or flat-out in my lap. The customers started calling her Clayita. The guards too. It means *little Clay* — she'd become so much my shadow that the whole mountain had taken to naming her after me.
 
-After all of it — the mountain, the bus, the dog, the boot, the gun, the window in the dark and the cat I left behind and the woman I didn't — I walked up out of that desert on my own two feet, alive, into the one city on earth that was about to save my life.
+That cat got me through nights I am not sure I'd have gotten through otherwise. She was my best friend and my buddy and my shadow.  It took me 20 minutes to write this next line as I couldn't help but break down.  I just cried like a baby. I shared everything I had with her, which was rice and beans and water, and she took it and stayed. When you have lost the woman you love while you're both being held prisoner on a drug mountain, a half-wild kitten deciding to love you anyway is not a small thing. It might have been the only thing.
 
-I made it.
+---
+
+There was a couple who hauled the feed in for the animals — pigs, chickens, horses, the whole ranch end of the operation, kept in a barn about seventy-five yards off from the buses.  They started bringing me bags of cat food for Clayita and I was forever greatful as was Clayita.  They would evern bring her her own bowl and those little fancy feast wet food packets sometimes.  The cat ate better than me.  Of course the couple didn't know I was being held against my will and they didn't speak a lick of English.  They, I guess, were just cat lovers and took a likeing to Clayita who wouldn't let another soul touch her but me and then that couple.  I suppose she could be bought like the rest of us.  I would have let anyone touch me anywhere for a hamburger at that point.
+
+There'd been a cart for moving the feed once, but somebody had burned the motor up on it, and so now it got carried, and carrying it became my job. Those bags were heavy as sin. I hauled feed across that open ground for a solid month before they decided I might as well do the rest of it too — feeding the animals, and then, before long, shoveling out the stalls, cleaning up their mess. hauling and feeding and mucking, Clayita trotting along at my heel through every step of it like a little foreman keeping an eye on the work.
+
+And then they invented a game.
+
+---
+
+It went like this. I'd feed the animals and clean the stalls while they ate, and then I'd start the long walk back across the open ground toward the bus. And they'd wait. They'd let me get out to about ten yards from the door — close, close enough to taste it — and then somebody would let the dog go.
+
+A German shepherd. And I'd run, and I'd just barely make it, banging through that bus door a half-step ahead of its teeth, and the men would laugh and laugh like it was the best thing they'd seen all week. Ten yards. I could make ten yards. I made it every time, and every time they howled, and I started to understand that the near-miss *was* the game. They didn't want the dog to catch me. They wanted to watch me run for my life and just barely win.
+
+Until the day they got bored of that and decided they wanted to see the other thing. They wanted to see what happened when I lost.
+
+So this time they let it go when I was a good twenty yards out. And twenty yards was too far, and I think I knew it was too far before my second step.
+
+I ran anyway. You always run. The shepherd ate the ground between us like the distance was nothing, and I heard it coming before I felt it — that low sound a serious dog makes that isn't barking at all. Barking would've been a mercy; barking is a dog telling you to leave. This was a dog that had already decided. I didn't make fifteen yards before it hit me. Teeth sank into the back of my ankle and clamped down to the bone, and the whole world tipped sideways and the dirt came straight up to meet my face. The pain went through me white and total — I was sure, lying there with that animal locked onto my leg, that it was going to take my foot clean off the end of me, just unscrew it and trot away with it. And behind me, over the sound of my own self trying not to scream, a yard full of grown men were laughing and yelling *GRINGO* like it was Christmas morning.
+
+---
+
+They had to call the dog off and tend to me, in the end, because they'd damn near let it bite clean through my ankle. They bandaged it up. I couldn't haul feed for another week behind it, which I think is the only reason any of them caught hell for it at all — the boss heard how it went, heard that they'd cost him a week of his pack mule over a game, and the men got in some trouble over me.
+
+So they never ran that one on me again.
+
+They just went looking for another game. There was always another game. That was the thing about the mountain I came to understand all the way down in my bones: the cruelty wasn't a means to anything. It wasn't to make me work harder or sell more or behave. The cruelty was the entertainment. It was just what there was to do up there for fun.
