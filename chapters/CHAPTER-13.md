@@ -1,4 +1,4 @@
-# Chapter 13
+# Chapter 13 — In the Flesh
 
 My plane set down in San Diego with about an hour to kill before my ride showed, and that hour is where the whole harebrained thing finally turned real on me. Not real the way a plan is real — a plan you can lay out on a couch and admire, all its clever little parts. Real the way a wall is real, which is to say you don't find out until you've already walked into it. I'd run clean out of road. There was nothing left in front of me to scheme. Just a curb, and a stranger coming to drive me, and a border I had no earthly business crossing waiting somewhere down the highway in the dark.
 

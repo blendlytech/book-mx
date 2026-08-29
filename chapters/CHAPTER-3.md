@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 3 — One Minute and Thirty-Six Seconds
 
 The Orleans smelled the way it always smelled at nine on a Friday — somebody's cologne, the ghost of a cigarette nobody was smoking, and underneath it the sweet chemical chill of the air conditioning losing its war with three hundred sweating tourists. I'd been breathing that smell for six years. This was the last night I ever would.
 
@@ -12,7 +12,7 @@ What Nate didn't know — what he'd been trying to pry out of us for years — w
 
 It's not a scam, we always told him. And it wasn't, technically. A scam is when you take a man's money and hand him nothing. We always handed him something. We just never told him what it was.
 
-That was the whole game, and it ran on exactly one rule: you could not lie. At least you couldn't tell a lie that affected the backend of the sale. Every call was recorded. But you could omit. You could sidestep. You could answer a question the man hadn't asked and let him hear the answer he wanted. I'd lived in that half-inch of daylight for six years, and I'd gotten fat in it — a grand a week base, twenty or thirty bucks a deal I closed on top, 5 to 10 deals a night, paid out daily in cash. That's how we drank. That's how we gambled. That's how I'd be wheels-up to Alaska in less than twenty-four hours with money in my pocket.  But now I was working with a whole new outfit with a whole new commission structure completely remote.  I had 5 of my own openers and made 10% off of the gross revenue brought in each week. Plus a $500 per week salary.  Easily six figures working from home.  I just hoped I still had the job come Monday after being locked up. 
+That was the whole game, and it ran on exactly one rule: you could not lie. At least you couldn't tell a lie that affected the backend of the sale. Every call was recorded. But you could omit. You could sidestep. You could answer a question the man hadn't asked and let him hear the answer he wanted. I'd lived in that half-inch of daylight for six years, and I'd gotten fat in it — a grand a week base, twenty or thirty bucks a deal I closed on top, 5 to 10 deals a night, paid out daily in cash. That's how we drank. That's how we gambled. That's how I'd be wheels-up to Alaska in less than twenty-four hours with money in my pocket.  But now I was working with a whole new outfit with a whole new commission structure completely remote.  I had 5 of my own openers and made 10% off of the gross revenue brought in each week. Plus a $500 per week salary.  Easily six figures working from home.  I just hoped I still had the job come Monday after being locked up.
 
 Tell you what, I said. Last night in town. I'm gonna show you how the sausage gets made.
 

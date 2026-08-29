@@ -1,4 +1,4 @@
-# Chapter 16
+# Chapter 16 — Unwatched Freedom
 
 I want to tell you I had the whole thing beat, because that is exactly what I believed, riding shotgun in Jo's car with Mexicali falling away behind us and three hours of open desert running out ahead.
 

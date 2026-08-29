@@ -1,4 +1,4 @@
-# Chapter 7
+# Chapter 7 — Shed Skin
 
 I stood in a library, in front of an elderly woman at a desk who guarded, like it was the last clean water in the city, the rights to a bank of twenty-some desktop computers the public was allowed to touch.
 

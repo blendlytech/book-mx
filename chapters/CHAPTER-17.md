@@ -1,4 +1,5 @@
-# Chapter 17
+# Chapter 17 — High Fives and Seatbelts
+
 Two months. Two entire months on that beach, and we did not touch a drop. Not one. People don't believe that part when I tell it, but it is God's own truth. We turned down every party we got asked to, and on that strip you got asked constantly. We kept to our own selves. We weren't killing it on the floor — nobody was; I'll tell you right now that timeshare is about the single hardest thing a human being can be asked to sell, and I have sold some hard things — but we didn't have to be killing it, because the solar money was still landing out of Mexicali like clockwork, never a nickel under five grand a month, and the sun came up over the water every morning like it was doing it on purpose. July of 2024. The weather on that beach was so good it felt rigged. We had each other, sober, in the daylight, and a little money coming in, and for the first stretch of my grown life I wasn't running from a thing or running toward one either. I was just there. It was the closest to peace I'd been since I was a boy.
 
 ---

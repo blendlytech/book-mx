@@ -1,4 +1,4 @@
-# Chapter 15
+# Chapter 15 — Courting on a Leash
 
 Here is the part nobody warns you about when you finally decide to get clean in the same season you finally fall in love: you have to do them both stone sober, in a bad neighborhood, in a country where the word they hung on the smartest man in the building was just the Spanish for a sad face.
 

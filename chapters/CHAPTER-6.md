@@ -1,4 +1,4 @@
-# Chapter 6
+# Chapter 6 — Smear on the Sidewalk
 
 The door buzzed me out into the parking lot at two in the morning, and the sky was the color of a bruise that couldn't decide whether to heal. That's Alaska in late June. Not dark — never dark — just dimmed down to a cold gray glow that hangs over everything like a dance club's house lights coming up right before they sweep you out the door. Bright enough to see by. Too late to do me any good.
 

@@ -1,5 +1,4 @@
-# Prologue
-
+# Prologue — The Chain
 They wait until I'm twenty yards from the bus before they let the dog go. It isn't the first time — but the other times they loose it at ten yards, close enough that I always just barely make it. Not today. Today they want to watch.
 
 That's the game. They make me feed the horses and the chickens first, haul the water, the feed, all of it, and they let me get just far enough across the open ground that I have a reason to hope — and then somebody behind me says something in Spanish I can't understand, and I hear the chain.

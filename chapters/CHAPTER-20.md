@@ -45,7 +45,7 @@ For forty-five minutes, nothing. Just the heat and the dark and eleven strangers
 Then the *icaros* began. Mateo shook a *chacapa* — a bundle of dry leaves, *shhh-shhh-shhh* — and started to sing, high and nasal and haunting, the melody sliding up and down a scale that made no sense to my ear and circled the room off the bare walls and dug straight into the middle of my head.
 
 And the medicine came up in me. It started low at the base of the spine, a hum like heavy machinery kicking on in the cellar of my body. My temperature spiked; I went slick with cold sweat; my heart doubled and slammed at my ribs. I shut my eyes and the dark was gone — jagged neon fractals breathing against the backs of my lids, folding in on themselves in time with the leaves.
-J
+
 Then the nausea. Not food-poisoning sick, not hangover sick — the body trying to throw out its own skeleton. I got the bucket under my face and I heaved. The medicine. The plantains. The water. And when there was nothing left, the burning acid, and when the acid was gone it kept squeezing — dry heaves until my ribs felt like green wood splitting, until the tears ran down. All around the room the same: twelve people emptying themselves into plastic buckets in the pitch black, the stink of it rising into the *mapacho* smoke, Mateo's voice climbing over the top, the leaves going faster, driving the sickness out, wringing every body in the room dry.
 
 No visions that first night. No ancestors, no healing. Just violence. The medicine didn't lay a hand on my soul; it took a wire brush to my guts and scraped me to the bone. When the sun finally came, I lay on my mat, a trembling husk, staring up at the tin — and understood, with a sick drop, that I had to do this four more times.

@@ -1,127 +1,58 @@
-# Chapter 33
+# Chapter 33 — The Worst One There Was
+I didn't have a couple of days to lie around and figure it out. That kind of time is a luxury, and luxury had never been a fixture of my life. I needed a solution by yesterday.
 
-We got off that bus cool and slow, like two people with nowhere in particular to be.
+The trouble was that Glenda had already found one, and it was the worst one there was.
 
-That was the act, anyway. Inside I was a live wire. I kept scanning faces, watching for anybody watching us, and the whole time there was this drumbeat under everything — *they know.* By now Omar had figured out we weren't coming back with his beer. By now somebody had put it together that the only place we could've gone was the bus, and there was exactly one bus, and it went exactly one place. They had to be looking. It was hard to stand on that Rosarito street and believe a set of eyes wasn't already on us.
+She wasn't just selling weed. She was selling coke too — and coke, it turned out, was the real engine in Rosarito. By American standards the price was a joke; by Mexican standards it was a small fortune. Five hundred pesos a gram, thirty, thirty-five dollars, each one wrapped tight in its own little baggie and burned shut with a green seal — the plastic melted closed with a lighter so there was no opening it, no pinching off a line or two and twisting it back up. If they caught you skimming, you didn't get fired. You got killed. That was the whole of the personnel policy. With the coke you carried fifteen: ten grams that belonged to the cartel and five that were yours to move or keep.
 
-And I was dressed like a clown — the band shirt, the rolled-up sweats. A man trying not to be noticed in the one outfit built to get him noticed. I had to file that away as a problem for later. Later was the only place I had left to put things.
+She'd been doing this the entire time I was clawing my way down from San Diego, and she had not told me. And here's the part that turned my stomach to water — she wasn't selling her five. She was doing them. Doing her five, and then doing her way into the cartel's ten. By the time I understood what I'd walked twenty-three miles into, we weren't holding product. We were holding a debt.
 
-It was about a mile to the nearest bank.
+About three thousand pesos in the hole, to be exact. A hundred and fifty American dollars. Write it on paper and it's nothing — a decent dinner, a tank of gas. But standing in that apartment with no laptop, no job, and not one well left to lower a bucket into, a hundred and fifty dollars owed to the cartel might as well have been a million. It was a number with teeth.
 
----
-
-We walked it, and the whole mile I couldn't shake the feeling we were being followed. There was a car — the same car, I'd have sworn it, tinted up so I couldn't see a soul inside — and it passed us once, and then it passed us again, slow, the kind of slow that has a reason. Every time it rolled by, Glenda and I both pulled a breath in and held it.
-
-*Oh my God,* she'd say, low. *That doesn't look good.*
-
-I could see the fear sitting right on her face, no hiding it now. But there was nothing to do with the fear except keep walking through it. There's no version of that walk where you stop.
-
-We made it to a Santander. As we got close I clocked a man falling in behind us — out of nowhere, right on our heels, and my whole body went tight. He came through the door after us. And then he stuck his card into the machine right next to mine and started punching in his own business, and the air went out of me all at once. Just a guy. Just a man getting his money like everybody else on earth.
-
-I put my card in. I pulled up the balance.
-
-Nothing.
-
-It hadn't transferred. And in the same breath I understood why, and it was the dumbest, most human reason there is. Her message hadn't just said *I can send it.* It had said it could go to the same account, the old one, if I'd only confirm that was still good — and she'd send it the second I did. And I never got to. Omar had been turning back toward me and I'd deleted the thing and never typed the one line that mattered. *Yes. Same account. Go.* There hadn't been a second to. I'd been too busy getting us onto a bus.
-
-But she'd send it anyway, I told myself. Surely she'd heard the desperation in everything I'd been saying for weeks, surely a thing like that doesn't just sit there, surely she'd push it through. My story to her was that I was homeless and robbed. The truth was so much worse than the story it wasn't funny. The truth would've gotten the money sent in a heartbeat, if I could've told it.
-
-She hasn't sent it yet.
-
-Fuck my life.
-
-Now what. Standing in a bank in the wrong clothes with twenty pesos and a cartel somewhere behind me, and the money — the whole reason for the whole insane gamble — wasn't there.
-
-Let's go to Reina's, I said. We can use her phone. I'll get into Facebook and figure out what's going on.
+I'd love to tell you I was furious when it all came out. Furious is the clean word, the one that lets me keep a little dignity. The true word is terrified. I was scared to death, because by then I knew exactly whose money we'd put up our noses.
 
 ---
 
-Reina's was a long way off. Three miles, give or take.
+And then, because something somewhere was apparently keeping a list, my phone quit.
 
-Glenda flagged a cab and leaned into the window talking fast Spanish. We had twenty pesos. The cheapest ride in that town didn't move for less than fifty. And somehow — I don't know what she said, I never did learn the half of what she could do with that language — she talked the man down to the twenty we had, and we climbed in, and we were moving.
+Just up and died inside that first week — the one device I had left, the map and the lifeline both, gone, like the thing had been cursed. Glenda had already pawned hers for fifteen hundred pesos, and that pawn was the only reason we were eating. So there we were: two people deep in a cartel's pocket, broke and half-blind, pinning the last of everything on a laptop Glenda's sister had promised to bring or ship down so I could make a dollar the only way I had left in me.
 
-The whole ride I was praying I could get into my account and find out whether five hundred dollars was about to save my life or whether I'd burned the last bridge I had left for a bus ride to nowhere.
+All of it inside my first week there. One week before rent. And every single day, Omar came by.
 
-I didn't feel safe. Not in that cab, not on that street, not anywhere. The feeling of being watched had crawled up under my skin somewhere back on that mountain, and it rode the whole way to Reina's with us like a third passenger.
+Omar was the man who dropped the drugs off and picked the money up, the cartel's route man, the face of the whole arrangement. He'd swing through daily to see whether we'd moved the product and whether we had his money, and every day we'd lie to him — or Glenda would, in the fast Spanish I couldn't follow — *not sold yet, slow week, almost there* — and pray to a God I had no standing with that he wouldn't ask to see the product. Because the product was gone. There was nothing left to show him.
 
----
-
-We came through Reina's door wearing two faces that looked like they'd just escaped the cartel — because they had.
-
-Reina lived in a container. A literal shipping container somebody had turned into a one-room studio, a bathroom framed into the corner of it with a toilet you flushed by tipping a bucket down after yourself, same as the bus, except this place had been made a home. Homier, anyway. Warmer. Her, her husband, and their two little boys — somewhere between two and five, the both of them — all of them packed into that one steel room together.
-
-Glenda knew Reina from when she'd first come down. Glenda used to bring her what she couldn't finish out of the free fruits and vegetables she'd get before it turned, and out of that the two of them had become friends. Reina had no idea Glenda was selling drugs. None. They were deeply religious people — didn't drink, didn't use, didn't have any part of that world — and they were kind, genuinely kind, the rare kind of kind that costs you something. I'd met them once before, while I was down there.
-
-So we didn't tell them the why of it. We didn't say a word about the coke or the weed or the debt. We told them we'd been kidnapped and we'd gotten out. That was all. And they were scared — of course they were scared, two people show up at your door with the cartel maybe a step behind them and your babies asleep in the corner. I could read it on both of them, that they did not want us there, and I didn't blame them for a second. But we had nowhere else on this earth to go, and they were too good to put us back out on the street.
-
-I asked to borrow the phone.
-
-And here is where the floor fell out from under the whole plan.
-
-I couldn't get into Facebook. It wanted a phone number now — a code texted to a phone I no longer had — and it would not, for love or money, give me the option to verify by email instead. The same account, the same login, that had sat wide open on that desktop computer in an Alaskan library. On one device it just let me in. On this one it threw up a wall I couldn't climb. I still don't understand it, and I mean that — I owe Facebook a long, hard-worded letter one of these days asking that exact question. Then I went for my Gmail, and Gmail was locked up the same way. No way in.
-
-I was finished. Both wells, the only two I had, sealed over.
-
-The only phone number I knew by heart in this world was my father's. Not one of my sisters'. Not my mother's. Not a soul I had a good thing left with — just the one man who'd already written me off in a long text and meant every word of it. So that's who I called. No answer, which I expected, a Mexico number lighting up his phone, and him knowing without picking up that it was his son with his hand out again.
-
-So I texted instead, because I knew he'd at least read it. I told him I'd lost my phone and my laptop. That Mom had been sending money but I'd never confirmed it could go to my same account — *please, just tell Brandy yes, the same account, she can send it.* One sentence. One thing. Pass along one word and you might keep your son alive another week.
-
-He never answered.
-
-He read it, I have no doubt he read it, and he let it sit there and die. I was a dead man to him now, in the most literal sense the phrase has ever carried. My problems weren't his problems anymore. I was somebody else's problem. He'd had his fill, and he'd told me so, and this was him proving he'd meant it.
+Glenda had a full-blown coke habit by now, and I'll tell on myself too: we were drinking like the world was ending, which from where we sat it was. The cheapest liquor you ever heard of, twenty-seven pesos a liter — a little over a dollar to put the both of us flat on the floor. And every night I'd swear to her, swear on whatever was left to swear on, that we would not touch another bump. Then the drink would come up over us, and sober rules drown easy in cheap liquor, and the seal would crack on one more baggie. We'd sell a few and do one. Sell a few and do one. The hole got deeper every night we were supposedly climbing out of it, until there was no bottom left to it at all. The laptop finally arrived days before rent was due. By then it didn't matter. We were already gone. We just hadn't been told where yet.
 
 ---
 
-We slept on Reina's floor for five days.
+Omar, we decided, was going to be our salvation.
 
-Five days, and I didn't leave that container once. Neither of us did. I spent every waking hour of it trying to claw my way back into my own life — hammering at Facebook, at Gmail, trying old logins, dead Yahoo accounts I hadn't touched in a decade, every combination my brain could dredge up. And the whole time the air in that little steel room got thicker and heavier, Reina and her husband stretched past the end of their kindness, two strangers and their fear eating up space these good people did not have to give. Nobody said it. Nobody had to. You can feel a welcome run out.
+Glenda came clean to him. Laid it out — that we'd gotten in too deep on the coke and the weed and couldn't make it right, not now, not all at once. And he wasn't angry. That should have frightened me worse than anything on earth, and it didn't: a cartel man told you'd eaten his product, and smiling about it. Because Omar had a solution. Omar always had a solution. That was the entire job, and I was too far gone to see the shape of it.
 
-Then I remembered an old email account. One I hadn't tried yet.
+Ditch the apartment, he said. Come live down the road. He had a place we could stay for free — free, with internet, where I could sit down with that laptop and work. Give it a month and we'd be back on our feet, and then we could move on to something better if we wanted, or stay on and pay a flat two thousand pesos a month, a hundred and twenty-five dollars, to keep the roof. He didn't say much about the place itself. Only that it was a little community right outside Rosarito. And I didn't ask the questions a sober man asks, because I had no money, a cartel debt, and a rent I couldn't cover, and a free roof with internet on it was the only door in the room.
 
-Here's the thing about me and passwords: I remember damn near all of them, going back years, because I've always used the same handful, and they were almost always tied to wherever I was living when I made them. So I dug one up out of the past and typed it in, and — *boom.* It let me in. After all of it, an account old enough to have dust on it swung right open.
-
-Now I just needed an email address for Brandy. And I had one. An old one, years old, one I had no idea if she still checked — but it was a line in the water, so I cast it. I wrote out everything and sent it off into the dark, not knowing if it would land in a box she still opened or rot in one she'd abandoned the way I'd abandoned mine.
-
-She answered almost the instant it hit.
-
-*The funds have been sent.*
-
-Holy shit. After a week of this — the boot, the bus, the empty account, my father's silence, five days on a stranger's floor — one email to a forgotten address and the money was there two minutes later. Just like that.
-
-Now we needed to get back to the bank. Only this time, we'd walk.
+So we bit the worm. And Omar, patient as the grave, set the hook.
 
 ---
 
-There was a closer one this time, maybe a mile, and we walked it scared as hell but nothing happened. Nothing reached out of a car and took us. We just walked, and I put my card in, and the money was there. All of it. I pulled every last bill out, and for the first time in over a week we were standing in the world flush — with cash in my pocket and an actual way out of the country in my hand.
+The place turned out to be an hour and a half, maybe two, outside Rosarito — up off the coast and back into the mountains, down roads that stopped meaning anything the farther in we went.
 
-But I'd made a mistake on the walk over, and I want to own it because it's the kind of mistake that tells you exactly what kind of man I was being right then.
+It was a small camp. Ten, maybe eleven mini-buses scattered across the dirt — *Calafias*, they call them down there, the old route buses — except every one of these had been stripped to the bone. Anything worth a peso torn out and sold. The windows painted over solid black. The guts pulled clean. Somebody had framed a little box in the back of each one out of a single sheet of drywall and set a toilet inside it, but there wasn't water running anywhere on that mountain. You flushed by tipping a bucket down after yourself and trusting it to go wherever it went. A full-sized bed and an air fryer. I need you to understand that was the entire inventory of our new home — the sum total of everything our eyes landed on walking in. A bed, an air fryer, a dry toilet behind a wall, and black-painted glass holding the daylight out.
 
-I'd laid the whole thing out for her. The real plan, the part I'd kept behind my teeth on the mountain. That I was done. That the second we were clear I was going back to the States and I was not coming back — not to Rosarito, not to Mexicali, not to any inch of Mexico, not ever. That I'd give her enough to get herself wherever she wanted to go, back to her mother's, anywhere, but that wherever it was, I wasn't going to be there.
+We had no idea what we were walking into. And I've asked myself a hundred times since whether we'd have turned the car around if we had, and the honest answer is I don't think it would have changed one thing. People with nothing don't get to be choosy about the cage.
 
-She went quiet.
+The internet lived in a big yellow two-story house at the center of it all, the signal bled out from there to the buses. That house had a rooftop, and on the rooftop were men with guns who walked it end to end, day and night, never not up there. We pulled one bar of it down in our bus. One bar. Not enough to run a dialer, not enough to run the work I'd told myself I'd come up here to do. So that door — the one I'd talked myself into believing was the whole point — was shut before I ever sat down in front of it.
 
-I hate quiet. But I'd learned that particular quiet by then — it's the sound a person you love makes when you're standing in front of them telling them you're leaving for good, and there's nothing in this collection of so-long speeches I've given over the years that I'm proud of. I watched her eyes fill up. I felt like the lowest thing alive. And I didn't even have the decency to let it land, to sit in it and feel the whole weight of what I was doing, because we weren't even at the bank yet and there were bigger fires than her broken heart. I filed it away. Later. Always later.
+Which left the other way to pay for the roof, the way they'd had in mind for us the whole time. We'd sell. Take shifts with Omar until my impossible little internet job materialized, which every one of us knew it never would. And it wasn't only weed and coke anymore. Now it was meth.
 
-Then we got the money, and we walked back out onto the sidewalk, and later never came.
+Meth was the one I had always kept on the far side of a line I never once crossed. Whatever I'd done to myself across the years — and I'd done plenty, I'd done damn near all of it — meth was out of bounds, the single drug I'd sworn off and stayed off my whole life. And now here I stood, counting it into little bags to hand to strangers in the dark. Two grams for a hundred pesos, enough, they told me, to keep a man up three or four days straight. It was our best seller by a wide margin. Everything got counted before a shift and counted after, down to the gram. Touching any of it yourself was forbidden — they'd kill you for a skimmed line, remember. But the liquor was a free-for-all, encouraged even, and there was a little corner store down by a bus stop where a bus came and went twice a day. The one thread tying that mountain to the rest of the world.
 
 ---
 
-It wasn't the tinted car.
+We settled in the only way you settle into a thing like that, which is badly, and anyway.
 
-That's the thing I keep coming back to. We'd spent the whole day flinching at the wrong vehicle. This was a different one altogether — an Escalade, brand new by the shine of it — and it pulled up fast and hard right alongside us and two men came out of it before I understood it had even stopped.
+I told myself I would build something. Anything I could sell down a wire — I landed on websites and SEO for small businesses back in the States, work I figured I could maybe do off the laptop with a free TextNow number dialing out over that one sad bar of signal. It would drop calls. It might not work at all. But it was a plan, and having a plan has always been the one drug I can't quit, the bump I will always take.
 
-They had us in seconds. I tried to fight, tried to pull my arm back, tried to plant my feet — it was nothing. Less than nothing. They folded me into the back of that SUV like I was laundry and it pulled away from the curb smooth as you please.
+That was for tomorrow, though. Tonight was the first night, and the first night we'd drink on Omar's tab and get comfortable, get friendly, get told how good it was all going to be.
 
-Nobody said a word. Glenda said something in Spanish, low and fast, and nobody answered her. The silence was the same silence as the boot. Business.
-
-Hands were already in my pockets. They took the money — all of it, the whole week's war won and lost in one motion — and my wallet behind it, and then they dumped Glenda's purse out and went through that too. And I sat there trying to do the math on my own death. Was this the cartel we'd run from, or was this just somebody who'd watched a gringo walk out of a bank with a fat fold of cash and decided to take it off his body in the mountains? I genuinely didn't know which one I was hoping for.
-
-Then I saw where we were turning. The same back road. The road out to the bus, the one we'd slipped off of a week ago without a word to anybody.
-
-And that told me everything.
-
-I'd love to write that I was afraid, because afraid is what a person is supposed to be, and I'd been afraid all day, all week, jumping at cars and shadows. But the fear was gone now. What came in where it had been was almost relief — a flat, quiet acceptance that this was the end of it, all of it, and at least the running was finally over. I wasn't going to fight. There was nothing left to fight with and nothing left to fight for. I just wanted it quick.
-
-But I knew, the deeper we got down that road, that quick wasn't on the menu. A random stickup might've put a bullet in the back of my head on some empty stretch and left me for the buzzards, and God help me there was a version of that I'd have taken gladly. This wasn't that. This was them. The ones who'd had us, and lost us, and gone to the trouble of finding us again. And men like that don't drive you an hour and a half back up a mountain to make it quick.
-
-The farther down that road we went, the more it settled into my bones, cold and total: it was the cartel we'd run from, and there was going to be a very long night up there before either one of us was shown the mercy of dying.
+I had no idea what was already coming down the line at me. None at all. I'd been to a lot of bottoms by then and called every one of them *the* bottom, and I'd been wrong every single time. But I'll say this one plainly and let it stand as the truest sentence in this whole book: what was waiting for me up on that mountain was the worst thing that has ever happened to me, or that I pray to God will ever happen to me. I cannot imagine a worse one. There were stretches up there where death would have been the kinder draw — and I knew it, and I meant it.

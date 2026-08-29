@@ -1,4 +1,4 @@
-# Chapter 18
+# Chapter 18 — The Toll Road to Sinaloa
 
 Nobody ever brought up the passport.
 
@@ -48,7 +48,7 @@ We ate off a grill under a tarp across the road, tacos on paper plates that went
 
 Rose went up early. Glenda went in to shower.
 
-So it was me in a white plastic chair at the shallow end at nine at night, and America in the water, and it was the first time in three months the two of us had been alone.
+So it was me in a white plastic chair at the shallow end at nine at night, and America in the water.
 
 You know how it was between us. Three months in the same apartment and never a hug. I'd start to open up and she'd put a flat hand out and we'd high-five, and that was the whole arrangement. She'd known me for years as a face in her mother's phone and then the face moved into the kitchen and she'd been walking a wide circle around it ever since.
 
@@ -94,7 +94,7 @@ Everybody slept in. America got the pool one more time. Rose wanted a proper bre
 
 It was after eleven before we rolled. Seven o'clock would have put us at her brother's house in daylight.
 
-We crossed into Sinaloa around midday and came down through Los Mochis in the early afternoon with the sun still high on the fields. Then Guasave. Then the long green run south, cane and tomatoes and irrigation water throwing light.
+We came down through Los Mochis in the early afternoon with the sun still high on the fields. Then Guasave. Then the long green run south, cane and tomatoes and irrigation water throwing light.
 
 Sometime after dark I noticed we hadn't paid a toll in a while.
 
@@ -190,15 +190,15 @@ I gave it to her. She walked it over and handed it up through the window.
 
 He counted it with his thumb. That's the piece I've never been able to shake — how routine it was. A man in an idling truck counting bills in the dark like a route driver collecting off a vending machine. He said something else short and she nodded twice and came back and said get in.
 
-We left before the tank was full. America said from the back, wasn't he going to finish, and Glenda said in a completely normal voice that we were in a hurry.
+We left before the tank was full. America said something from the back, in Spanish, and Glenda said something back in Spanish, and we left.
 
 I don't actually know what happened at that gas station.
 
 I got two different versions later at her uncle's kitchen table, days apart. In the first one the man was collecting — you don't pay the counter out there, you pay whoever the station answers to, and the counter is just paperwork sitting on top of an arrangement. In the second one he was nobody at all, some local with a mouth on him, and Glenda paid him because it was nine at night in the middle of nowhere with a kid and a gringo in the car and forty dollars is forty dollars.
 
-The two women told it different ways on different nights and neither of them ever seemed to think it mattered which. That's the thing I can't get comfortable about, even now. Not knowing whether I was standing next to something enormous or whether I got scared of a guy in a hat.
+The two women told it different ways on different nights and neither of them ever seemed to think it mattered which. That's the thing I can't get comfortable about, even now. Not knowing whether I was standing next to something enormous or whether they got scared of a guy in a hat.
 
-Either way it was my money. That part is not in dispute.
+Either way it was my money. That part is not in dispute.  Somebody got paid.  Somebody didn't.
 
 ---
 

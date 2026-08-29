@@ -32,10 +32,6 @@ Through the roar in my ears I heard Mateo. He'd come and knelt over me, the *map
 
 I'm all in. Not that I really had a choice
 
----
-
-## The Third Morning
-
 I told her about my daughter the next day, and that was its own small strange thing, because Glenda already knew about my daughter. She'd known for three years. I'd handed her the line early on the way I hand it to everybody — had a little girl once, lost her to adoption, up in Alaska, long time ago — and she'd taken it the way everybody takes it, which is carefully, and never brought it up again. Three years. Not once.
 
 So she had the sentence. She'd never had the thing.
@@ -44,7 +40,7 @@ I gave it to her out on that same patio, and I didn't get through it clean. The 
 
 Glenda listened to the whole thing with her hands flat on her knees.
 
-Then she said, she's twelve.
+Then she said, she's ten now.
 
 Yeah.
 
@@ -64,8 +60,8 @@ I'm not asking to be mean, she said.
 
 I know it.
 
-I'm asking because I've got the same problem from the other side, she said. She's got me twice and she's got him nothing. And you're over here with a whole father in you and nobody to give it to.
+I'm asking because I've got the same problem from the other side, she said. She's got me twice and she's got him nothing. And you're over here with a whole father in you and have America to give it to.  I had no idea what the fuck that meant.  I just remember it and that's why I'm putting it here.  
 
 Then she looked out toward the wall and the dogs up on the roof and said it again, the thing from the day before, in about the same voice you'd use to tell a man it's going to rain.
 
-It's coming for me, she said. Tonight or the next one. It let you have your turn.
+It's coming for me, she said. Tonight or the next one. It let you have your turn.  She still hadn't had her night, but it was coming.  I felt like she was trying to write a book.  The words didn't make sense. I thought about the movie "Full Metal Jacket", don't ask me why.  Who do you think you are Mickey Spillane?  That line in the movie.  It made sense in the movie.  I didn't say that, but I thought it.  She got weird on me.  I just wanted to hug her and tell her it was going to be okay.  I couldn't.

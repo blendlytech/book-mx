@@ -1,4 +1,4 @@
-# Chapter 25 — Eleanor
+# Chapter 25 — Yell Some More
 
 There's a sound I've never been able to get out of my head, and it isn't the garage door.
 
@@ -24,7 +24,7 @@ That's the picture I've got of that day and it's the only one that ever comes ba
 
 And Eleanor came around that corner and saw the crowd.
 
-She locked it up. Right in the middle of the road. She didn't pull to the curb and she didn't park — she just stopped the car where it was, sideways in the street, because she had come around the corner and seen thirty people standing in her son's yard on a Tuesday and she had done the arithmetic every grandmother on this earth does in about a quarter of a second.
+She locked it up. Right in the middle of the road. She didn't pull to the curb and she didn't park — she just stopped the car where it was, sideways in the street, because she had come around the corner and seen thirty people standing in her son's yard on a Tuesday and she had done the arithmetic every grandmother on this earth does in about a quarter of a second.  It's always a fucking Tuesday.
 
 She thought it was me.
 
@@ -100,7 +100,7 @@ I don't know how many times I did that. More than once. Enough that I can still 
 
 She never did.
 
-And nobody sat me down. There was no counselor and no conversation and no grief anything, not in that family, not in those years. The way it worked in our house is the way it always worked — the thing happens, the ledger closes, everybody goes in to dinner. I never said one word about it to another living person. Not to my father, not to my sisters, not to a girlfriend, not to a wife, not to a single soul in forty years.
+And nobody sat me down. There was no counselor and no conversation and no grief anything, not in that family or any family, not in those years. The way it worked in our house is the way it always worked in every house in that era — the thing happens, the ledger closes, everybody goes in to dinner. I never said one word about it to another living person. Not to my father, not to my sisters, not to a girlfriend, not to a wife, not to a single soul in forty years.
 
 Not until a man I couldn't speak one word to sang over me in a concrete room in Sinaloa, and the door came off the cellar, and my grandmother walked into that kitchen the way I'd been waiting for her to since I was eleven years old.
 
@@ -112,11 +112,11 @@ She caught me cheating at cards at that table and she told me there was one thin
 
 Then she died before I could be anything else in front of her.
 
-That's the piece I can't put down. It isn't the crash and it isn't the road and it isn't even the relief. It's that the last full accounting that woman ever took of me had *cheat* in it, and the ledger closed, and I have spent thirty-five years running exactly the kind of life that would prove her right. Telemarketing floors. Marks on a phone. A dead man's name on a lead sheet. Cut vodka. A steel cup with a beer in it so an eleven-year-old girl would think it was coffee. Every single one of those is that boy at that card table, still palming one, still hoping.
+That's the piece I can't put down. It isn't the crash and it isn't the road. It's that the last full accounting that woman ever took of me had *cheat* in it, and the ledger closed, and I have spent thirty-five years running exactly the kind of life that would prove her right. Telemarketing floors. Marks on a phone. A dead man's name on a lead sheet. Cut vodka. A steel cup with a beer in it so an eleven-year-old girl would think it was coffee. Every single one of those is that boy at that card table, still palming one, still hoping.
 
 I'd give about anything for one afternoon at that table now. Not to explain myself — I don't have an explanation, I've got a book. Just to sit down across from her and shuffle and let her see the whole thing and take the tongue-lashing I've got coming, because Eleanor was the only person who ever lived who could have given it to me straight and I'd have taken it from her and gotten up better.
 
-But she came around a corner in a car one afternoon and she stopped in the middle of the road because she thought it was me, and about six years later it was a car that got her instead, and that's the arithmetic. That's the whole thing. That's how it actually goes.
+But she came around a corner in a car one afternoon and she stopped in the middle of the road because she thought it was me, and about six years later it was a car that got her instead, and that's the story. That's how it actually goes.
 
 She got glad it wasn't me, and then she was the one who went.
 

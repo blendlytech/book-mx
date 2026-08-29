@@ -1,43 +1,54 @@
-# Chapter 41
+# Chapter 41 — It Had to Be Now
+One day I took the chance.
 
-Now I had the energy of three wild boars and just about the same mindset.
+I told Eric everything. I said I don't know if I can trust you, and I hope to God I'm not making a mistake doing this — but I'm being held hostage up here. They won't let me near the internet. That's why I don't know about your war or anything else. They keep me blind on purpose.
 
-The mission was clear and I was sure of it. It was pitch black, and I knew there wasn't a soul out there laying for me at that hour — no man was sitting on a mountainside at two in the morning waiting on the off chance a gringo came crawling past. It was the things with four legs I couldn't account for. I had no idea what I'd run into out there, and I couldn't see a foot in front of my face to find out ahead of time.
+And then I asked him. Could he get me the password. Whatever it cost me I'd make it worth his while — a pack of smokes, whatever I could scrape together. I made it clear right up front I couldn't get him free weed; I had to account for every gram of that and a short count was a thing I wasn't willing to find out the price of. But anything else I had, it was his.
 
-Mostly I was afraid of walking off a cliff. That was the real fear those first hours — not a man, not an animal, just stepping out into nothing in the dark and dropping off the edge of the world. So I went slow. Tiny steps, foot sliding out ahead of me, feeling for ground before I put weight down. Long stretches of wide-open desert where I could move a little, then trees — trees forever — where I went back to inching.
+Eric said he'd see what he could do.
 
----
+That was all I could ask, and it left me scared out of my mind. Because I'd just handed my life to a man I knew twice a week. I didn't know if he'd go straight to the boss with it, didn't know if I'd just bought myself another beating or worse, didn't know one thing for certain except that it was done and I couldn't take it back.
 
-The map had shown me two ways down, back when I still had a bar of signal to look at it.
+Two days later, the next time he came around, Eric handed me his money for the weed — and folded up inside the bills was a little scrap of paper.
 
-Go by the beach and it was about twenty-eight hours of walking. Go up and over through the mountains, the long way, the out-of-the-way way, and it was more — but the beach meant roads and towns and eyes, and eyes were the one thing I could not afford. So I went up into the mountains, where there was nobody to see me and nothing to see me by. I figured two days, maybe two and a half.
+There was a password written on it.
 
-I was right. It took everything I had and then some. It was hard and it was grueling, the hardest physical thing I have ever asked my body to do, and I'll tell you the truth even though it's not the part that makes for an inspiring story: I would not have made it without the coke. Hands down. That's just a fact. I went through two of the four bags in those two days. I'd walk five, six hours straight — the laptop my only clock, the one thing I had to tell me how long I'd been moving — then find a tree to put my back against, do a bump, and walk another five or six. Rinse and repeat, all the way down a mountain.
-
-The one mercy was the weather. Rosarito this time of year is just about perfect — no rain, seventies in the day, cool at night. If it had turned on me out there I'd have died out there. It didn't. The weather was the only thing on that whole mountain that wasn't trying to kill me.
-
----
-
-At night I could hear the coyotes.
-
-All around me, every direction, and close — or close-sounding, which when you can't see is the same thing. They yipped and howled and answered each other across the dark, and more than once it sounded like the whole pack was standing right on top of me. A twig would snap somewhere off in the black and I'd damn near jump out of my skin. Of course, by then I'd been awake two days running on cocaine, and a man two days deep on coke is going to find a way to be paranoid even in an empty room. Put that man alone on a mountain full of howling and you can imagine what my nerves were doing.
+I turned white. I'm sure I did. I felt the blood go straight out of my face. I wish it had been into those orange mocassins, cause I would have given anything to be in them at that point.
 
 ---
 
-Then there was the bobcat.
+I waited for the right moment, and the right moment was a hard thing to find by then.
 
-That was my one real close call, and it played out slow — slow enough to work on me for half a day. I'd glance back over my shoulder and there it'd be, way off in the distance, just a shape. I'd put my head down and walk another hour and look back and it was still there. Still coming. A little closer every time I checked. It tracked me like that through the whole back half of the second day, never rushing, just keeping me in sight and closing the gap by inches.
+The shifts had all gone to hell. They had other people working now, and the schedule changed every single day — I never knew when somebody was going to come walking in to pull me out for a shift or a chore or whatever else they'd dreamed up. I had to be careful. I had to wait until it felt safe, and "safe" up there was never more than a guess.
 
-By then I was about out of water, and the five-gallon jug — what was left of it — had gone from my lifeline to a dead weight I was cursing every step. Somewhere along the way I'd picked up a good thick length of bamboo, and I'd worked the end of it down to a point against a rock. It made a fair walking stick and, if it came to it, something close to a spear. I kept it in my hand the whole time that cat was behind me, and I kept thinking, all right, when you come, you come, and we'll see.
+When it finally felt close enough to safe, I got onto that laptop and I reached out to the first person I could think of.
 
-It never came. I looked back at one point late in the day and it was just gone — given up, moved on, decided I wasn't worth it. It never gave me one ounce of real trouble. All it ever cost me was a half a day's worth of pure dread, which up there was a currency I was already spending faster than I could earn it.
+Zach.
+
+My nephew. And when a message came back from him — when those words landed on the screen, from somebody in my own family, somebody who knew me before all of this — I damn near cried right there in that bus. After everything, after months of nothing but Spanish I couldn't follow and a radio outside the door, somebody who loved me was on the other end of a line again.
+
+I told him everything. The whole thing, start to finish, and I didn't expect him to believe a word of it. I wouldn't have. It reads like a lie even to me and I'm the one it happened to. But Zach didn't argue and he didn't doubt me — he just asked what I needed. And at the end of it he sent me his last sixty dollars.
+
+Sixty dollars. The last of what he had. It doesn't sound like much, written down, but it was a cab off that mountain and a chance at the rest of my life, and it came from a kid handing over everything in his pocket on the word of an uncle telling a story nobody could be blamed for not believing.
 
 ---
 
-On the morning of the third day, around nine o'clock, I came down off that mountain and into Rosarito.
+I have to back up and tell you what was really driving all of this, because it wasn't bravery. It was Glenda.
 
-I was coked out to the gills by then, hadn't slept in better than two days, and I was paranoid as all hell — every face I passed was cartel, every slow car was them, every man who so much as looked my way had been sent to find me. I knew it wasn't true, most of it. I knew it the way you know a thing and can't make yourself feel it.
+Glenda had vanished off the face of the earth.
 
-There was exactly one place in that whole town I knew would take me in. A place that did not want me, that had every good reason on earth to shut the door in my face — but one I knew, when it came down to it, wouldn't turn me away.
+By then it was March, and I hadn't laid eyes on her in two weeks. Understand what that meant. There was not a single day in all those months we'd been up there that I didn't see her — we lived in the same hollowed-out bus, traded the same desk, passed each other on the shift change. Lately she'd started slipping off for a few hours here and there and coming back drunk, belligerent half the time, mean to me when she bothered with me at all. But gone? Just gone, day after day after day? Never. That was new, and it was that — her being flat-out gone — that put the iron in me to ask Eric for the password as bold as I did. I didn't have anything left to protect by playing it safe.
 
-Reina's.
+The second day she didn't come back, I hid the laptop.
+
+I tucked it away out of sight and I prayed Omar would just forget the thing existed — or, if he remembered it, that he'd figure she'd taken it with her when she ran. On the third day of her being missing, Omar came into the bus looking like a man who'd seen a ghost. White, rattled, not himself. He pointed up at the top of the fridge where the laptop used to sit, the question plain on his face even without the language.
+
+I shrugged. *Where's Glenda?* I said, and spread my hands. *She's gone. Laptop's gone.* And I shook my head slow, like the two facts were one fact and neither one was anything I knew the first thing about.
+
+He just turned around and walked out.
+
+For a second that made me think she'd actually gotten away — that she'd run, taken her shot, made it. Then the doubt came in right behind it, the way it always does, and it brought the worst thoughts with it. That they'd killed her. That she'd gotten too cocky, too loose, too open with the drinking, and the wrong people had found out — or that somebody had caught her with Omar and that was that. I didn't know. I couldn't even be sure Omar knew. His face that morning could have meant either thing.
+
+But here's what I did know, lying there with a stranger's password hidden in my head and sixty borrowed dollars somewhere out ahead of me. Whether she'd run or whether they'd put her in the ground, she was gone — and a man whose woman has just disappeared off a cartel mountain is not a man they were going to keep around much longer.
+
+If I was getting off that mountain, it had to be now.

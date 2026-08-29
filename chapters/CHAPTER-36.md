@@ -1,67 +1,90 @@
-# Chapter 36
+# Chapter 36 — Singing on the Way Up
+It was one of the longest rides I have ever taken in my life, and almost none of it had words in it.
 
-Before long I was running it on my own — counting my own bags out, turning in my own money, picking up my own rice and beans at the end of it.
+Silence, the whole way up. Just the radio — Mexican music, the kind that fills a car whether anybody's listening or not — and every so often one of the four men would catch a hook he liked and sing a line of it under his breath, easy, like we were all out running an errand together. Like there wasn't a man in the back with his life being driven out of him by the mile.
 
-The guys in the yellow house got used to seeing my face. Friendly enough, in their way. They called me gringo, always with this little sideways grin, like they knew exactly how insane this whole arrangement had to be from where I was standing and found a quiet kind of comedy in it. And here is the thing nobody tells you about a nightmare: you get used to it. Give a man enough mornings of the same routine and even this — counting cartel dope onto a table under a camera while armed men watch from a roof — even this just becomes a job. That's the part that still unsettles me most, looking back. How fast it became a job.
+Then we were there. The end of the line.
 
-Glenda was getting more freedoms by then, and our shifts only overlapped a few hours. I took nights — seven in the evening to nine in the morning. She took days, six to eight. The math was simple and on purpose: somebody was always sitting at that desk in front of the bus, selling, around the clock. The mountain never closed.
+They'd already zip-tied our hands behind our backs somewhere along the way. And as the Escalade rolled to a stop, I saw it — Omar, setting up the same two folding chairs, right out in front of our old bus. The home we'd had for two days before we ran. He stood them up just about exactly where they'd been for orientation, that first morning, a lifetime and a week ago.
 
----
+Omar looked at us, and the look was betrayal, plain and pissed. But he didn't look like a man who'd won anything. He looked like a man who'd been beaten half to death himself — two black eyes coming up dark, a fat split lip, moving around stiff and careful like every step cost him. He'd worn our escape on his own body before we ever got dragged back to pay for it. And looking at him I understood, calm as anything, that this was a preview. I'd be wearing that same face soon. And then I'd be dead.
 
-You learned the law of the place fast, because your life ran on knowing it.
+I stepped out of that SUV with nothing on my face at all. There was nothing left to put there. Just a man who already knew he was dead and had made his peace with it on the ride up.
 
-The municipal police were bought and paid for, every last one of them. As long as the truck rolling in said *Municipal* on the back, you had nothing to worry about. They'd pull right into the camp in broad daylight, the cops and the higher-ups standing around chatting and laughing like men who'd known each other since grade school, and then they'd get back in the truck and drive off. I watched it happen more times than I could count. It never stopped being crazy to me, watching the law pull in for a friendly visit to a cartel dope camp. Bought. All of it bought.
+Glenda hadn't. The second she saw Omar, what was left of her composure went, and she started crying — really crying, the kind that comes up from somewhere a person can't control. It had all landed on her at once, the full weight of where we were and what it meant.
 
-The Army was the one that put the fear in everybody. The marines — the real ones, riding around in trucks with soldiers standing in the back manning gun turrets. You'd see them out on the roads sometimes and it was a sight that loosened your knees. Those men could not be bought, and they knew it and carried themselves like it. Get caught so much as snapping a photo of one as a regular pedestrian and they'd cuff you, beat the snot out of you, and take your phone for the trouble. But up on that mountain you'd always have warning — that's what the lookouts were for, men posted where they could see for miles, and a marine convoy couldn't come up that road without being clocked long before it arrived. The bought men came right in the front. The ones who couldn't be bought you saw coming from a long way off.
-
----
-
-Glenda started disappearing.
-
-A few hours after her shift she'd be gone, and she'd come back noticeably drunk and walk into the bus and pass out without a word. It was Omar's doing — the liquor, the time away. And to this day I don't know for certain whether he was sleeping with her. But I've got a strong suspicion, and I've had to learn to live in the gap between suspecting and knowing, because that's the only place I'm ever going to get to stand on it.
-
-She'd gone different on me, and I knew exactly when it had started. The walk to the bank. The walk where I'd told her I was done, that I was leaving, that I'd hand her some money and a direction and disappear back across the line. She was never the same with me after that. I think — I know — she believed I was going to abandon her up there, leave her behind for the cartel to do with as they pleased and never look back. And the reason that one cut so deep, the reason I couldn't argue my way out of it, was that it was true. It was exactly what I'd planned to do.
-
-I tried to take it back. I told her I hadn't been in my right mind, that I'd been terrified and lost and saying things a scared man says, that I saw it clear now — that we only had each other up here and we had to be a team or we were finished. I meant it, too. The mountain had burned the leaving right out of me. But she wasn't hearing it, and I couldn't blame her, because why would she believe the man who'd already shown her the door once. She got short with me. Cold. There were stretches where it felt a lot like hate.
-
-And then she'd sit at that desk and flirt with the men who came to buy from us. I'd watch it through the crack of the bus door — the laughing, the touching, the smiling up at them. All the things she used to do with me, handed out to strangers buying meth in the dark. I was losing her. No — I'd lost her already; I was just watching the proof of it come in nightly. I have been alone plenty of times in my life, alone in jail cells and strange cities and the backs of other people's houses. I never once felt as alone as I did in that bus, four feet from the one person on earth who was in it with me, watching her give everything that used to be mine to anybody but me.
+Sit, Omar told us, hard, and we sat.
 
 ---
 
-There was one thing that saved me. One thing that kept my mind from going all the way over the edge.
+We sat there a long time. Could have been an hour. Just us and Omar and one other man from the ride up, the two of them waiting on somebody who wasn't there yet.
 
-A cat.
+The boss, I figured. I figured he'd want to do it himself. A man dressed like that doesn't drive an hour and a half into the mountains and then let a flunky handle the ending. He'd want the bullet to be his.
 
-Clayita. She was just a baby when she first introduced herself to me — and introduced is the right word, because that cat decided I was hers, I didn't get a vote. She was all spunk, and her eyes — I've never seen eyes like that on an animal, before or since. There was something behind them, some real intelligence looking back out at you, taking your measure and deciding you were all right.
-
-She'd climb up on my chest, turn one slow circle, and plop down right under my chin. Sit a second. Then get up and do the whole thing again an inch higher up my face, and again, until she was laid out over my mouth, purring like a little engine. She followed me everywhere I went. If you saw me selling, she was within arm's reach or flat-out in my lap. The customers started calling her Clayita. The guards too. It means *little Clay* — she'd become so much my shadow that the whole mountain had taken to naming her after me.
-
-That cat got me through nights I am not sure I'd have gotten through otherwise. She was my best friend and my buddy and my shadow.  It took me 20 minutes to write this next line as I couldn't help but break down.  I just cried like a baby. I shared everything I had with her, which was rice and beans and water, and she took it and stayed. When you have lost the woman you love while you're both being held prisoner on a drug mountain, a half-wild kitten deciding to love you anyway is not a small thing. It might have been the only thing.
+Glenda's crying had worn itself down to a small whimper by then. She was talking, low, in Spanish — the shape of it was pleading, I didn't need the words to hear that much — and Omar answered her fast and flat and short, no feeling in it anywhere. Whatever she was asking for, I knew from the sound of his voice it had fallen on ground that wasn't going to grow it. There was nothing coming. There was no version of this where the begging worked.
 
 ---
 
-There was a couple who hauled the feed in for the animals — pigs, chickens, horses, the whole ranch end of the operation, kept in a barn about seventy-five yards off from the buses.  They started bringing me bags of cat food for Clayita and I was forever greatful as was Clayita.  They would evern bring her her own bowl and those little fancy feast wet food packets sometimes.  The cat ate better than me.  Of course the couple didn't know I was being held against my will and they didn't speak a lick of English.  They, I guess, were just cat lovers and took a likeing to Clayita who wouldn't let another soul touch her but me and then that couple.  I suppose she could be bought like the rest of us.  I would have let anyone touch me anywhere for a hamburger at that point.
+Then a white BMW came up through the dust.
 
-There'd been a cart for moving the feed once, but somebody had burned the motor up on it, and so now it got carried, and carrying it became my job. Those bags were heavy as sin. I hauled feed across that open ground for a solid month before they decided I might as well do the rest of it too — feeding the animals, and then, before long, shoveling out the stalls, cleaning up their mess. hauling and feeding and mucking, Clayita trotting along at my heel through every step of it like a little foreman keeping an eye on the work.
+The driver got out and opened the rear door, and the boss stepped down out of the back of it — that sharp dress, that hat, those boots, no name to him still, the same man who'd put one of those boots in my chest a week before. The two back doors opened and the rest of his men came out behind him.
 
-And then they invented a game.
+I sat there and looked at the boots that were about to be up my ass.
+
+His son wasn't with them this time. Which meant I wasn't going to understand a word of what came next — there'd be no translation, just sounds and then whatever the sounds bought. The boss was angry, that needed no translating. He came in hot, yelling toward Glenda. Then he stopped. One of his men handed him the money — our money, the money I'd gone to war a full week to get my hands on — and he counted it, right there in front of us, slow, and folded it into his pocket. Then he looked back at the two of us with a flat disgust, like we were something he'd stepped in.
+
+He said something short and almost gentle, the way you'd give an easy instruction.
+
+And they took Glenda off her chair and beat her nearly to death while I watched.
+
+I'm not going to dress this up. They kicked her — her face, her ribs. They went at her legs with what looked like nightsticks. One of them pulled his belt off and whipped her across the back and the head with it. And I sat there four feet away with my hands tied behind me and I could not do one single thing on this earth to stop it. Not one thing. I have never in my life felt anything close to that kind of helpless, and I have prayed every day since that I never feel it again. I was sure, watching it, that they were going to finish her right there in front of me.
+
+Then they stopped. All at once, the way they'd started.
+
+She lay in the dirt whimpering, bleeding from more places than I could count, her eyes already swelling shut, her whole face going puffy and wrong.
+
+And my mind, with nowhere else to go, went where a mind goes at the end. It went to her daughter. To her mother. To the whole family who would never know what became of her, who'd just have a hole where she used to be and no story to fill it. And then it went to mine. My own daughter, who was never going to know me now, my family — and I thought, maybe that's for the best, maybe a stranger, the unknown, is the kindest thing I could've left her and my family. My family would figure I'd finally fallen down some drunken, drug-soaked hole and never climbed out, that I'd written them all off and disappeared. They'd never know the true story of any of it. And lying there at the edge of it, I decided that wasn't the worst thing either. Maybe that was just how it was supposed to go. Maybe that was how it had to.
+
+Then the boss said one more thing, and a pair of hands took me from behind and put me face-first into the dirt.
+
+And it was my turn.
+
+Same as hers. The kicks, the fists, the nightsticks, the belt, everywhere at once, no part of me they didn't reach. Somewhere in it the pain took me all the way under and I blacked out.
+
+I did not cry. Not once. I want that on the record, because it's the only thing I had left to give or to keep, and I kept it.  A man who by every account would have been considered a pussy his whole life. I would not give them that.
 
 ---
 
-It went like this. I'd feed the animals and clean the stalls while they ate, and then I'd start the long walk back across the open ground toward the bus. And they'd wait. They'd let me get out to about ten yards from the door — close, close enough to taste it — and then somebody would let the dog go.
+When I came to, the first thought through me was simple and stupid and animal: *I'm still alive.* And right behind it: *is she?*
 
-A German shepherd. And I'd run, and I'd just barely make it, banging through that bus door a half-step ahead of its teeth, and the men would laugh and laugh like it was the best thing they'd seen all week. Ten yards. I could make ten yards. I made it every time, and every time they howled, and I started to understand that the near-miss *was* the game. They didn't want the dog to catch me. They wanted to watch me run for my life and just barely win.
+I got my head turned — arms still wrenched behind my back, cheek in the dirt — and looked back the way I'd come, and there she was. Eyes shut. Black and blue and swollen past knowing. But breathing. I could see her ribs lifting. She was breathing.
 
-Until the day they got bored of that and decided they wanted to see the other thing. They wanted to see what happened when I lost.
+And then, for no reason at all, for nothing, one of them stepped in and kicked me square in the ribs again.
 
-So this time they let it go when I was a good twenty yards out. And twenty yards was too far, and I think I knew it was too far before my second step.
+I hadn't felt much when I first came around — the body has its mercies, it holds the bill a minute — but that one kick tore the curtain down and I felt all of it at once, the entire ledger of what they'd done to me, every blow landing again in the same second. All I could do was hold the groan down in my throat and keep it there, let as little of it out as a pussy can manage.
 
-I ran anyway. You always run. The shepherd ate the ground between us like the distance was nothing, and I heard it coming before I felt it — that low sound a serious dog makes that isn't barking at all. Barking would've been a mercy; barking is a dog telling you to leave. This was a dog that had already decided. I didn't make fifteen yards before it hit me. Teeth sank into the back of my ankle and clamped down to the bone, and the whole world tipped sideways and the dirt came straight up to meet my face. The pain went through me white and total — I was sure, lying there with that animal locked onto my leg, that it was going to take my foot clean off the end of me, just unscrew it and trot away with it. And behind me, over the sound of my own self trying not to scream, a yard full of grown men were laughing and yelling *GRINGO* like it was Christmas morning.
+I didn't come up that mountain a real man. I knew that about myself better than anybody. But I'd be damned if I wasn't going out as one — in their eyes, at least. It was the last thing left that was mine to decide.
 
 ---
 
-They had to call the dog off and tend to me, in the end, because they'd damn near let it bite clean through my ankle. They bandaged it up. I couldn't haul feed for another week behind it, which I think is the only reason any of them caught hell for it at all — the boss heard how it went, heard that they'd cost him a week of his pack mule over a game, and the men got in some trouble over me.
+So I waited for it. And I'll tell you something I've never been able to fully explain to myself since: I wasn't just waiting. I was begging for it, silent and inside, *please, now, get it over with.* Waiting for the gun to come out. For it to be quick.
 
-So they never ran that one on me again.
+And it did. I felt the barrel come down against the back of my head, cold, the actual metal of it pressed to my skull, and every cell in me went still. *Any second now. Holy shit. This is it. I'm about to die, for real this time.*
 
-They just went looking for another game. There was always another game. That was the thing about the mountain I came to understand all the way down in my bones: the cruelty wasn't a means to anything. It wasn't to make me work harder or sell more or behave. The cruelty was the entertainment. It was just what there was to do up there for fun.
+Then a hand took me by my bound arms and hauled me up onto my feet, the barrel never leaving my head, and turned me, and walked me — pushed me, really, muscled me — toward the bus. And the second I hit that doorway, I knew. I knew I was going to live.
+
+Because you don't shoot a man inside a perfectly good hollowed-out bus. That makes a mess somebody has to clean, and I hadn't seen a single tarp laid out anywhere on that mountain. A man whose whole world has shrunk down to the next thirty seconds notices a thing like that. No tarps. I was going to live.
+
+And I want to tell you I felt relief. I didn't. What I felt was disappointment, clean and bottomless. I had done the hardest thing there is — I had accepted my own death, signed off on it, given it my permission — and they'd reached in and taken even that away from me. For what? What was left that could possibly be worth keeping me for? Whatever came next, I knew in my gut it wasn't going to be a mercy.
+
+I felt the zip tie cut, and my arms came unwrenched and just folded down onto the dry, filthy floor of the bus on their own, like they weren't mine anymore. More Spanish I couldn't touch came down at me, fast and hard. I was frantic, scrambling. *No comprende. No comprende — what do you want, what do you want me to do.* He got angrier and jabbed his hand toward the back. The bed. He wanted me on the bed.
+
+I tried to move and could barely do it. Everything hurt. Everything felt broken, every inch of me, and as I dragged myself across that floor a sound came up out of me I didn't choose and didn't want them to have — a long, loud *ahhhhhh* I couldn't swallow back down. I'd held the groans through the worst of it and then lost one crawling to a bed. I made it up onto it and bled all over it.
+
+Then they brought Glenda in, dropped the same way I'd been dropped, her ties cut, and the door slammed, and they were gone.
+
+And we were alone. The two of us, beaten down to nothing, in the dark of that black-glassed bus.
+
+I still wasn't going to cry. I collapsed onto my side and I hurt in a way I did not know a body could hurt — I couldn't so much as blink without feeling it ring through the whole of me. I just lay there and looked at her. She was crying and couldn't stop, and every time she shifted even a little a raw *owe, owe, owe* would tear out of her and then fold back into the crying.
+
+I didn't have anything to give her. I didn't have anything at all. I just looked at her across that bus, dead inside, and felt nothing, because nothing was the only thing left in me to feel.

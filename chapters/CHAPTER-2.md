@@ -1,4 +1,4 @@
-# Chapter 2
+# Chapter 2 — Orange Moccasins
 
 My name is called. I feel the blood drain out of my face and pool somewhere down around my orange jail-issued moccasins. The cold takes me one bone at a time, and every orifice in my body clenches shut. This is it — the moment I lose my freedom. It's going to be a year this round, at least. My last stay was thirty days and it felt like thirty years, and that was the same woman, the same drunken bullshit standing me in front of this judge now.
 
@@ -60,7 +60,7 @@ One problem: I had one last night with the boys lined up for Thursday. One final
 
 I figured, what the hell. I'd stayed sober Tuesday and Wednesday. I could trust myself for one night. I didn't need to drink to have fun. I could control it. Which quickly became: I can drink, I just won't get out of control. I'll be responsible, I won't take her bait when I get home. It'd be fine.
 
-I had a plan. Drink, have fun, go straight home to bed. No overdoing it, nothing I'd regret. I once had a boss tell me that you can't solve a drinking problem with a drinking plan. I'll never forget that. 
+I had a plan. Drink, have fun, go straight home to bed. No overdoing it, nothing I'd regret. I once had a boss tell me that you can't solve a drinking problem with a drinking plan. I'll never forget that.
 
 We had a hell of a last night. Hung at our spot, the Orleans, got drunk, gambled, and nobody got hurt or lost anything but their paychecks. I'd burned through all but a hundred bucks of mine, and payday was midnight Friday — just before my plane left Saturday.
 

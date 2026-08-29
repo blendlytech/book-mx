@@ -1,10 +1,10 @@
-# Chapter 11
+# Chapter 11 — Quiet as a Paper Cut
 
 The good run doesn't end in a fireball. It doesn't end with a Vegas suite getting raided or a cinematic shootout.
 
 It ends quiet as a paper cut.
 
-It ends on a Friday afternoon when I open an envelope expecting a paycheck and find an invoice instead.
+It ends on a Friday afternoon when I open an email attachement expecting a copy of a paycheck and find an invoice instead.
 
 Two thousand four hundred dollars. Payable by me, to the company I’ve spent two years making rich. It’s one of the most expensive pieces of paper I have ever held and it wasn't the last one to come.
 

@@ -20,21 +20,15 @@ Carrie was the youngest of my three sisters, which made her the closest one to m
 
 So we went at each other. For years. Not the cute kind of sibling thing you tell at a Thanksgiving table — the real kind, the kind with hair in it. We could not be in a room together for eleven minutes.
 
-And here's what I want on the page about her, because I've never said one word about it anywhere else in my life.
+And here's what I want on the page about her.
 
 Carrie pinched every penny she ever touched.
 
-That's the thing everybody in the family said about her, usually with a little laugh in it, and it always got said the wrong way. She wasn't cheap. She wasn't greedy — Lord, she was the least greedy person that family ever produced. She was *smart.* That's all it ever was. She knew what a thing cost. She knew what she had. She could tell you to the dollar what was in her account on a Tuesday in March, and I have never in my entire life been able to tell you what was in mine on any day of any month, and that right there is the whole difference between my sister and me laid out in one sentence.
+That's the thing everybody in the family said about her, usually with a little laugh in it, and it always got said the wrong way. She wasn't cheap. She wasn't greedy — Lord, she was the least greedy person that family ever produced. She was *smart.* That's all it ever was. She knew what a thing cost. She knew what she had. She could tell you to the dollar what was in her account on a Tuesday in March, and I have never in my entire life been able to tell you what was in mine on any day of any month, and that right there is the whole difference between my sister and me. And I would rob her every chance I got.
 
-She had money when nobody else had money, and it wasn't luck and it wasn't help, it was arithmetic, done quietly, every single day, for thirty years, by a woman nobody in the family ever once thought to ask for advice.
+She had money when nobody else had money, and it wasn't luck and it wasn't help. It was done quietly, every single day, for years, by a woman nobody in the family ever once thought to ask for advice.
 
-I was the other kind. I've had a hundred thousand dollars come through my hands in a year and not one dollar of it stay. I've been the guy buying the table a round on Friday and calling his sister for rent on Monday. My whole life is a story about a man who never once did the arithmetic.
-
-She had every right to look at me sideways. She never did. Not once. She counted everything on this earth except what her little brother owed her.
-
----
-
-I need to tell you what I did on Facebook.
+I was the other kind. I've had a hundred thousand dollars come through my hands in a year and not one dollar of it stay. I've been the guy buying the table a round on Friday and calling his sister for rent on Monday. My whole life is a story about a man who never once did the math.
 
 Somewhere in there — years before Mexico, years before I ever heard the word *ayahuasca,* back in the Vegas-and-after stretch when I was drinking like it was a job I was good at — I got up around two in the morning and I found David's sisters online.
 

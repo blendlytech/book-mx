@@ -1,4 +1,4 @@
-# Chapter 8
+# Chapter 8 — It Looks Like Dinner
 
 Here is the part nobody warns you about. The trap that finally gets you almost never looks like a trap.
 

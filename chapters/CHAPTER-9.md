@@ -1,4 +1,4 @@
-# Chapter 9
+# Chapter 9 — The Most Fucked-Up Family
 
 The plane put down in Vegas a little after noon and the heat came up off the jet bridge to meet me, a hundred and some degrees of *welcome home.* And that was the truth of it, the sick joke I'd flown two thousand miles north and gotten beaten and jailed and resurrected on a dead man's laptop trying not to learn: Vegas was home. You can run clear to the edge of the country, up where the bears eat the tourists, and the table still pulls you back to the same seat.
 

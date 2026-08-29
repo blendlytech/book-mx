@@ -1,4 +1,4 @@
-# Chapter 12
+# Chapter 12 — The Yeti and the Bush
 
 Inside the first month under my father's roof I did the one thing I have always known how to do when the floor goes out from under me. I got a job.
 

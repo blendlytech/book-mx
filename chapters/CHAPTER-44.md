@@ -1,87 +1,46 @@
-# Chapter 44
+# Chapter 44 — Reina's
+The dread on Reina's face was real. The dread on her husband's face when he got home that evening was realer still.
 
-Like I said, I came into that city with no plan. I knew how to get exactly one place, and that was the rehab.
+I didn't tell them what was going on. I'd learned that much. I told her I was waiting on some money, that everything was fine, that all I needed was to crash in the corner for a day or two. She didn't want to let me — God love her, she did not want me in that house with her babies sleeping in it — but she caved, in her broken English, because she was the kind of good that can't quite make itself say no to a man with nowhere left to go. I made myself small and I made no sound. I curled up around my book bag on her floor and I was gone before my head settled.
 
-I still knew the owner. And here's a thing I have to tell you, because life doesn't care how clean your symbols are: his name was Omar. The same name as the man who'd locked me in a bus and stood by while I was beaten and run down by a dog for sport — that exact name belonged to one of the kindest men I have ever known, who lived in a house directly across the street from the rehab and was, in every way that counts, the other Omar's opposite in this world. I'd been inside that house. I'd met his kids. He was the one who'd given us the okay to run our little call center out of his building back at the start of all this. He also kept apartments around the city that he rented out to people just coming off their time in the rehab, and that was my whole play: get to Omar, and pitch him on letting me hole up in one of them for a few weeks.
+I woke up to the whole family eating dinner.
 
-So I walked the last of the way to his door and I knocked.
+Her husband looked at me across the room, and then he looked away. He was furious, and he couldn't believe I was back under his roof, and I couldn't blame him for a single degree of it. I told Reina that Glenda was back in Mexicali — I don't know why I said it, except that it was the kind of normal, hopeful thing a normal man on his way somewhere might say, and I needed them to see a normal man on his way somewhere. I told her I was just waiting on money so I could get to her.
 
-You have to picture what I looked like. Three days in the desert. No water for the back half of it, no sleep for any of it, coked down to nothing, lips split, filthy to the bone. Not good. Not good in a way that would scare a stranger.
-
-His kid answered — one of them, two years older now than the last time I'd seen her and showing every day of it, somewhere around eleven, and I'm ashamed to say I couldn't pull her name up out of the wreck of my head. These were people used to seeing men who looked like me. Just not at their front door. Inside the rehab, behind the fence, sure. Not standing on the welcome mat. I asked for her dad. She turned and yelled for him, and I thought, thank God, he's home.
-
-Omar surfaced. A man in his forties like me, a kid at heart, the kind of guy who's always got a joke loaded and ready. No joke now. He took one look at me and the blood went out of his face. *What happened to you?*
-
-And I came apart on his doorstep.
-
-Omar, I said, you would not believe it, man. I was kidnapped by the cartel. I think Glenda's dead. I don't know what to do. I just walked three days out of Rosarito and I've got nowhere to go.
-
-His eyes went wide as saucers. I was crying by then, full on, the whole thing finally catching up to me on a doorstep in Mexicali. *It's okay, man,* he said, soft, the way you talk to something hurt. *Come on. Let's get you cleaned up. Get you a shower, get you something to eat, get you some sleep. Then we'll talk.*
-
-I was past arguing. I was past everything. Okay, Omar. Thank you.
+The truth was I had no idea on God's earth what I was going to do.
 
 ---
 
-*You have to sign this before you go in,* he told me, almost apologetic about it. *It's a legal thing. Don't worry about any of it — I'll be back in the morning and we'll figure it out.*
+So I started working my Facebook Messenger, except this time the product I was selling was my own survival.
 
-I signed.
+I reached out to a friend in LA. He said he'd let me ship my ID to his address — seven to ten days for it to come — and then he'd drive it down across the line to me himself and bring me back over. The play was that I'd just be a guy who'd crossed for the day and was coming home, nothing to see, and I'd pray they didn't dig. It wasn't a clean plan. It wasn't even a good one. But a plan with an ID at the end of it beat crossing with nothing in my hands, which was no plan at all, just a slower way of getting caged.
 
-Again. The same kind of paper I'd signed walking into this same world two years earlier, the admission form that turns a person into a patient with the scratch of a pen. I'd come down to this country the first time to *use* a building like this one, to run my con out the back of it, and here I was signing my way into it for real, for the second time, with everything I owned in a book bag and a dead woman's name still on my mind.
+Then I reached out to Brandy.
 
-First thing they do is the piss test. I failed it. Coke, obviously — it was the only reason I was standing up. And then they found the bag of weed I'd been carrying since the mountain and had completely, honestly forgotten was even on me.
+I've told you about my sister Brandy. The steady one. The one who'd reached into the hole and pulled me out before, more than once, and never made me crawl for it. She hadn't heard a word from me since the Christmas money our mom had sent early, months back and a whole lifetime ago. I laid the entire story out for her, and saying it out loud to Brandy it sounded exactly as insane as it had sounded to Josh, exactly as made-up — kidnapping, a mountain, a cartel, a walk down out of it. All I was asking for was help getting a room for a week, somewhere to lay low until my friend showed up with the ID.
 
-So now Omar didn't believe a word of it. Why would he. A strung-out gringo turns up at your door at the end of himself with a wild story about cartels and kidnappings and a murdered girlfriend, and then he blows hot for coke and you find dope in his bag. There's a much simpler story that fits all of that, and it's the one anybody sane would land on: the man isn't a kidnapping survivor, he's just an addict who went all the way down and is dressing it up. I don't blame Omar for reading it that way. I'd have read it that way too.
+And Brandy said no.
 
-They stripped me, showered me, and put me in detox for two weeks. No Omar. No laptop. No way to reach a soul on the outside. And still — after everything, after all of it — still not one word of Spanish in my head.
+I'd always known, somewhere I didn't look at too often, that there was a bottom to even Brandy — that you could only reach into the same well so many times before the person on the other end of it had to choose between you and themselves, and finally chose right. This was that day. The day she wouldn't. And here's the part that still gets me: she didn't say no out of anything but love. She wouldn't fund me hiding in an Airbnb in a cartel town. What she wanted was for me to walk to the border and into the arms of the American Consulate, where her little brother would be safe.
 
----
+I understand completely why she pushed me there. I do.
 
-They walked me back toward detox, and on the way we passed it.
+But I'd told you a chapter ago how that road ends for a man with no ID and two warrants and a place of birth that lights up the second anybody pulls the thread. It doesn't stop with the Consulate, and I don't believe for a second the Consulate itself is in anybody's pocket. It doesn't have to be. They'd have to hold me somewhere while they figured out who I was, and "somewhere" is a cell, and a cell is exactly the kind of place the cartel can reach into through one bought hand. So I wouldn't do it. I damn near begged her not to make that the only door she'd hold open. I asked, if not a room, then just a ride to Mexicali — I had people there, friends from our four months, the rehab. She'd help me cross the border and not one inch further. That was the line, and it didn't move.
 
-The call center. Empty now. Dark. Ten duct-taped desks where the whole thing had been born — the deal, the reason I'd come down, the first link in the chain that ran straight from this room out to a black-painted bus on a mountain two hours west.
-
-That's where this all started, I thought, and I stood there a second looking at it and I let myself do the math I'd been avoiding for months.
-
-If Zaul hadn't gotten flashy. If he hadn't gone and gotten himself killed over a gold chain and a BMW. None of this happens. I'm still on a beach in Puerto Peñasco. America's still in her school down there with her friends. We've still got our little family, the three of us, the closest thing to happy I ever stole. Rose maybe still has her wreck — that was the road's fault, not Zaul's — but if she does, we drive to her and we come back, and I've got the money to take care of it, because the money never stops, because the man who ran the money never disappeared.
-
-I was furious about it, standing there. And then, fast behind the fury, I was just sad. Sad for Zaul, who I figured was in the ground same as Glenda. And I found I couldn't lay it on him, not really, not when I was honest. Zaul vanishing was the match. But I'm the one who built the whole house out of kindling and then went looking for a flame. Every decision after he disappeared was mine. The drinking, the coke, the Rosarito hole, the lies, the debt, every single turn that walked me up that mountain — mine. I could have done it all differently. I don't know exactly how. But I know that I could have, and that's enough to keep a man honest about whose bed he's lying in.
+I don't hold it against her. She didn't know what was true and what wasn't. Nobody did. By then I'm not sure even I did. The whole thing had gone so far past unreal that the realest people in my life couldn't tell my truth from a junkie's story, and why would they.
 
 ---
 
-Two weeks in detox, and then they moved me into general population. The wrong side of the cage.
+So I went to Reina. And I hated myself for it.
 
-Two more weeks of that — a hot bunk in a room with hundreds of other men working their way back from the same cliff, give or take. I still knew a lot of the faces from before. A lot of them still spoke English. And every one of them took me in with open arms, the way that place takes everybody in, no questions, no judgment, here's a bunk and here's your people now.
+I asked if she could help me get a shared ride up to Mexicali — just that, just enough to get me out of Rosarito, where I was dead certain by now they were turning over rocks looking for me. That family, who wanted nothing in this world but for me to be gone from their home and their children's lives, scraped together five hundred pesos — thirty American dollars — and booked me the ride themselves. It left the next day.
 
-I didn't tell a single one of them my story. I just let them think I'd fallen, like everybody there had fallen, and left it at that. Some things you don't hand to a room. Some things you can barely hand to a book.
+The last thing I did before I tried to sleep that night was reach out to Glenda's family again.  They had already told me once they didn't know where she was and hadn't heard from her.
 
----
+They still hadn't heard from her. Not a word, not since before any of it. And I sat there on that floor and let that land, because Glenda's people always heard from Glenda — there was no version of her free and breathing somewhere that didn't get word to her mother and her daughter. If nobody on her side had heard anything, it meant there was nothing to hear.
 
-But I have to back up, because the thing that knocked the world sideways happened while I was still in detox.
+Which told me what I'd been refusing to know since the morning she didn't come back.
 
-I was being walked down to the lunchroom one afternoon when I saw him.
+She was gone. Killed. In the ground somewhere on that mountain or off the side of some road below it.
 
-Zaul. Bigger than shit, standing right there in the flesh.
-
-My jaw came unhinged. I'd buried this man in my head. I'd mourned him, blamed him, forgiven him, laid him in the ground next to Glenda and made my peace — and here he was, breathing, in a rehab t-shirt. *Zaul!* I yelled it across the room before I even decided to. His head came around, and his own jaw dropped, and he crossed straight to me and threw his arms around me.
-
-I hugged him back. I also, in the exact same second, wanted to knock him flat on the floor.
-
-What *happened*, I said.
-
-Turns out I'd had it half right. There *were* bad people after him — that part was true — but they never caught up to him. What got him was himself. He'd gone down deep into drugs and gambling, run to Mexico City, and holed up there for six months getting more and more wrecked until he got himself arrested. And then Omar — the same Omar, the good one, the one across the street — went and pulled him out of whatever hole he'd landed in, brought him back to Mexicali, and checked him into his own building on the wrong side of the cage. Zaul had been a patient there going on four months.
-
-He apologized up and down, every way a man can say sorry.
-
-You have no idea, I told him. You have no idea the tailspin you put me in when you vanished.
-
-*Hey, man,* he said, already half-grinning, the old Zaul surfacing through the rehab haircut, *we can still get that call center back up and running.*
-
-Good luck, I said, finding another solar company on earth willing to play it the way that one did. That was a once-in-a-lifetime thing, Zaul. But — yeah. Who knows.
-
-What I was thinking was: no. Never again. Not with you, not with anybody, not ever. But you learn not to say the whole truth out loud to a man who's just hugged you.
-
-Then his face changed, the grin going off it, and he finally asked the real one. *So what happened to you, man? Why are you back here?*
-
-Long story, I told him. Maybe I'll tell you sometime.
-
-Right now I just need to speak with Omar.
+And I was getting in a shared ride to Mexicali in the morning.

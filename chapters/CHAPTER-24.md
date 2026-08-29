@@ -42,7 +42,7 @@ But we played. God, we played. And when the cards were done she'd come in and ta
 
 She got me into wrestling. She was an absolute fanatic — Hulk Hogan, the whole circus. She had a guy in the neighborhood who got her bootleg tapes, and the way she said it was *this colored fella I know,* which is what a woman of her time and place said and thought nothing of, and I'm leaving it on the page the way it came out of her mouth. That's how I saw the first WrestleMania — a copy of a copy, tracking lines rolling up the screen, the two of us on that couch on a Saturday.
 
-And one Sunday when Ginger came to get me — my father's second wife, the woman who all but raised me, who is owed a couple of chapters of her own in this book and is going to get at least one — my grandmother said, apropos of Hulk Hogan and in front of God and everybody:
+And one Sunday when Ginger came to get me — my father's second wife, the woman who all but raised me, who is owed a couple of chapters of her own in this book and is going to get at least one — my grandmother said, of Hulk Hogan and in front of God and everybody:
 
 I wouldn't kick him out of my bed.
 
@@ -72,7 +72,7 @@ There's more to that than I can get into standing here in the dark with a bucket
 
 Because that woman said one hard thing to me in her entire life. She said she couldn't stand a cheater. And then she was killed in a car when I was in the sixth grade, and I never got one single day to stand in front of her and be anything other than the boy she'd caught.
 
-I've spent the rest of it proving her right. Telemarketing floors. Marks on a phone. Cut vodka in a steel cup. A woman lying three feet from me in the dark who thinks I'm holding a coffee.
+I've spent the rest of it proving her right. Telemarketing floors. Marks on a phone. Cut vodka in a steel cup.
 
 I got dropped off at that house every other weekend and one grown woman on this earth took a passed-along kid and made him feel like the whole point of the weekend. She died when I was eleven. And the next person in this world to look across a room and notice a man sitting there with nothing to say and no way to say it was an eleven-year-old girl in Sinaloa who wasn't even mine.
 

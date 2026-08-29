@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4 — Reverend Clay
 
 The plane came down through a wall of grey and there it was again, seven years later, like it had been sitting there the whole time waiting on me to lose enough to come crawling back. The Chugach hunched along the edge of the city with old snow still packed in the high cracks. The inlet lay flat and brown as gravy. The whole brutal postcard of it. Alaska. The one place on this earth that had already taken something from me I will never get back, and here I was, flying into it on purpose, sober-ish and grinning out the window like a man who'd learned absolutely nothing.
 

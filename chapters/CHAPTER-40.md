@@ -1,101 +1,40 @@
-# Chapter 40
+# Chapter 40 — A Brick He Thought Was Worthless
+Another month went in the books, and they finally got the motor on the feed cart running again. I never got the keys.  The feed would be delivered now by someone else while I continued feeding and mucking the stalls by hand — and here's the strange thing I have to tell you, because it's true and because nothing about that mountain makes sense unless I tell you the true parts: I'd come to like it.
 
-I still had a debit card from Bank of America hidden away, and that was the one thing they didn't know about.
+I looked forward to it. The barn was the one corner of that whole operation that had nothing to do with my capture. Out there I wasn't the gringo who sold the dope and ate the beatings. I was just a man feeding animals, making something's life a little more livable, and there's a purpose in that a person can hold onto when he's got nothing else to hold. The horses knew me. I'd pet their noses and they'd lean into it.
 
-When they grabbed us, the only card in my wallet was a US Bank card I'd opened in San Diego when I first got there. So that's the one they found, and that's the one they figured was all I had. The Bank of America card they never knew existed.
-
-Which would've been my way out, except when I went looking for it, it was gone.
-
-It wasn't in the book bag. It wasn't in the little hidden compartment I'd stashed it in. It was just gone, the way things go just gone up there, and with it went the only card that could've touched the only money I had. Sixty borrowed dollars from Zach, and no plastic to pull it with. The only route left to the money was sending it to an OXXO in somebody else's name — and that meant trusting somebody else with it. So that door was shut too.
+And Clayita loved the barn as much as I did. We'd play out there. I'd tie a piece of straw onto a length of baling wire and drag it across the dirt and she'd go tearing after it like it was the most important thing in the world. She'd jump up onto my shoulder and get as close as she dared to the horses while I worked their noses, watching. She kept her distance from the pigs — smart cat — and she'd chase the chickens in pointless happy circles. She was a joy to watch. She was all I had, and the barn was where I got to just watch her be a cat instead of a prisoner's only friend.
 
 ---
 
-Next time Eric came around, he dropped a lifeline in my lap.
+There was a man came around twice a week named Eric.
 
-His parents made a border run twice a month, he told me — drove up into the States, bought clothes cheap, hauled them back and resold them in Mexico at a markup. They were leaving that Friday. Eric said he could set it up: I'd ride out of there in the trunk of their car, all the way to the border.
+He bought weed off me, regular as clockwork, and he spoke English, and on a mountain where I couldn't follow a word being said around me that was no small thing. He'd been deported recently — for, you guessed it, a DUI. I didn't say it out loud to him, but it landed close to home. There was a warrant with my own name on it back in Ohio for the exact same thing, and the only daylight between Eric's situation and mine was which side of a line each of us had gotten caught on.
 
-But I'd have to pay. Six hundred dollars.
+He was a nice guy. I didn't tell him at first that I was being held up there against my will — I let him believe what was easiest, that I'd come down with my girl and we'd just gotten caught up in all this shit somehow, the way people do. He didn't ask a lot of questions about it, and I was grateful for that. Mostly we talked about the States. What we missed. The food, the freeways, the dumb ordinary stuff you don't know you love until it's a border and a lifetime away.
 
-I told him that was never happening — I didn't have six hundred dollars or anything close to it. He went away and came back with a new number. Three hundred. I told him the truth, that I didn't know a soul on earth who'd lend me that kind of money at this point in my life. This was a Tuesday. The car left Friday. Eric said he'd come back Thursday to see what I'd managed to put together.
+Then one day he asked me what I made of us maybe going to war with Iran.
 
-Three hundred dollars is somewhere around forty-five hundred pesos, and to a man living as poor as Eric did, that's a fortune. I'm fairly sure the whole of it was going to land in his pocket and none in his parents'. I didn't hold it against him. Up there, everybody was working an angle on somebody. I'd have done the same.
+I told him I didn't know the first thing about it.
 
----
+He looked at me kind of shocked. *Oh — you don't watch the news?*
 
-So I reached out to Josh.
-
-I wrote him a long email and laid the whole thing out, the entire story start to finish, and rereading it as I typed I heard again just how insane it all sounded — like a man inventing the wildest lie he could think of to pry money out of an old friend. I sent it anyway and went to bed.
-
-I woke up to his answer. *How do I know this is even Clay.*
-
-I tried to video call him. The audio wouldn't work — figures, on that one bar of signal. So I called him on audio and that time he picked up, and I talked, and he heard my voice, and he believed it was me. But believing it was me and believing the story were two different things, and Josh was skeptical of the story right up until he wasn't. What he wanted, once it landed, was to come get me himself. Wanted my location, wanted to point a truck at it and come pull me out.
-
-I wouldn't give it up. I told him you cannot call the police down here, every last one of them is bought and paid for, and if you think you're going to roll up this mountain and drive me off it, you are out of your mind and you'll get us both killed. The plan was the trunk. Josh sends the money, I send it on to an OXXO in Eric's name, and I climb into the back of that car Friday and ride it to the line.
-
-I hadn't really thought it through. If I had, I'd have killed the plan myself before it started. Because crossing the border with no ID doesn't mean a quick wave and a welcome home — it means an extensive secondary inspection, hours of it, and the second they start digging into a man with no papers they pull the thread of where he was born. Ohio. And the second anyone looked hard at Ohio, the warrants I'd been so lucky to keep out of the system this whole time would surface. Then I'm in a cage on the U.S. side — and a man in a cage is a man any cartel can reach, the minute one bought cop anywhere catches wind of where he's sitting. It sounds insane written down. It's also most likely exactly what would've happened. The cartel is everywhere. That's not a figure of speech down there. It's just the weather.
+I told him I didn't watch anything. No news, no internet, nothing. And saying it out loud like that, flat, to a man who'd just walked up the hill from a world that still had televisions in it, I heard for a second exactly how far outside of everything I'd fallen. There was a whole planet out there carrying on with its wars and its headlines, and I had no more access to it than one of the chickens.
 
 ---
 
-I convinced Josh anyway, and he sent it.
+Now, by then, they were letting Glenda use the laptop.
 
-And then I was waiting on Eric, on a Thursday.
+She could get on the internet, long as Omar was standing over her shoulder watching every move. No Facebook. No email. Those doors stayed locked. She could surf the web a little, check the news, and that was about the size of it. Omar would log her in with the password and then log her back out the second she was done. That was the rule.
 
-He never came.
+But Omar was getting lazy. After a while he stopped taking it back and just let her hang onto the thing — figuring, I'm sure, that a laptop with no internet password was a dead brick, no good to anybody. And he wasn't wrong about that. It was useless. Glenda convinced him she wanted to use it to journal offline. Some kind of self therapy.  I asked for the same thing and I was told no. They handed me a pen and a piece of cardboard instead and called it even.  That's what I'd end up writing a quarter of this book on.
 
-In fact I never saw him again. A man I'd seen twice a week, religiously, for months — gone, like he'd never existed. I don't know what happened to him. I never will.
+But the laptop started living with us. It sat on top of the mini fridge.
 
-And right about then everything started going wrong in a different key. They began locking me in from the outside. There'd be a day, sometimes two, where nobody came at all, and I'd just sit in that bus locked in from without, no shift, no chore, no word. Then the door would open and they'd tell me to go sell, like nothing. Everything felt off. Every instinct I had left was screaming that the thing was ending, one way or another, and I needed to be gone before it ended for me.
+I don't think I ever mentioned we had a mini fridge. We did. What for, I couldn't tell you — we had nothing on God's earth to put in it, so it stayed unplugged in the corner, a little white box doing nothing but holding up a laptop. And that's all the laptop was doing too, far as Omar knew. Nothing. Sitting there dead on a dead fridge.
 
-I didn't get out for another couple of weeks after that. I can't give you the exact timeline — that whole stretch is a blur, days running into days. So I'll just call it a couple of weeks and leave it there, because that's honestly all I've got.
+Except it wasn't dead. Not all the way.
 
-By then I had three hundred and sixty dollars to my name — Zach's sixty and Josh's three hundred — and I couldn't touch a dime of it. No card, and now, on top of that, the account itself had been frozen. Flagged for suspicious activity. Apparently when you don't touch an account for six months and then it takes two deposits back to back, that trips something, and they lock it down until you walk into a branch in person and prove you're you. Which, on a cartel mountain in Baja, I was in no position to do.
+Omar leaving that machine in our hands was a bigger deal than he ever knew — bigger than I knew yet myself.  He was a stupid man. Because that laptop, sitting quiet on that empty fridge, was going to be the thread that finally ran back down off the mountain and touched the outside world.
 
-Three hundred and sixty dollars. The price of a cab, a meal, a bus, the first clean breath of the rest of my life. Sitting in a bank I couldn't get within five hundred miles of.
-
----
-
-There's a lot from up there I never got the answer to. I've had to make a kind of peace with carrying the questions instead of the answers, because the answers were never coming.
-
-I never knew whether they'd gone after my family. After the money they'd already wrung out of me early on, they never once sat me back down in front of that laptop and told me to ask anybody for another dime. Maybe they were working my people behind my back the whole time and just didn't need me to know it. Maybe they'd taken one look at a man whose own family had mostly stopped answering and decided that well was dry. I couldn't tell you. I was kept too far in the dark to even guess.
-
-And I never heard another word about America. By the end Glenda barely spoke to me about anything, let alone her daughter — but the one mercy buried in the whole mess was that America had never come up that mountain at all. She'd stayed back with Rose the entire time, safe in Mexicali, a world away from any of this. That was the single piece of good news I had to hold, and I held it hard: wherever the rest of us ended up, the kid was with her grandmother and never had to see one minute of it.
-
-Glenda's own people didn't know any more than mine did. Nobody on her side had the first idea what had become of the two of us. We'd just gone quiet, both of us, dropped clean off the face of the earth — and everyone who'd ever loved either one of us was left standing on the same side of the same silence, waiting on a phone that wasn't going to ring.
-
----
-
-The night I finally went, the thing that broke me wasn't the fear.
-
-It was Clayita.
-
-I went back and forth on it until it nearly tore me in half — do I take her with me. I knew if I left without her she'd follow. She always followed. And I was about to walk two, maybe three days through open mountains with half a five-gallon jug of water and a bag of rice and beans cooked up and stuffed in a grocery sack in my book bag, and the laptop, my cardboard journal scraps, crewdly drawn map, and not one other thing in the world. There was no version of that walk a half-wild kitten survived. There was barely a version of it I survived. Taking her was killing her slower. Leaving her was the only mercy I had, and it was no mercy at all.
-
-I cried when I held her that last time. I'm crying now, writing it, all these months and miles later — that's the one that still gets me, out of all of it. Not the boot, not the dog, not the gun. The cat. One more loved thing I left behind with an excuse, the way I'd been leaving loved things behind with excuses my whole life. This time the excuse was true. It didn't help.
-
----
-
-There was a window in the back of the bus I'd been working for a solid month.
-
-They'd screwed it shut and painted over it, but a screw is a screw, and a man with nothing but time and a reason will work anything loose eventually. A little every day, careful, putting it back so it looked untouched — until one day it was free, and only I knew it.
-
-I held off feeding Clayita all day, and I hated myself for it, but I needed her starving for what came next.
-
-It was ten o'clock at night. I'd just come off my shift and been swapped out by the new guy. I had four bags of coke left, no meth, and a bag of weed — and instead of turning them in, I kept them. Currency for the road. Nobody up in the yellow house could say when the next turn-in was supposed to come anymore; the shifts had gone to chaos and the count changed constantly. I figured if I was running anyway, I might as well run with something to sell. Fuck it.
-
-I bunched the blankets up on the bed and tucked a pillow and some clothes underneath so it would read, in the dark, like a man asleep. Then I dumped the whole bag of cat food out on the floor at the front of the bus — the entire thing, a little mountain of it — to keep her busy and head-down and not at my heels.
-
-I gave Clayita one last hug. I shed my last tears into her fur. Then I leaned out the side window, the one facing the mountain, where there was nothing — no buses, no houses, no light, just black open field running off into more black. I lowered the book bag down gently. Then the water jug. Then I took a breath.
-
-I turned out the light, eased through that window, and stood on the rail running along the side of the bus. I reached back and inched the window almost all the way shut behind me — left a small gap I couldn't help, noticeable up close in daylight but nothing at night.
-
-Then I shouldered the book bag, picked up the water jug and carried it against my chest like a baby, and crouched straight down into the dark, with no earthly idea what was out there waiting for me. I'd mapped it as best I could on the laptop before I pulled the plug, and copied a crude version of it onto a piece of that cardboard they'd given me to write on. That scrap of cardboard was the whole of my plan.
-
-I gave myself about a twenty percent chance of living through it.
-
----
-
-A couple of miles out, when I'd put enough black ground between me and that bus, I found a stand of trees and stopped to catch my breath and figure my fuel.
-
-It was going to be a long couple of days, and I couldn't afford to sleep — not out there, not with what would come looking once they found the blankets weren't a man.
-
-So I got into the coke.
+It was going to take Eric to do it. But it started right there, with a lazy man and a brick he thought was worthless.

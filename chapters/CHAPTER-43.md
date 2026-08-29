@@ -1,67 +1,42 @@
-# Chapter 43
+# Chapter 43 — The Things With Four Legs
+Now I had the energy of three wild boars and just about the same mindset.
 
-I left Reina's about two hours before the ride was set to leave.
+The mission was clear and I was sure of it. It was pitch black, and I knew there wasn't a soul out there laying for me at that hour — no man was sitting on a mountainside at two in the morning waiting on the off chance a gringo came crawling past. It was the things with four legs I couldn't account for. I had no idea what I'd run into out there, and I couldn't see a foot in front of my face to find out ahead of time.
 
-The shared ride picked up at a Burger King a little over a mile away, and a mile is nothing, a mile is a walk to the corner — except this mile ran straight through the middle of Rosarito. There was no way around it. To get there I had to cross the highway, and to cross the highway there was exactly one bridge, unless I wanted to go hours out of my way to find another. One bridge. One chokepoint. One stretch of open, lit, public ground where a man they were hunting would have to stand still and exposed for anybody to see.
-
-I got maybe halfway there and my instincts locked my legs up under me.
-
-I stood on that sidewalk and looked at the route ahead — the bridge, the open crossing, the one and only way through — and every animal part of me that had kept me alive this long said *no.* Said they'll have eyes on that bridge. Said you walk across there and you don't walk off the other side. I don't know if it was true. I'll never know if it was true. But after everything, I had learned to trust that voice over my own thinking, and the voice said no way, José.
-
-So I didn't take the ride.
-
-I turned away from the bridge and the Burger King and the thirty dollars Reina's family had scraped together for me, and I walked off into the fields instead, and I pointed myself at Mexicali on foot.
+Mostly I was afraid of walking off a cliff. That was the real fear those first hours — not a man, not an animal, just stepping out into nothing in the dark and dropping off the edge of the world. So I went slow. Tiny steps, foot sliding out ahead of me, feeling for ground before I put weight down. Long stretches of wide-open desert where I could move a little, then trees — trees forever — where I went back to inching.
 
 ---
 
-I hadn't told a soul in Mexicali I was coming. I had friends there — people from our four months, people from the rehab — but I didn't reach out to any of them, because reaching out meant a phone and a phone meant a thread and I was done leaving threads. I'd just appear, or I wouldn't appear at all.
+The map had shown me two ways down, back when I still had a bar of signal to look at it.
 
-It's about a forty-five-hour walk, Rosarito to Mexicali, if you could walk it in a straight line. You can't. I still had two bags of coke left, so I knew I'd do it the same way I'd done the last one — five or six hours of walking bought with a bump, over and over until there was a city on the other end of it. I figured three days. It took three days.
+Go by the beach and it was about twenty-eight hours of walking. Go up and over through the mountains, the long way, the out-of-the-way way, and it was more — but the beach meant roads and towns and eyes, and eyes were the one thing I could not afford. I remembered Josh telling me, when he believed me, to bring more water than food.  Stay off the beaten path.  Go through the mountains. I brought just enough food packed into the bag of emptied cat food I'd emptied for Clayita.  The beans were hard beause I couldn't soak them before they were cooked. The rice was okay.  No hot sauce packets.  No salt.  I had about two and a half gallons of water. So I went up into the mountains, where there was nobody to see me and nothing to see me by. I figured two days, maybe two and a half.
 
-I went off the roads, out into the desert, shadowing the highway from far enough off that I was just a heat-shimmer to anything passing on it, close enough that I didn't lose my only guide. Through the mountains again. And this time I didn't have a five-gallon jug — I had a little jug of water I'd filled at Reina's before I left, and it was gone by the end of the second day.
+I was right. It took everything I had and then some. It was hard and it was grueling, the hardest physical thing I have ever asked my body to do, and I'll tell you the truth even though it's not the part that makes for an inspiring story: I would not have made it without the coke. Hands down. That's just a fact. I went through two of the four bags in those two days. I'd walk five, six hours straight — the laptop my only clock, the one thing I had to tell me how long I'd been moving — then find a tree to put my back against, do a bump, and walk another five or six. Rinse and repeat, all the way down a mountain.
 
-The third day was the one that nearly finished me.
-
----
-
-The heat came up off that desert like something with intent. And the closer I got to Mexicali the worse it got, the land going flat and white and merciless, no shade, no trees to lean on, nothing but the road off to my right and the sun straight overhead taking everything I had left to give.
-
-The water was long gone. The coke was nearly gone. I hadn't truly slept in the better part of three days, and somewhere in there the line between what was out in front of me and what was only in my head wore through. I started seeing Clayita. Out ahead of me on the cracked ground, trotting along the way she used to trot at my heel in the barn, looking back over her shoulder to make sure I was still coming. I knew she wasn't there. I followed her anyway. A man takes what guide he's given.
-
-That was about when I saw the dust.
-
-A plume of it, rising off the dirt road, a vehicle coming, and me out in the open with nowhere on God's flat earth to hide. I went down. There was a wash cut into the desert a little ways off — a dry gully, waist-deep — and I half-ran, half-fell into it and pressed myself flat against the dirt and went still. I'd kept the bamboo stick from outside Reina's container and brought it along for what was supposed to be a one-mile walk to the bus — and now I gripped it in both hands like it could do one thing for me against what I was sure was coming.
-
-The truck slowed.
-
-I heard the engine come down out of speed and I heard the tires crunch off onto the shoulder and stop, close, close enough that I could hear the doors and then the voices. Men. Spanish, easy and unhurried. And every cell in my body went cold and certain: *they found me. After all of it, the bridge I didn't cross and the road I left and the desert I walked into to keep away from exactly this — they found me anyway, and it ends here in a ditch.*
-
-And then the strangest thing happened to me, lying in that gully waiting to die.
-
-I didn't want to.
-
-I want you to understand what that was, because I'd spent that entire mountain, and a good many years before it, half in love with the idea of being put out of my misery. I'd welcomed the gun. I'd told the man from Sinaloa to do it. I'd given myself a twenty percent chance off the back of that bus and felt something close to peace with the eighty. But down in that wash, with men twenty feet away and my whole body screaming for water and the sun trying to cook me out of the dirt, I found out the truth of myself, finally, at the very bottom: I wanted to live. Not the way you want a thing you think you deserve. The way an animal wants it. I dug my fingers into that dirt and I wanted to live so bad it brought tears up out of a man who'd refused to cry through a beating and a gun barrel and the loss of every single thing he'd ever loved.
-
-I heard boots in the gravel. A man walked toward the edge of the wash — I heard him come, heard him stop right up at the lip of it — and I held my breath and I held that stick and I did not move one muscle, and I waited for his shadow to fall across me.
-
-It didn't.
-
-I heard him spit. I heard a long arc of him relieving himself into the brush not ten feet from my head. I heard him call something back over his shoulder, and somebody laughed, and then the boots went back the way they'd come, and the doors shut, and the engine took hold, and the truck pulled off down the road and was gone — and they never knew, not one of them, that the gringo half the coast was hunting was lying in a ditch close enough to spit on while they took a roadside piss and drove away.
-
-I don't know who they were. Cartel, narcos, ranch hands, men running their own errand in their own bad country. I'll never know. The not-knowing is the size of the whole thing — that my life turned on which way a stranger happened not to look, same as it had turned a dozen times before, and I was never once owed the luck of it.
-
-I stayed down in that wash a long time after the sound of them was gone, and I cried it all out into the dirt. For Glenda, who was in the ground. For Clayita, who wasn't really walking out ahead of me. For the man I'd been and the years I'd burned and the daughter who'd never know any of this happened. And then, because the alternative was to die there feeling it, I got up.
+The one mercy was the weather. Rosarito this time of year is just about perfect — no rain, seventies in the day, cool at night. If it had turned on me out there I'd have died out there. It didn't. The weather was the only thing on that whole mountain that wasn't trying to kill me.
 
 ---
 
-I crested a rise late that third afternoon, half-dead, lips split, the last of everything spent — and there it was.
+At night I could hear the coyotes.
 
-Mexicali. Spread out flat and brown and shimmering in the heat, the city I'd been walked into in handcuffs and walked out of in a deportation truck, the city where Glenda first got clean and where a man named Zaul had built the building that all of this, every mile of it, had spun out from. The city was right there. The line was right there.
+All around me, every direction, and close — or close-sounding, which when you can't see is the same thing. They yipped and howled and answered each other across the dark, and more than once it sounded like the whole pack was standing right on top of me. A twig would snap somewhere off in the black and I'd damn near jump out of my skin. Of course, by then I'd been awake two days running on cocaine, and a man two days deep on coke is going to find a way to be paranoid even in an empty room. Put that man alone on a mountain full of howling and you can imagine what my nerves were doing.
 
-I don't have a dramatic way to tell you the end of the walk, because there wasn't one. I came down off that rise and I put one foot in front of the other across the last of the flat, and the buildings got bigger, and the road found me, and somewhere in the going the desert just quietly handed me back to the world.
+---
 
-But I made it.
+Then there was the bobcat.
 
-After all of it — the mountain, the bus, the dog, the boot, the gun, the window in the dark and the cat I left behind and the woman I didn't — I walked up out of that desert on my own two feet, alive, into the one city on earth that was about to save my life.
+That was my one real close call, and it played out slow — slow enough to work on me for half a day. I'd glance back over my shoulder and there it'd be, way off in the distance, just a shape. I'd put my head down and walk another hour and look back and it was still there. Still coming. A little closer every time I checked. It tracked me like that through the whole back half of the second day, never rushing, just keeping me in sight and closing the gap by inches.
 
-I made it.
+By then I was about out of water, and the five-gallon jug — what was left of it — had gone from my lifeline to a dead weight I was cursing every step. Somewhere along the way I'd picked up a good thick length of bamboo, and I'd worked the end of it down to a point against a rock. It made a fair walking stick and, if it came to it, something close to a spear. I kept it in my hand the whole time that cat was behind me, and I kept thinking, all right, when you come, you come, and we'll see.
+
+It never came. I looked back at one point late in the day and it was just gone — given up, moved on, decided I wasn't worth it. It never gave me one ounce of real trouble. All it ever cost me was a half a day's worth of pure dread, which up there was a currency I was already spending faster than I could earn it.
+
+---
+
+On the morning of the third day, around nine o'clock, I came down off that mountain and into Rosarito.
+
+I was coked out to the gills by then, hadn't slept in better than two days, and I was paranoid as all hell — every face I passed was cartel, every slow car was them, every man who so much as looked my way had been sent to find me. I knew it wasn't true, most of it. I knew it the way you know a thing and can't make yourself feel it.
+
+There was exactly one place in that whole town I knew would take me in. A place that did not want me, that had every good reason on earth to shut the door in my face — but one I knew, when it came down to it, wouldn't turn me away.
+
+Reina's.

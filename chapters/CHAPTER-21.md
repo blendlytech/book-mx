@@ -26,9 +26,8 @@ Four hours in that grinder. When Mateo finally lit the candles I was hyperventil
 
 ---
 
-## The Second Morning
+The Second Morning
 
-It took most of the next day to get my feet back under me, and even then they weren't all the way under. We sat out on the tile with our backs against the guest room wall where the shade held till noon, two plates of white rice going cold between us, the party already warming up on the other side of the door.
 
 She asked me what I got. And I didn't tell her about the Vegas floor first, the way I've told it to you. I went straight to the driveway, because it was the only thing in me that had any room left around it.
 
@@ -38,7 +37,7 @@ David, I said. My cousin David.
 
 She didn't say anything. She waited, which is not a thing most people know how to do.
 
-So I told her. The garage door. The button. Five years old. Two families cut in half on a Tuesday afternoon, and how the medicine had put me back in that little body and made me stand there and press it, and how the thing I could not get out from under was not the door, it was the arithmetic. They lost theirs. We kept ours. And what I'd done with the one they let me keep.
+So I told her. The garage door. The button. Five years old. Two families cut in half on a Tuesday afternoon, and how the medicine had put me back in that little body and made me stand there and press it, and how the thing I could not get out from under was not the door. They lost theirs. We kept ours. And what I'd done with the one they let me keep.
 
 You weren't even there, she said.
 
@@ -46,7 +45,7 @@ I know.
 
 You were somewhere else. Your mom told you after.
 
-I know that, I said. I know it the way you know the sun's coming up. It didn't have one thing to do with what I was standing in last night.
+I know that,
 
 She turned her rice over with the fork and didn't eat any of it.
 
@@ -60,7 +59,7 @@ I looked over at her.
 
 I know that voice, she said. I was on the other end of it for three years.
 
-Neither of us said anything for a while after that. That's the thing about doing this with somebody who has actually met you. There's no place to set the story down where they can't reach it.
+Neither of us said anything for a while after that. That's the thing about doing this with somebody who has actually met you. There's no place to set the story down where they can't reach it.  She meant it.  And I knew she was right. It was one of the realist things I've ever heard. Looking at her, i knew she meant it and I understood what she meant.  It was fucking crazy.
 
 So then I asked her. What about you. What'd you get, the first two.
 
@@ -74,52 +73,12 @@ Here's the thing about Glenda. She'd been sitting three feet from me on that pat
 
 She sat back down.
 
-The first night was just the body, she said. Same as you. I threw up until there wasn't anything left and then I threw up some more. That's all it was. But at the end, when everybody went quiet and he was still singing — I heard a door open.
-
-A door.
-
-In the room, she said. Behind me. And I know there's no door behind me, I know that mat's against a concrete wall, I helped carry the mats. But I heard it open. I sat up and looked and there's nothing there, just the dark, and I lay back down and I told myself it's the medicine, it's a room full of sick people, it's nothing.
-
-And the second night?
-
-She took a long time with that one.
-
-The second night it wasn't a door, she said. It was keys.
-
-Keys.
-
-Him coming in, she said. That's the sound. He'd drop his keys on the table by the door. And you'd know — before he said one word, before you ever saw his face, you'd know from the keys what kind of night it was going to be. Three years I lived by that sound. I could tell you what was coming from across the apartment.
-
-I didn't hear a thing, I said.
-
-You were gone, she said. You were on your telemarketing floor. I was right there.
-
 She said it came up out of the dark and stood over her mat and she wouldn't look at it. She said the medicine kept putting the hallway in front of her — that hallway, that light, that door — and she kept turning her face away from it like a kid at a scary part, and when it wouldn't quit she got up on her hands and knees and made herself throw up on purpose. Stuck it out. Forced the purge to get out of the vision. She'd found a trapdoor and she took it, and she lay there afterward shaking with her face in the plastic, and it backed off.
-
-Why didn't you tell me, I said.
-
-She gave me a look I've thought about ever since.
-
-Because you were on the floor about a garage door, she said. And because if I say it out loud out here, it's out here.
-
-Then she said the truest thing either of us said in those two weeks.
-
-I didn't pay that man to put me back in that apartment. I came down here to stop drinking.
-
-And I said, me too.
-
-Yeah, she said. Well.
 
 She sat there a minute picking at the rice she wasn't going to eat.
 
 It's not done, she said. That's what I keep — I know how this sounds. It's not done with me. It's just standing there. It's waiting for me to get tired enough to quit fighting it.
 
-Then don't go tonight, I said. We'll sit this one out. We'll go back in Thursday.
-
-She almost laughed at that. That flat one-note thing she does through her nose when a man says something stupid with his whole chest.
-
-Sit it out, she said. And then what. Do it all over? Do the week again? Not eat again? She looked at me. I've already been in there twice. Quitting now just means I got sick for nothing.
-
 That was our whole conversation about it. Two people running on rice and water, both of us worn down past the place where you have any sense, deciding to keep walking into the room. She'd told me a man was standing over her mat in the dark and I'd said one weak sentence about staying home, and then we washed the plates and lay down in the heat and waited for the sun to go so we could go get poisoned again.
 
-I have thought about that morning more than any other morning of those two weeks. Because she called it. Three days early, sitting on the tile with a plate of cold rice, she told me exactly what was coming for her and I heard it and I did not do one useful thing about it.
+I have thought about that morning more than any other morning of those two weeks. Because she called it. Three days early, sitting on the tile with a plate of cold rice, she told me exactly what was coming for her and I heard it.

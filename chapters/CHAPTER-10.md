@@ -1,4 +1,4 @@
-# Chapter 10
+# Chapter 10 — Never Trust a Town Without Scars
 
 Michigan is green. Not the pale, desperate green of a Vegas golf course. Deep, wet, overgrown green. Mowed right up to the edge of the Grand Rapids runway lights. It looks like a place where bad things aren’t allowed to happen.
 

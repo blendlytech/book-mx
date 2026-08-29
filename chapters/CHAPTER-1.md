@@ -1,4 +1,4 @@
-# Chapter 1
+# Chapter 1 — A Brochure for Recovery
 
 I'm sitting on a one-way plane to San Diego, waiting to taxi, and somewhere on the other end Jo — Glenda's sister — is supposed to be coming to get me. Glenda. My girlfriend of three years, who I have never once met in person. Three years of daily, intimate conversations and many, many drunken fights through a screen, and I have never been in the same room as her. I've spent a lifetime making bad choices — going left when a normal person would've gone right, every single time. This is just the longest left turn yet.
 
