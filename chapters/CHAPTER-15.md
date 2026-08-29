@@ -42,7 +42,7 @@ Edgar had been in that building three years on heroin and had no plans to leave,
 
 And that was the first time I really understood where I was.
 
-Down there, if you get caught using — anything, and I mean anything, weed included, one joint, one bad cup — you can lose every right you have as a person. Your family can put you in a place like that and lock the door and throw the key in the gutter, and there is not one thing on God's earth you can do about it. One failed marijuana test, if the people who love you have decided they can't trust you loose, and you are done. There were men in that building serving life sentences who didn't even know it for certain — because the same thing that could keep them there forever could also end tomorrow, the second one letter arrived from the very same family that had called the dogs to drag them out of their bedroom in the first place. That was the whole sentence and the whole pardon, sitting in one envelope that might never come. Freedom in there wasn't a date. It was a mood, somebody else's.
+Down there, if you get caught using — anything, and I mean anything, weed included, one joint, one bad cup — you can lose every right you have as a person. Your family can put you in a place like that and lock the door and throw the key in the gutter, and there is not one thing on God's earth you can do about it. One failed marijuana test, if the people who love you have decided they can't trust you loose, you are done. There were men in that building serving life sentences who didn't even know it for certain — because the same thing that could keep them there forever could also end tomorrow, the second one letter arrived from the very same family that had called the dogs to drag them out of their bedroom in the first place. That was the whole sentence and the whole pardon, sitting in one envelope that might never come. Freedom in there wasn't a date. It was a mood, somebody else's.
 
 ---
 
@@ -58,6 +58,6 @@ I don't know how that felt.  I couldn't sort the good from the bad of it even wh
 
 ---
 
-So that was me, that spring. Two months sober in a bad little room, blowing into the nose of a security guard and pissing clean into a cup every morning to walk my girl to dinner and back to a cage by 8:30. Running a phone floor and training new reps for a hundred and fifty to three hundred dollars a sale. Riding a van with Zaual at night, hauling strangers kicking into the same building I'd flown down here to *use* — the rehab where I'd cooked up a sales machine and bolted it on like a parasite to the side of a place full of broken people.
+So that was me, that spring. Two months sober in a bad little room, watching my girl blow into the nose of a security guard and knowing she was pissing clean into a cup so I could walk my girl to dinner and back to a cage by 8:30. Running a phone floor and training new reps for a hundred and fifty to three hundred dollars a sale. Riding a van with Zaul at night, hauling strangers kicking into the same building I'd flown down here to *use* — the rehab where I'd cooked up a sales machine and bolted it on like a parasite to the side of a place full of broken people.
 
-This cage with no clock on it, the one I was helping fill, was the one that was finally going to let me out.
+This cage with no clock on it, the one I was helping fill, was the one that was finally going to let her out.

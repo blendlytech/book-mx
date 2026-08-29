@@ -1,6 +1,6 @@
 # Chapter 16 — Unwatched Freedom
 
-I want to tell you I had the whole thing beat, because that is exactly what I believed, riding shotgun in Jo's car with Mexicali falling away behind us and three hours of open desert running out ahead.
+I had the whole thing beat. I really did, riding shotgun in Jo's car with Mexicali falling away behind us and three hours of open desert running out ahead.
 
 Glenda had done her time. She'd checked herself in, so she could check herself out — her own signature, her own discretion, free to walk whenever she decided she was ready — and looking back on it now, it wasn't near long enough. Not for her and not for me. But you don't know that at the time. At the time I had a clean phone floor running itself behind me, a replacement trained and seated, an Airbnb run out to its last paid day, and a sober woman in the back seat that I'd finally, after three years, gotten to hold in my own two arms. I had done every single thing I'd come down to that country to do, and then I'd done the one thing I hadn't even known to come for, which was get myself clean. The math all came out my way. I had it beat.
 
@@ -10,7 +10,7 @@ She was nervous, and she has never once in her life been any good at hiding what
 
 ---
 
-Here is how we ended up pointed at the coast in the first place, and I need you to sit in it with me a second, because if you've been with me since the Orleans you are going to feel the floor tilt.
+Here is how we ended up pointed at the coast in the first place.
 
 Glenda had a friend down in Puerto Peñasco — a man named Temo, bilingual, sharp as a tack, one of those people everybody likes inside of a minute. And Temo was *killing it.* Doing better than well. At a beachfront resort called Laguna Shores. Selling timeshares.
 
@@ -32,7 +32,7 @@ And there was a circle quietly closing in it, too, one I didn't say out loud to 
 
 So we checked Glenda out, and we loaded up into her sister Jo's car — Jo, who'd run me across the border in the first place, now running us toward the water — and the three of us set out for a town not one of us had ever laid eyes on. Three hours of desert. And somewhere out in the middle of all that nothing it landed on me, clean and quiet, what we actually had for the first time.
 
-No curfew. No cup. No lady waiting by a door to lean in and smell my breath, no lab cup with my name on a piece of tape, nobody's nose to blow into when we got wherever we were going. For two solid months every single night of my life had ended at a cage door at 8:30 with a kiss and a chemical test, and now the door was just gone. The whole apparatus of it, gone. It was the first stretch of real, unwatched freedom Glenda and I had ever had together on this earth — three years of knowing each other, two months of cups, and now nobody on God's green ground keeping tabs on either one of us but ourselves.
+No curfew. No cup. No lady waiting by a door to lean in and smell her breath or mine, no lab cup with our names on a piece of tape, nobody's nose to blow into when we got wherever we were going. For two solid months every single night of my life had ended at a cage door at 8:30 with a kiss and a chemical test for her and one in the morning for me, and now the door was just gone. The whole apparatus of it, gone. It was the first stretch of real, unwatched freedom Glenda and I had ever had together on this earth — three years of knowing each other, two months of cups, and now nobody on God's green ground keeping tabs on either one of us but ourselves.
 
 A man who'd been paying closer attention would have been terrified of precisely that. I was thrilled.
 

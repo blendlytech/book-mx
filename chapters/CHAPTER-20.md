@@ -1,10 +1,10 @@
 # Chapter 20 — La Medicina
 
-What they put in front of us was older than the lie in my cup and older than the booze underneath it — older, maybe, than Sinaloa itself.
+What they put in front of us was older than Sinaloa itself.
 
 Ayahuasca. *La medicina.* The family knew of a *curandero* who ran ceremonies out of a concrete-and-tin compound on the dust-choked edge of town. The whole thing got arranged over my head at that long table in a language I didn't have — three or four nights of it, by my count, and it reached me the way everything reached me down there, secondhand and cut down to the bone in Glenda's English. The pitch — if a sacrament can have a pitch — was that this was the thing that finally cleaned a man out for good. That it reached down past whatever you'd been numbing, got a grip on the thing itself, and pulled it up by the root. That a man who sat with it honest could walk away from the bottle, the pipe, the needle, the whole unbearable load, and never want any of it again.
 
-Two weeks. A dieta, then five ceremonies, every two or three nights. And Glenda and I — who had just spent half a year proving to each other that we could not be trusted with a single sweating can of Tecate — signed on for the one express purpose of killing the thirst.
+Two weeks. A dieta, then five ceremonies, every two or three nights. And Glenda and I — who had just spent half a year proving to each other that we could not be trusted with a single can of Tecate — signed on for the one express purpose of killing the thirst.
 
 That is not remotely what either of us got.
 
@@ -14,7 +14,7 @@ The Dieta
 
 You don't just walk in off the street and drink the brew. A full week before you ever see the inside of that compound they start taking a wire brush to your biology. No salt. No sugar. No pork. No red meat. No dairy. No caffeine. No sex. And — most terrifying of all to two people whose blood ran about eighty proof — no liquor.
 
-For seven days we lived on boiled green plantains and white rice. The caffeine withdrawal split my skull, but the hunger became a living thing. The real cruelty was where we were doing it. Outside our bedroom door, the holiday roared—uncles roasting whole pigs, the smell of charred fat slipping under the door while my gut cramped. The *t-sss* of Pacifico cans cracking every few minutes ticked off our suffering like a metronome. We sat in a guest room sweating through our shirts, eating wet cardboard, pretending it was holy.
+For seven days we lived on boiled green plantains and white rice. The caffeine withdrawal split my skull, but the hunger became a living thing. The real cruelty was where we were doing it. Outside our bedroom door, the holiday roared, and uncles roasted whole pigs. The *t-sss* of Pacifico cans cracking every few minutes ticked off our suffering like a metronome. We sat in a guest room sweating through our shirts, eating wet cardboard.
 
 America knew something was going on with us. She'd been told it was medicine, which was true enough for down there and got her exactly nowhere. Third day she came in from the store and set a cold Coke in front of me at the table, sweating in the heat, and stood there waiting, and I had to tell her no. I couldn't tell her why in any way that would land. She took the bottle back off the table and left the room insulted in the total way an eleven-year-old is insulted. Next afternoon she came back with a plate of white rice she'd cooked herself — no salt, no butter, nothing on it, plain as paper — and put it down in front of me and stood there with her arms crossed until I ate all of it.
 
