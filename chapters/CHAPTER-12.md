@@ -1,0 +1,83 @@
+# Chapter 12 — A Hell of a Catch
+
+Inside the first month under my father's roof I did the one thing I have always known how to do when the floor goes out from under me. I got a job.
+
+Not a good one. I want to be straight about that, because there's no telling this part with any dignity and I'm not going to try. It was a solar job, out of a company down in Charleston, but stripped clean to the bone of the trade — a setter's chair and nothing on either side of it. No openers feeding me warm bodies the way Vegas had. No opener at all. Just me, and a phone, and a list of homeowners who'd gone online and filled out a little form swearing up and down they were interested in solar, which I can tell you from long professional experience is about the least reliable sentence in the English language.
+
+And here was the catch, and it was a hell of a catch. I wasn't the only one getting the lead. Same form, same homeowner, same phone number, sold off to four or five solar companies at one time, all of us pinging the same warm body inside the same sixty seconds. I'd get the text the instant it came in — supposedly the instant; I had my doubts — and I'd dial, and eight times out of ten I'd get the exact same man on the other end, already worn out with me before I got my own name out. *You're the third one to call. You're the fourth. I wish to God I'd never filled out that damn form.* And I couldn't even hold it against him, because he was right, and because on a different phone in a different state I had spent years being the precise reason a man felt exactly that way.
+
+The two out of ten who didn't pick up went on a list, and the list was the rest of your day — seven hours of calling the dead air back, around and around, praying somebody answered before one of the other four outfits beat me to it. It paid three hundred a week, flat, and commission on whatever I closed. No sit pay. No credit pass. No daily wire down the line, win or lose. Just sales, the raw back end of the business — the part I'd spent two fat years not having to live on, because the front end had been so generous. It was the difference between owning a piece of the casino and working the change cart across its floor, and I had been, very recently, a man who owned a piece.
+
+It sucked. But I wasn't paying rent, and a fellow at a hundred and forty pounds in his father's spare room is in no position to be choosy about the work, so I took it and I worked it and I told myself it was fine for the moment. Everything in my life has always been fine for the moment. That's exactly how a man ends up surprised by the bill.
+
+---
+
+And then Glenda checked into rehab.
+
+I should have understood what that meant. I didn't, because I was too busy being the one thing in the whole frame that hadn't moved. For three years she'd been the girl on the screen, the voice that came down the transfer drunk the same as me, the two of us feeding each other's worst habits a couple thousand miles apart and calling it love — and it *was* love, I'll fight any man who says different, it was just love with a bottle in each of its hands. And now, two thousand miles south in a facility in Mexicali, she'd set hers down. She'd climbed out. The drunk on the far end of my wire had gone and gotten herself sober, and I was still sitting in Ohio with a Yeti full of vodka, telling myself I was the one of us who had his act together.
+
+It changed the whole shape of how we talked. The conversations don't sit right when one of you is lit and the other one isn't — they curdle, they go sad on her end and stupid on mine — so I started rationing them. I'd get to her early, on camera, in the morning, the one sober stretch I had left in a day, back before I'd made my walk. That was the part of me she got now: the clear-eyed hour, the version that could still hold a thought all the way to the end of itself. Everything after that I handled by text, because you cannot as easily clock the slur on a man through a text message. She could still tell. She always could. But text gave me the deniability I'd gotten just as hooked on as the rest of it.
+
+There is a particular flavor of shame in being out-climbed by the person you used to drink under the table. She'd get me on the screen and her eyes would still do the thing they'd started doing back in the fall — fill right up and then slide off the camera — and she still would not say why. Except now she was doing it sober. Clear. Looking straight at me with nothing left in her system to soften the picture, which somehow made it land worse, not better. A drunk woman crying at you is a mood. A sober one crying at you and refusing to say why is a verdict. I'd log off, and I'd reach for the Yeti.
+
+---
+
+Rita is my stepmother. She never had children of her own. What she got instead was us, handed over secondhand and full-grown and already damaged, and she took the whole lot of us on like we'd been hers from the start. I have never once felt judged by that woman.
+
+And don't let the heart of gold trick you into hearing *soft.* Rita is one of the smartest people I have ever been in a room with, and not the loud kind — she doesn't announce it and she doesn't correct you. She lets a man run his mouth all the way out to the end of his own rope and then sets one quiet fact down on the table that takes the entire structure apart while he's still admiring it. I have watched her do it to me and to my father. She is not somebody you try. I say that with love and I say it as a professional: I have made my living reading people through a phone line for twenty years, and I never once got a read on Rita that she didn't hand me herself, on purpose, because she'd decided I ought to have it.
+
+Time didn't work on us the normal way. I'd disappear — years, sometimes. Vegas, Alaska, Michigan, whatever hole I happened to be down at the bottom of. Then I'd turn back up and sit at her table and inside of about four minutes it was like I had never left. No ledger. No interest owed on the years. Most people make you pay that back with a speech first. She never charged me a dime of it, not one time, not ever, and I don't think it ever occurred to her that she had to.
+
+---
+
+Years back, a different life, out in the Fort Mohave desert, right after my divorce came apart on me and I moved in with the two of them because there was nowhere else on earth for me to go. My father decided he was going to be a security guard. He'd retired from running the union at that point, pensioned, comfortable, and not one earthly reason to do it. He didn't need the money. He just didn't know what else to do with himself, and a man built like that would rather stand in a casino all night than sit still in a chair, so he got himself hired on at one of the casinos down in Laughlin. Nights.
+
+Which left me and Rita alone in that house every single evening.
+
+So we drank. God, did we drink. And we laughed — the kind of laughing where you've forgotten what started it and you're two hours downstream and one of you only has to say the word again to put you both back on the floor. She's funny. Nobody tells you that part about the steady ones. She'd tell me things about my father I had no idea, and I'd tell her things about myself I'd never told a soul, and none of it ever came back around on me later, not once, which is its own kind of proof of what a person is made of.
+
+And then the headlights would come swinging into the drive around dawn, and the two of us would sit up straight like a couple of teenagers, and my father would come through that door throwing off a heat you could feel from the next room.
+
+It wasn't the drinking, exactly. It sure as hell wasn't the money. It was that he had stood in a casino all night for no reason at all, of his own free choosing, while the two people he loved most sat in his kitchen having the time of their lives without him. That's what got him. He'd stand there in that ridiculous uniform looking at the two of us and you could watch the arithmetic land on him.
+
+It was not funny at the time. At the time it was ice in the room and a door shutting a little too hard. It is funny now. It's one of the funniest things I've got. And I would give back a great deal of what I've been chasing ever since to sit at that table one more night, with her, waiting on those headlights.
+
+I never felt judged by her — that's the truest thing I know about the woman — and here is exactly where a man like me finds the trapdoor in it. Because I will take *not judged* and try to spend it as *not noticed*, and those are two completely different currencies, and only one of them is real. She's the smartest person in any room she's standing in. She knew. She had to have known. She just wasn't going to be the one to take it off me, and she wasn't going to make me smaller in my father's kitchen while I was already down to a hundred and forty pounds and hiding.
+
+That's not being fooled. That's mercy. It took me going through what I've just went through to notice the difference.
+
+---
+
+And then, the way it always seems to go with me, the very thing that should have shamed me into sitting still instead lit the fuse on the next move.
+
+Because somewhere in those clear-eyed morning calls with Glenda, my closer's brain — which never sleeps, which is the very last thing in me to ever go to bed — started doing the thing it does. She was in a rehab in Mexicali. The place was run by a man named Zaul, the director, and it was full from the floor to the rafters with people drying out and nothing in the world to do all day. And a fair number of them spoke English. Clean, fluent, no-accent English, Glenda's kind, because that's the kind of person who tends to end up in that particular pipeline in the first place. And I was sitting in Ohio cold-calling shared leads for a Charleston solar company at three hundred dollars a week. I looked at those two facts laid down side by side and I did the thing I have done my entire life, the thing that has saved me and damned me in just about equal measure.
+
+I saw the angle.
+
+A room full of sober, English-speaking bodies with nothing on their hands but time. A solar company up in South Carolina starving for setters. And me in the middle of it — the broker, the wire, the man who could plug the one into the other and take his piece off everything that closed. I got Zaul on the phone. I got my company on the phone. I built the thing in the air the way I'd built a hundred things in the air before it: a call center inside a rehab, the residents working the phones for the Charleston floor, me coming down to install the machine and train up a replacement and then collect off it, residual, hands-off, the dream of every man who ever sold anything. I would carry the exact instrument that had made a drunk of me straight into a building full of people fighting to stop being drunks, and I would call it opportunity. I would call it a fresh start. God help me, I think I half believed it.
+
+For two solid years I had thought *never* about Mexico. Every time she asked when I was coming over — and she asked for two years — I thought never, and I meant it every single time, because Mexico had been a one-way door in my mind, and I had no passport and no Spanish and a standing policy against walking through any door I couldn't see the far side of. The miserable little job didn't move me. In the end, it was her getting sober, and a deal with a clean angle on it, and the oldest lie I tell myself stepping out in its newest suit — that the next place would be *the* place, that I'd finally get right down there in the gravity of it, together with my girl, working a tidy clever little operation under a warmer sun.
+
+---
+
+There was one catch in the whole bright plan, and it tells you everything you need to know about the kind of sober I was built for. To work out of that rehab — to be let inside it at all, to bolt up my phones and run my little operation — I'd have to pass a drug test on the way in. Clean. So I got clean, in the one narrow, strategic, bald-faced dishonest way I have ever known how. I quit the weed a week out. It was only the weak Delta-Nine stuff to begin with, and I figured a body that had finally been eating like a person again — back up off the bottom toward a hundred and fifty pounds at my father's table — could flush that little bit of nothing inside seven days. The drinking I did not quit. I drank right up until the day I left. I'd told Glenda two weeks back that I'd already put it down, which was a lie, a flat clean lie handed to a newly sober woman, and I told it because liquor clears a man in a day or two and so the lie would never once show up in the cup. That was the whole of my sobriety. Not getting well. Just timing my poisons to beat a test.
+
+The day finally came around.
+
+I had it figured down to the dollar, because I had no choice but to. I owed Glenda's sister Jo for the leg of the trip I couldn't make without her — a hundred dollars to scoop me up off the plane in San Diego, two hundred more to get me across the border — three hundred I'd promised her, drunk, the way I've promised most of the important things in my life. And I had about three hundred and twenty to my name. It was going to be close enough to sweat over, which is only to say it was the exact margin I'd been running on for forty years.
+
+Josh came to get me. Josh always came to get me — the clean one, the one who'd gone and built the whole white-picket life I never could, pulling up one more time to haul the wreck to wherever it was headed next. He stopped in at my father's place and the two of them stood out there and talked a good while, easy and warm, the way they always did, because my father loved Josh. Loved him right out loud. He'd told me more than once, grinning when he said it, that he was about half sure Josh was his real son and I was some baby they'd handed him at the hospital by mistake. It was a joke. It was one of those jokes.
+
+While they talked I went and did the thing I've done in more states than I can keep straight — stood over a suitcase and a bookbag and worked out which pieces of a life were going to fit inside them and which ones stayed put. It has never taken me long. I have had an awful lot of practice at deciding what I get to keep.
+
+And when I came back out with the whole of it zipped into those two bags, my father reached over and put two hundred dollars cash into my hand. Just like that, no speech attached to it. He couldn't have known what he was doing — that two hundred dollars was damn near the line between making that border crossing and standing broke on the wrong side of it, that he'd just about doubled everything I had left in the world. I'd come dragging up onto his step back in November soaked and broke, and here he was sending me back off of it exactly the way I'd known the man my whole life: with money I badly needed and never would have asked him for out loud. I was more grateful than I had any clean way to say. So I didn't try to say it. I just took hold of the man and hugged him.
+
+And I held it a second past where a normal goodbye lets go, because the thought was sitting right there at the front of my head, plain and cold as the day itself: that this could be the last time I ever laid eyes on my father alive. I'm not dressing that up for effect. I genuinely did not know. Given where I was pointed, and the shape I was in to get there, and the long row of close calls already stacked up behind me, it was not a dramatic thing to be thinking. It was just arithmetic — the same cold arithmetic he'd taught me at the tables. I hugged him like the math might finally be coming due. And then I made myself let go.
+
+He didn't try to stop me. You don't steer a train that's already rolling; he'd told me that one himself, more times than I could count, and he had the good sense not to waste the breath on it now.
+
+Josh and I climbed up into his truck.
+
+And that's the whole loop closed, right there — because the broke skeleton swinging up into that truck is the very same one you met on the first page of this book, the one Josh drives to the airport and lets out at the curb with *I'll probably never see you again* hanging in the cold between us. We're all the way back around to Chapter 1 now. I'm about to land in San Diego with five hundred and twenty dollars, two hundred of which was borrowed-and-gifted, no passport, no Spanish, and a sales machine I fully intend to drive straight into a building full of people trying to save their own lives.
+
+The real meat of this book is about to begin.  
