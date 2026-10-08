@@ -24,9 +24,9 @@ The manuscript and support materials are structured to make it easy for developm
 
 *   **[`chapters/`](file:///c:/Users/DELL/mx_book/chapters/)** — Contains the active drafts of the book.
     *   [`PROLOGUE.md`](file:///c:/Users/DELL/mx_book/chapters/PROLOGUE.md): Flash-forward to captivity in the mountains outside Rosarito, Mexico.
-    *   [`CHAPTER-1.md`](file:///c:/Users/DELL/mx_book/chapters/CHAPTER-1.md): The flight to San Diego, escaping Ohio warrants, and the online origin story of Clay and Glenda.
-    *   [`CHAPTER-2.md`](file:///c:/Users/DELL/mx_book/chapters/CHAPTER-2.md): The courtroom OR release, the adoption backstory, and the final Vegas relapse.
-    *   [`CHAPTER-3.md`](file:///c:/Users/DELL/mx_book/chapters/CHAPTER-3.md): Palms Casino culture, professional "free drink" chasing, and the Las Vegas lifestyle.
+    *   [`CHAPTER-1`](file:///c:/Users/DELL/mx_book/chapters/CHAPTER-1): The flight to San Diego, escaping Ohio warrants, and the online origin story of Clay and Glenda.
+    *   [`CHAPTER-2`](file:///c:/Users/DELL/mx_book/chapters/CHAPTER-2): The courtroom OR release, the adoption backstory, and the final Vegas relapse.
+    *   [`CHAPTER-3`](file:///c:/Users/DELL/mx_book/chapters/CHAPTER-3): Palms Casino culture, professional "free drink" chasing, and the Las Vegas lifestyle.
 *   **[`notes/`](file:///c:/Users/DELL/mx_book/notes/)** — Raw story beats, character background, and thematic context.
     *   [`BACKSTORY.md`](file:///c:/Users/DELL/mx_book/notes/BACKSTORY.md): Family history, sibling dynamics, and growing up around alcohol.
     *   [`MARRIAGE-CHILD.md`](file:///c:/Users/DELL/mx_book/notes/MARRIAGE-CHILD.md): FedEx home delivery manager job, synthetic marijuana ("spice") addiction, and the toll it took on his marriage and daughter.
