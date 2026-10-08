@@ -34,7 +34,7 @@ I have no passport. The application came back rejected over a date I wrote down 
 
 I don't have a dollar to my name. I don't own the laptop I'm typing on. I don't have a phone number that belongs to me.
 
-And after two and a half years in this country — after crossing a border, living on a beach, traveling a thousand miles to Sinaloa, surviving a cartel mountain, and walking three days through a brutal desert — I still do not speak Spanish.
+And after two and a half years in this country — after crossing a border, living on a beach, traveling a thousand miles to Sinaloa, surviving a cartel mountain, and walking four days through a brutal desert — I still do not speak Spanish.
 
 It is the single most damning fact in this entire book, and it isn't close. I have been functionally mute in this country by choice since the day I arrived. I sat at a table of thirty people and let an eleven-year-old girl translate the room for me. I sat in a car while two women negotiated my freedom eighteen inches from my face and couldn't contribute a single syllable to the only negotiation of my life that actually mattered. I spent five months owned by men whose language I couldn't be bothered to study, and every beating I took up there was delivered in words I had two years and every reason on earth to learn, and didn't.
 
@@ -92,7 +92,7 @@ It wasn't the turns. Anybody can make a wrong turn. Josh made a few. Troy made a
 
 Five years old, my cousin died, and they put me in a car and drove me to my grandmother's. That was done out of love, but it was the only coping mechanism anyone ever handed me: when it hurts, run. 
 
-Vegas to Alaska. Alaska to Vegas. Vegas to Michigan. Michigan to Ohio. Ohio to Mexico. Mexicali to Peñasco to Sinaloa to Peñasco to Mexicali to San Diego to Rosarito. Walking twenty-three miles on foot into Tijuana in the dark because I'd rather march through the most dangerous city on the border than hold my hand out to another human being. A death wish disguised as independence. Three days crawling through the desert. Every catastrophe of my adult life followed that identical script: take the hit, slam the ledger shut, get behind the wheel, and go feed the beast somewhere else.
+Vegas to Alaska. Alaska to Vegas. Vegas to Michigan. Michigan to Ohio. Ohio to Mexico. Mexicali to Peñasco to Sinaloa to Peñasco to Mexicali to San Diego to Rosarito. Walking twenty-three miles on foot into Tijuana in the dark because I'd rather march through the most dangerous city on the border than hold my hand out to another human being. A death wish disguised as independence. Four days crawling through the desert. Every catastrophe of my adult life followed that identical script: take the hit, slam the ledger shut, get behind the wheel, and go feed the beast somewhere else.
 
 That’s why the clinic worked. Not the ayahuasca. Not the mountain. Not the beatings, the attack dog, or the desert. It worked because it was a fence I had the physical power to walk away from, and I chose not to walk. One day at a time. Until I finally left. I’m still sick. I’m still not completely right. But they let me walk out.
 
@@ -136,7 +136,7 @@ Two years together, and it was always the flat palm and the high five, right up 
 
 ***
 
-I didn't know what I was stepping into when I walked out. No passport, no papers, no nation that will welcome me through the front gate.  A woman I love deeply and cannot safely share a room with. A lifelong friend who thinks I threatened his family. 
+I didn't know what I was stepping into when I walked out. No passport, no papers, no nation that will welcome me through the front gate. A woman I love deeply and cannot safely share a room with. A lifelong friend who thinks I threatened his family. 
 
 Every old instinct I have is already sketching a map. I can feel the gears grinding right now, sitting here — the ancient survival engine firing up, calculating the angle, the hustle, the pretty illusion with nothing solid beneath it. Forty-seven years old next week, and that machine has never shut off. I don't think it ever will.
 

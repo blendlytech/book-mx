@@ -10,7 +10,7 @@ This is the only good thing the medicine ever gave me and I've never known what 
 
 It was the light I got first. That low yellow kitchen light over a table, the kind that doesn't reach the corners of a room, and the linoleum, and the smell of a house where somebody smoked in the sixties and seventies and the walls never entirely let it go. And under all of it, the sound. That soft riffling snap of a deck of cards being shuffled by a woman who has shuffled a hundred thousand of them.
 
-My Grandma Mills.  My fathers mother Eleanor.
+My Grandma Mills. My fathers mother Eleanor.
 
 I went there every other weekend and those are the greatest weekends I can remember. All of them. I've been to Vegas on other people's money and I've stood on a mountain in Alaska and I'm telling you the truth: the best I have ever felt in this life was Friday night at my grandmother's.
 

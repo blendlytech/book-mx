@@ -48,7 +48,7 @@ Evenings I'd walk the couple miles into downtown and post up at the local pubs f
 
 ---
 
-Week two came fast, the way the good ones always do. I checked my balance one morning and the fifteen hundred had melted down under a thousand — eight hundred and change, if I'm being exact.  Seven days left on the Airbnb. No job, no plan, no next roof. The first cold finger of *oh shit* finally reaching me through all that mountain air and cheap beer.
+Week two came fast, the way the good ones always do. I checked my balance one morning and the fifteen hundred had melted down under a thousand — eight hundred and change, if I'm being exact. Seven days left on the Airbnb. No job, no plan, no next roof. The first cold finger of *oh shit* finally reaching me through all that mountain air and cheap beer.
 
 Time to find work. And I found it fast — faster than a man in my shape had any right to. Solar company, hiring appointment setters, and I swear to you the ad read like it had been written and aimed straight at me by something that knew exactly where I'd come from. *Mini-vacation sales reps strongly urged to apply.*
 

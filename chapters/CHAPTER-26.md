@@ -2,7 +2,7 @@
 
 My mother is a beautiful person.
 
-She has a sense of humor that will take your legs out from under you. She'd get going about somebody — some observation, dead accurate and not particularly kind.  I've had a hard life and most of it was my own doing, and there is still a pile of afternoons in that kitchen I would not trade for anything I ever got out of a casino.
+She has a sense of humor that will take your legs out from under you. She'd get going about somebody — some observation, dead accurate and not particularly kind. I've had a hard life and most of it was my own doing, and there is still a pile of afternoons in that kitchen I would not trade for anything I ever got out of a casino.
 
 She has a sense of pride too, and she earns it. Dinner was on that table every night of my childhood and a lot of my adulthood. The house was clean and it stayed clean and everybody living under that roof got taken care of whether they'd done a thing that week to deserve it or not. She doesn't make speeches. She feeds you and she keeps a good roof over you, and if you can't read that as love then that's a failure of your reading and not of hers.
 
@@ -28,7 +28,7 @@ Two things. One year. And there is no line down the middle of a woman where you 
 
 She was younger then than I am now.
 
-Considerably younger. I'm forty-six years old and I'm writing this from a plastic chair in a courtyard with a fence around it because I could not run my own life. I have no children in my care. No house.  Nobody on this earth depending on me for a single thing. And she was somewhere in her early thirties, burying a nephew, watching a marriage go down, four kids in the house and all of them hers.
+Considerably younger. I'm forty-six years old and I'm writing this from a plastic chair in a courtyard with a fence around it because I could not run my own life. I have no children in my care. No house. Nobody on this earth depending on me for a single thing. And she was somewhere in her early thirties, burying a nephew, watching a marriage go down, four kids in the house and all of them hers.
 
 I cannot do it. I've tried. I sit here and try to put myself at that age with that load and my mind just refuses the problem, the way it refuses to picture the number of stars.
 
@@ -90,7 +90,7 @@ He worked a steel mill. Twelve-hour swing shifts, which if you've never been aro
 
 He built her a house with his own two hands.
 
-He is the kindest man you will ever meet.  He's not warm the way people mean when they say warm — he's not going to make a speech at you or ask how you're feeling. He's just *there.* Permanently. At the same temperature, doing the thing that needs doing.
+He is the kindest man you will ever meet. He's not warm the way people mean when they say warm — he's not going to make a speech at you or ask how you're feeling. He's just *there.* Permanently. At the same temperature, doing the thing that needs doing.
 
 Years later, when I was grown and back living under his roof — because of course I was — he'd come through and ask me what games I had going. What I liked that night. How the car lot had gone.
 

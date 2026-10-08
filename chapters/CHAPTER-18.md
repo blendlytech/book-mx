@@ -156,7 +156,7 @@ Glenda started talking, fast and low and pleasant. Rose came in under her, stead
 
 Six years I made my living moving strangers with nothing but a voice. I could hear a man go from no to maybe through a receiver. And I could not say one word in the only negotiation of my life that ever actually mattered, because I had never bothered to learn the language of the country I'd been living in for a year.
 
-It went back and forth. Glenda said a number. He said a different number.  She had to offer it first, and in Mexico that is normal, but always a gamble.  You never know if you could get that one cop who couldn't be bribed.  It was already clear the gringo in the back didn't have documents because I couldn't produce any when asked.  He wasn't asking for long.  A bribe was our only option.
+It went back and forth. Glenda said a number. He said a different number. She had to offer it first, and in Mexico that is normal, but always a gamble. You never know if you could get that one cop who couldn't be bribed. It was already clear the gringo in the back didn't have documents because I couldn't produce any when asked. He wasn't asking for long. A bribe was our only option.
 
 A thousand pesos. About fifty dollars.
 
@@ -198,7 +198,7 @@ I got two different versions later at her uncle's kitchen table, days apart. In 
 
 The two women told it different ways on different nights and neither of them ever seemed to think it mattered which. That's the thing I can't get comfortable about, even now. Not knowing whether I was standing next to something enormous or whether they got scared of a guy in a hat.
 
-Either way it was my money. That part is not in dispute.  Somebody got paid.  Somebody didn't.
+Either way it was my money. That part is not in dispute. Somebody got paid. Somebody didn't.
 
 ---
 
@@ -278,7 +278,7 @@ He looked at me a long time. I looked at the seat back in front of me. Even I kn
 
 And then Rose said her family's name.
 
-Just said it. Flat, no pleading in it, the way you say a name to somebody who ought to already know it — her name, and her brother's name, and where the house is. I only know all this because it was explained to me later over laughter about how scared I must have been. Oh man, did they laugh.  It was quite the joke.  I was just the idiot gringo in the back seat, along for the ride.
+Just said it. Flat, no pleading in it, the way you say a name to somebody who ought to already know it — her name, and her brother's name, and where the house is. I only know all this because it was explained to me later over laughter about how scared I must have been. Oh man, did they laugh. It was quite the joke. I was just the idiot gringo in the back seat, along for the ride.
 
 Then Glenda said her name, and where she was born, and the school she went to.
 

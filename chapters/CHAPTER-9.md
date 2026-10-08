@@ -50,7 +50,7 @@ All five of us bellied up at the Sports Book bar, and behind it, right where he'
 
 Felt like home. God help me, it felt like home.
 
-Missed you, Nate, I told him, and meant it. And I couldn't help myself: we never did settle up on that vacation package you bought off me last time I was through.  I came back to collect.
+Missed you, Nate, I told him, and meant it. And I couldn't help myself: we never did settle up on that vacation package you bought off me last time I was through. I came back to collect.
 
 He barked a laugh — just the two of us laughing, because not one man in my crew had the first idea what I meant. The last time I'd sat at Nate's bar, the blacked-out night I said my goodbye before Alaska, I'd done the one thing none of them would ever have done: pulled the curtain all the way back on the con for him, played him both ends of it, opener and closer, and sold him, for sport, a luxury getaway to the one city he'd lived in his entire life. Told him exactly what we did for a living. So the crew looked at me sideways now, puzzled, like maybe I really had closed a bartender on a vacation to his own zip code.
 

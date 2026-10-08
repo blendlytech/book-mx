@@ -52,7 +52,7 @@ She'd taken a protective order out against me. I couldn't set foot in my own pla
 
 So what was she up to? Was she upstairs calling them right now? She didn't need a reason. I just needed to leave her alone. I wouldn't drink for four days. I couldn't. As long as I played nice and let her keep the money, she'd most likely let me walk. Or so I told myself.
 
-I'd sleep on the couch and stay out of her hair. Rent was paid through the next month, and I'd already moved nine hundred dollars into her account for groceries, gas, whatever.  That's what I always did.  That was her job, because, well, I couldn't be trusted with it. What she didn't know, or maybe she did, was what I did with all my commissions I never told her about. But that is all she did, spend the money I earned on food, weed, waxes.  She spent over $700 per month on exotic cat shit.  She didn't go a step further to help out around the house, let's put it that way. So, she seemed content. She was a blonde bombshell — stacked, great body — and she'd have no trouble landing a new boyfriend, or at the very least some white boy with a credit card to feed her and her cats.
+I'd sleep on the couch and stay out of her hair. Rent was paid through the next month, and I'd already moved nine hundred dollars into her account for groceries, gas, whatever. That's what I always did. That was her job, because, well, I couldn't be trusted with it. What she didn't know, or maybe she did, was what I did with all my commissions I never told her about. But that is all she did, spend the money I earned on food, weed, waxes. She spent over $700 per month on exotic cat shit. She didn't go a step further to help out around the house, let's put it that way. So, she seemed content. She was a blonde bombshell — stacked, great body — and she'd have no trouble landing a new boyfriend, or at the very least some white boy with a credit card to feed her and her cats.
 
 ---
 
@@ -72,7 +72,7 @@ I had one job — disappear — and instead I had to be right. When you're drunk
 
 Next thing I knew — you guessed it — the cops were there, and I was face down on the hardwood, tasting the dirt she never found the time to sweep up between Netflix binges.
 
-The booking was the same as always. We'd started early, all of us meeting up around one right after my shift ended. I had been hired on as a sales manager for an online vacation club just a week prior to that Thursday.  I had 5 of my own reps working under me. I worked 6am - 1pm starting out on the east coast and working my way west. My team and I had a huge first week and I was expecting a nice fat paycheck the very next day.
+The booking was the same as always. We'd started early, all of us meeting up around one right after my shift ended. I had been hired on as a sales manager for an online vacation club just a week prior to that Thursday. I had 5 of my own reps working under me. I worked 6am - 1pm starting out on the east coast and working my way west. My team and I had a huge first week and I was expecting a nice fat paycheck the very next day.
 
 By eight that night I was out of ammo and hammered. One day before my plane and I'd torched it. The cop who hauled me in was the same one who always showed up — the same one I'd find out later, from a friend, she'd been fucking the whole time. Fitting. He threw me in the back of that squad car that reeked of Joop cologne, same old charge, domestic battery. She'd wrung her wrists again to sell the story that I'd grabbed her, which I didn't, never have, and never would, no matter how drunk I got.
 
@@ -98,7 +98,7 @@ That part's easy. When the bus doors hiss open, I stand there looking as hopeles
 
 Then it's forty minutes to picture every way this goes wrong, and really there's only one question that matters: did she leave me the ID and the money, or did she erase me? If the wallet's gone, I forfeit a non-refundable ticket to freedom, beg what little I can out of a family well that's nearly dry, and start over from nothing — assuming I even still have a job after ghosting them for a full day in my second week. That can't be it. No way that's it. If there's a God up there…
 
-I get off at my stop and lock eyes on a secondhand cell-phone shop across the street, a little mom-and-pop place. I beeline for the door. Never been inside, but if anybody's got a phone I can borrow it's them — and they do. After a quick sob story and a little pleading, the clerk hands me a cordless landline. I warn her the hold could run hours. She has long brown hair, about a buck twenty.  A face you would take home to mother.
+I get off at my stop and lock eyes on a secondhand cell-phone shop across the street, a little mom-and-pop place. I beeline for the door. Never been inside, but if anybody's got a phone I can borrow it's them — and they do. After a quick sob story and a little pleading, the clerk hands me a cordless landline. I warn her the hold could run hours. She has long brown hair, about a buck twenty. A face you would take home to mother.
 
 It runs close to an hour and a half. Thank God she's cool about it. I keep her entertained the whole time, telling her exactly how a man ends up barefoot in her shop in orange moccasins, and she's all ears — almost looks let down when the hold music cuts out and my escort is finally booked.
 

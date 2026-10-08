@@ -10,7 +10,7 @@ We'd been scoured clean. Both of us. We had walked through the fire and let it b
 
 When the sun rose on the last morning we packed our bags. We hugged Mateo, who looked at us out of those ancient ocean-deep eyes and nodded once, as if to say *the work is done.* We said goodbye to the uncles, climbed in the car, and started the long drive north toward the border.
 
-There were a few other things that happened. Glenda had a plot of land there. Willed to her by her grandmother. We built a little store there. Just a concrete room with a tin roof and a counter. We sold beer and chips and cigarettes and we made a little money. We lived that summer like a couple of people on vacation. But none of that really matters.  But...it happened.  It is still up there.  I have no idea if it is still running. We had dreams of it still running.  Coming back to it someday.  Like everything else, it was just a thought left behind.  One day maybe I will see it.  I suppose.
+There were a few other things that happened. Glenda had a plot of land there. Willed to her by her grandmother. We built a little store there. Just a concrete room with a tin roof and a counter. We sold beer and chips and cigarettes and we made a little money. We lived that summer like a couple of people on vacation. But none of that really matters. But...it happened. It is still up there. I have no idea if it is still running. We had dreams of it still running. Coming back to it someday. Like everything else, it was just a thought left behind. One day maybe I will see it. I suppose.
 
 The truest, most brutal thing the medicine ever taught me, and it taught it sideways and entirely at my own expense.
 
@@ -20,7 +20,7 @@ We came out of those two weeks hollowed out, grieved-empty, lighter in the soul 
 
 And as the tires ate up the miles north, a cold thing turned over in me. I was not one single degree less thirsty for a drink.
 
-It had cracked the floor of me wide open and shown me the oldest broken things lying down there in the dark. It had walked me up to the ghost of a five-year-old boy and made me carry a decade of grief over my daughter out into the light. And it had not laid so much as a finger on the bottle. New Years eve was a joke.  It didn't even matter.  I don't even remember it.  What I remember is the drive home.
+It had cracked the floor of me wide open and shown me the oldest broken things lying down there in the dark. It had walked me up to the ghost of a five-year-old boy and made me carry a decade of grief over my daughter out into the light. And it had not laid so much as a finger on the bottle. New Years eve was a joke. It didn't even matter. I don't even remember it. What I remember is the drive home.
 
 We'd been to the very bottom of ourselves — dug down to the exact place all the experts and the soft-eyed counselors and the rehab brochures swear the drinking comes *from* — and we'd found the bottom didn't have the drinking in it at all.
 
