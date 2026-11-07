@@ -12,7 +12,7 @@
 
 *"This is how you ruin your life by forty-five. Pay attention."*
 
-Clay Mills got good at exactly one thing: running. A Las Vegas phone man who sold strangers luxury vacations to their own hometowns and drank through every dollar he conned, he outran the wreckage of his life one state line at a time — Vegas, Alaska, a jail cell, a barn in Michigan — always dead sure the next town would be the one that finally fixed him.
+Clayton Classyck got good at exactly one thing: running. A Las Vegas phone man who sold strangers luxury vacations to their own hometowns and drank through every dollar he conned, he outran the wreckage of his life one state line at a time — Vegas, Alaska, a jail cell, a barn in Michigan — always dead sure the next town would be the one that finally fixed him.
 
 It never was.
 
@@ -42,6 +42,6 @@ A Las Vegas con man and lifelong addict chases a woman he's never touched across
 
 ## Author bio line (placeholder — confirm details)
 
-CLAY MILLS is sober and writing from [city/state]. This is his first book.
+CLAY is sober and writing from [Rosarito, Mexicali, MX]. This is his first book.
 
 > ⚠️ Bio is a placeholder — give me the real details (where he lives now, how long sober, anything he wants on the record) and I'll write the final version.
