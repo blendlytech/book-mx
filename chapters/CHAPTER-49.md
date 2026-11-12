@@ -140,12 +140,14 @@ Every old instinct I have is already sketching a map. I can feel the gears grind
 
 The only difference is that now, I recognize the sound. That’s the only progress I've made, but it's everything I've got. I hear the motor start, I see which way the needle is swinging, and even though every broken part of me wants to follow it — because sick men always crave what poisons them — I know what it is.
 
-A broken compass. 
+A broken compass.
 
-It’s not like a stopped clock. 
+It’s not like a stopped clock.
 
 It isn't right twice a day.
 
-To everyone who lived through this with me: you were there. I'm not going to write that I'm sorry. I'm going to write that I am grateful. Every single person who made it onto these pages altered the course of my life, and I mean that down to the bone. 
+As I walk towards my Airbnb in Mexicali, 2 month's sober, not the 6 month's I promised myself, the only thing running through my mind was Tecate.  Mexcio's finest local beer.  I drop into Six and purchase a pack of cigerettes, a lighter and a tall-boy.  It's 120 degrees outside, as it always is in Mexicali during the summer.  The heat radiates off the concrete in shimmering waves.  There's a breeze that moves the trash down the street, but it doesn't do a damn thing to cool the air.  The Tecate is already sweating in my hands on tht hot side walk. 4 pulls later, it's in a recycle bin.  1.5 miles to the Airbnb, cake walk.  Two large bags full of clothes that belonged to another rehaber months back.  Half fit and I'm currsing myself for bringing any of them about halfway through the walk, drenched in sweat.  I'll get there.  I always get there.  What happens after that is anyone's guess.  The map is blank, the future is uncertain.  Where this broken compass takes me next, is anyone's guess.  I'll come up with something.
 
-In the end, I just couldn't outrun the truth.  
+And that's it... that's the end of the book.
+
+
