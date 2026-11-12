@@ -12,7 +12,7 @@ status: "Comprehensive Working Document"
 # OFFICIAL MASTER EDITORIAL & KDP REVIEW (`BOOK-NOTES.md`)
 
 **Title:** *A Broken Compass: A Memoir*  
-**Author / Pen Name:** Clayton Classyck (Clay Mills)  
+**Author / Pen Name:** Clayton Classyck 
 **Consolidated Review Date:** November 7, 2026  
 **Scope:** Unified Master Review combining the **Chapter-by-Chapter Craft & Line Review** (`Prologue` + `Chapters 1–49` + Git-Archived `Eleanor` & `Josh` Chapters) and the **Full-Manuscript Continuity, Structural & Amazon KDP Production Audit** (`125,581 words` across 50 active files, Front Cover Art, and `back-cover.md`).
 
@@ -1294,7 +1294,7 @@ Your current back-cover copy is punchy and well-paced, with three concrete fixes
    - Both reviews noted that *"one bad left turn at a time"* is the weakest borrowed phrase in the Prologue, and [CHAPTER-49.md](file:///c:/Users/DELL/mx_book/chapters/CHAPTER-49.md#L91) explicitly rejects it. End the blurb on a sharper true line from the book (e.g., *"I have spent my entire life dead certain that the next room is the one where I finally get to explain."* or *"A broken compass isn't like a stopped clock. It isn't right twice a day."*).
 3. **Finalize the Author Bio Placeholder ([back-cover.md](file:///c:/Users/DELL/mx_book/back-cover.md#L45)):**
    - *Current:* `CLAY is sober and writing from [Rosarito, Mexicali, MX]. This is his first book.`
-   - *Fix:* `CLAYTON CLASSYCK is sober and writing from Baja California, Mexico. A Broken Compass is his first book.`
+   - *Fix:* **[DONE 2026-11-09 — superseded]** Bio rewritten in `back-cover.md` with no current location, for author safety (see `MARKETING-PLAN.md`).
 
 ---
 
@@ -1333,7 +1333,7 @@ Your current back-cover copy is punchy and well-paced, with three concrete fixes
   4. `raw gritty memoir of addiction relapse rehab`
   5. `ayahuasca plant medicine trauma healing memoir`
   6. `baja california tijuana rosarito mexicali book`
-  7. `books like a million little pieces cherry`
+  7. `true story survival memoir mexico border` *(replaced 2026-11-09: KDP bans other titles/authors in keywords, and Frey's book is the most famous fabricated memoir)*
 - **Recommended Pricing:**
   - **Kindle eBook:** **$4.99** (70% royalty tier, or **$2.99** launch promo) + enroll in **KDP Select (Kindle Unlimited)**.
   - **Paperback (6"×9", ~460 pages):** **$17.99 – $19.99**.

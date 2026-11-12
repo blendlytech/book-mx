@@ -42,6 +42,6 @@ A Las Vegas con man and lifelong addict chases a woman he's never touched across
 
 ## Author bio line (placeholder — confirm details)
 
-CLAY is sober and writing from [Rosarito, Mexicali, MX]. This is his first book.
+CLAYTON CLASSYCK spent decades selling things on the phone and most of them drinking. He survived a cartel mountain in Baja California and is now sober. *A Broken Compass* is his first book.
 
-> ⚠️ Bio is a placeholder — give me the real details (where he lives now, how long sober, anything he wants on the record) and I'll write the final version.
+> ⚠️ SAFETY RULE: never name a current city, state, or region in the bio, on the Amazon author page, or on social profiles. "Baja California" above refers only to where the story happened. Confirm sobriety date if you want one on the record.

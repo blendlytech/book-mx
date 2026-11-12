@@ -56,7 +56,7 @@ Now here's what I owe her, and it's the reason I've been circling this chapter f
 
 I've got six years of that woman raising me and almost no film on any of it.
 
-I can give you my grandmother's kitchen down to the color of the light over the table. I can give you the sound of a car locking up its brakes in the middle of a street in 1985. I can give you the exact weight of a handful of my sister's hair.
+I can give you my grandmother's kitchen down to the color of the light over the table. I can give you the sound of a car locking up its brakes in the middle of a street the year I was eleven. I can give you the exact weight of a handful of my sister's hair.
 
 Six years of the person who actually did the job, and what comes back is a warmth, a certainty, a plate on a table, a voice telling me to go wash.
 

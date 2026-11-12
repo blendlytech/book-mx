@@ -6,11 +6,11 @@ The third ceremony, two nights on from the second, was the one that broke the fl
 
 I went in exhausted and scared. I did not go in there for my daughter. I went in for the drink, like we'd planned, my intention squared away and rehearsed and aimed at the bottle like a good soldier. *Show me why I drink. Take the thirst.* That was the deal I thought I was making.
 
-The medicine didn't care what I'd planned. It went straight past the alcohol like the alcohol wasn't worth its time. Past the Vegas scams, under the cartel roadblocks, by the petty grifts and the daily lies, down to the bedrock — the oldest, coldest thing in me, the thing I'd spent ten years and four thousand miles and an ocean of vodka refusing to look at.
+The medicine didn't care what I'd planned. It went straight past the alcohol like the alcohol wasn't worth its time. Past the Vegas scams, under the cartel roadblocks, by the petty grifts and the daily lies, down to the bedrock — the oldest, coldest thing in me, the thing I'd spent twelve years and four thousand miles and an ocean of vodka refusing to look at.
 
 It took my face in both hands and turned it toward my little girl.
 
-I had a daughter. I've told you that, in passing, the way I've trained myself to say it — *had a two-year-old once, lost her to adoption, a long time ago, up in Alaska* — fast and flat, like a line off a tax form, so the words can get clear of my mouth before what's behind them catches up. Ten years I'd kept a concrete vault around her. I'd drowned her in every bar I ever stood in.
+I had a daughter. I've told you that, in passing, the way I've trained myself to say it — *had a two-year-old once, lost her to adoption, a long time ago, up in Alaska* — fast and flat, like a line off a tax form, so the words can get clear of my mouth before what's behind them catches up. Twelve years I'd kept a concrete vault around her. I'd drowned her in every bar I ever stood in.
 
 That night the vault blew open.
 
@@ -18,7 +18,7 @@ The room didn't fade; it ceased to be. The air went to a dry biting cold that be
 
 She was two when she went.
 
-The toddler in the snowsuit dissolved into the ghost of a near-teenage girl out somewhere in the world, learning algebra, fighting with her mother, discovering everything — with some other good man's last name, and not one idea who I was. Worse than gone: a stranger. If I passed her on a sidewalk tomorrow she would not look twice at the broken man going by.
+The toddler in the snowsuit dissolved into the ghost of a fourteen-year-old girl out somewhere in the world, learning algebra, fighting with her mother, discovering everything — with some other good man's last name, and not one idea who I was. Worse than gone: a stranger. If I passed her on a sidewalk tomorrow she would not look twice at the broken man going by.
 
 The purge that came then didn't start in the stomach. It started in the marrow. Grief — pure, decade-old grief heaving up out of me all at once, so vast and heavy it felt like it would crack my spine. I went off the mat and onto the concrete and curled around the bucket and I wept. I didn't cry; I wailed — a guttural animal sound that tore my throat raw, the way I have not wept since I was a scared boy hiding in the dark.
 
@@ -28,7 +28,7 @@ The medicine stripped the central lie of my life right off the bone: that lettin
 
 And then the cruelest cut of the night, the one the medicine made dead sure I didn't miss. It pulled up America. Eleven years old, walking a grown man out past the last houses of her own town so he could find a signal on a hill. Sitting down beside me at a table of twenty people to tell me what the joke was and that it was fine. The flat hand out, the high five, and never once a hug. I had crossed a desert and braved cartel roadblocks and landed here pouring every ounce of a father's ache into a girl who wasn't mine — desperate to protect her, to be a man for her — while my own blood walked the earth a stranger to me. The medicine laid the two girls side by side in the dark, the phantom child up north and the living eleven-year-old asleep a few miles away, and made me measure the distance between my guilt and my scramble for redemption until I couldn't draw breath.
 
-Through the roar in my ears I heard Mateo. He'd come and knelt over me, the *mapacho* drifting down across my face, the *chacapa* rattling inches from my head like a sudden rain, and he was singing an *icaro* meant just for me — a fast, urgent thing built to drag the sorrow up out of the tissue by its black root. I lay on that concrete in my own sweat and snot and tears, gripping the bucket like the last solid thing in the universe, and I let ten years of grief break me clean in half. To this day, it is the most unexplainable thing I have ever tried to explain. I've done it no justice here. Those experiences changed me. For better, for worse, I don't know. But I'm changed. You can't put an experience like that in a paragraph. There was so much more, but my own mind won't let me put it on paper because it hurts too much. Emotional pain is something I've learned you can bury. Don't you dare bring a shovel because unearthing things you don't even think about or even know they exist in your subconscious can leave you with more questions than answers. Questions I still had and I wasn't done, nor did I really have a choice to be done.
+Through the roar in my ears I heard Mateo. He'd come and knelt over me, the *mapacho* drifting down across my face, the *chacapa* rattling inches from my head like a sudden rain, and he was singing an *icaro* meant just for me — a fast, urgent thing built to drag the sorrow up out of the tissue by its black root. I lay on that concrete in my own sweat and snot and tears, gripping the bucket like the last solid thing in the universe, and I let twelve years of grief break me clean in half. To this day, it is the most unexplainable thing I have ever tried to explain. I've done it no justice here. Those experiences changed me. For better, for worse, I don't know. But I'm changed. You can't put an experience like that in a paragraph. There was so much more, but my own mind won't let me put it on paper because it hurts too much. Emotional pain is something I've learned you can bury. Don't you dare bring a shovel because unearthing things you don't even think about or even know they exist in your subconscious can leave you with more questions than answers. Questions I still had and I wasn't done, nor did I really have a choice to be done.
 
 I'm all in. Not that I really had a choice
 
@@ -40,13 +40,13 @@ I gave it to her out on that same patio, and I didn't get through it clean. The 
 
 Glenda listened to the whole thing with her hands flat on her knees.
 
-Then she said, she's ten now.
+Then she said, she's fourteen now.
 
 Yeah.
 
-Same as her, she said. About.
+Not much older than her, she said.
 
-America's eleven, I said.
+Three years, I said. America's eleven.
 
 I know how old my daughter is, she said.
 

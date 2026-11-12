@@ -2,8 +2,6 @@
 
 I told you at the start I was telling you this from a chair, a free man.
 
-I want to be straight with you about the chair.
-
 It's a plastic one, in a courtyard in Mexicali, and there's a fence around the courtyard. My discharge date was supposed to be October, but I'm out. It is the first of August as I write this. I turn forty-seven in eight days, and I'll be turning it in an office building I rented, wearing a t-shirt that isn't mine, in a country where I still have no legal right to be standing.
 
 So. Free man. You can decide what that's worth. I've decided what it's worth to me, and the answer is: more than anything else I have ever owned, and I'm not going to apologize for using the word.
@@ -98,7 +96,7 @@ That’s why the clinic worked. Not the ayahuasca. Not the mountain. Not the bea
 
 I’ve made bold declarations in this book at least four separate times, and every single time, the floor gave way beneath me within a season. On a beach in Peñasco holding a cold Tecate. In a bus with blacked-out windows. Standing in the ruins of an app with forty-three brewery owners to placate.
 
-I know what the medicine showed me in Sinaloa, and I've written it down so I can never hide from it: the grief was never the foundation the addiction was built on. I dragged every buried ghost into the sunlight in that concrete room — the terrified boy, the abandoned daughter, the woman lying in the highway who was relieved it wasn't me. I wept over every single one of them. And then I got in a car, drove north, and the craving was sitting right there in the passenger seat, exactly the same size it had always been.
+I know what the medicine showed me in Sinaloa, and I've written it down so I can never hide from it: the grief was never the foundation the addiction was built on. I dragged every buried ghost into the sunlight in that concrete room — the terrified boy, the abandoned daughter, the grandmother at the card table who couldn't stand a cheater. I wept over every single one of them. And then I got in a car, drove north, and the craving was sitting right there in the passenger seat, exactly the same size it had always been.
 
 So I don't get a tidy Hollywood epiphany. There isn't one coming. The thirst stands entirely on its own. It was sitting on the edge of the bed the morning I walked out that gate, asking the exact same question it always asks, and it will ask it again tomorrow morning.
 
@@ -106,7 +104,7 @@ What I had instead was a fence, a counselor twice a week who can hear the pitch 
 
 ***
 
-My daughter is thirteen now. She carries another good man's last name. She has no idea I exist, and if we passed each other on the sidewalk tomorrow, she wouldn't glance twice in my direction.
+My daughter is fifteen now. She carries another good man's last name. She has no idea I exist, and if we passed each other on the sidewalk tomorrow, she wouldn't glance twice in my direction.
 
 That is the correct outcome. I've stopped fighting it. I gave her up because walking away is the only skill I ever truly mastered. I spent this entire book laying out the raw truth of who I was so that if she ever comes looking — twenty years from now, forty years from now — there is a record. A document. Her father wasn't an enigma or a softened myth her mother had to invent. He was this. Exactly this. Every ugly, selfish mile of it, without an ounce of paint on the canvas.
 
@@ -116,7 +114,7 @@ That is what this manuscript is. That is what it was always for. Everything else
 
 I owe an accounting for the missing chapters, and I'd rather do it once here than leave loose threads scattered across the pages.
 
-I only remembered the ruptures. The only things that print in high definition on my memory are the things that shattered. I can recall the exact weight of a fistful of my sister's hair, the screech of locking brakes in 1985, and the suffocating smell of a bus with blacked-out windows. But the people who were steadily, quietly, unspectacularly good to me for thirty or forty years without fail — they never broke anything, so there’s no dramatic film rolling in my head.
+I only remembered the ruptures. The only things that print in high definition on my memory are the things that shattered. I can recall the exact weight of a fistful of my sister's hair, the screech of locking brakes the year I was eleven, and the suffocating smell of a bus with blacked-out windows. But the people who were steadily, quietly, unspectacularly good to me for thirty or forty years without fail — they never broke anything, so there’s no dramatic film rolling in my head.
 
 That means a memoir like this is fundamentally rigged. It awards the most ink to whoever inflicted pain, or whoever I destroyed, and the absolute least to the people who simply held the line. The souls I owe the greatest debt to are the ones who gave me the least drama to write about.
 
@@ -126,7 +124,7 @@ I don't have an excuse for that. It’s the very flaw that landed me here: I nev
 
 The sun drops low and orange over the desert at the end of the day, looking just like it did on that hill outside a small Sinaloa town, where a little girl who wasn't mine used to walk a tall, foolish gringo past the last houses so his phone could find a signal, kicking rocks and teasing him about which uncle was full of shit.
 
-I don't know where America is tonight. Somewhere in Mexicali with her grandmother, which is the single untainted piece of good news to come out of this entire saga, and I hold onto it with both hands.
+America is somewhere in Mexicali tonight with her grandmother, as far as I know, which is the single untainted piece of good news to come out of this entire saga, and I hold onto it with both hands.
 
 I never did get a hug from that kid.
 
